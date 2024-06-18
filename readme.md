@@ -1,6 +1,6 @@
-# TechiDaily
+# Fox Boxes Site
 
-Welcome to [https://android-transfer.techidaily.com](https://android-transfer.techidaily.com)
+Welcome to [https://fox-boxes.techidaily.com](https://fox-boxes.techidaily.com)
 
 ## Publish
 
