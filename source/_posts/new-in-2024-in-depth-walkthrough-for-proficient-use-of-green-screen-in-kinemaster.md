@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, In-Depth Walkthrough for Proficient Use of Green Screen in Kinemaster\""
-date: 2024-06-17T13:37:19.496Z
-updated: 2024-06-18T13:37:19.496Z
+date: 2024-07-02T12:44:18.390Z
+updated: 2024-07-03T12:44:18.390Z
 tags: 
   - screen-recording
   - ai video
@@ -48,7 +48,7 @@ Following are some features of the KineMaster video editor that makes it stand o
 
 Follow these steps to use the **green screen in KineMaster** to take your video editing to the next level:
 
-Step1 Head to [Google Play Store](https://play.google.com/store/apps/details?id=com.nexstreaming.app.kinemasterfree&hl=en&gl=US) or [App Store](https://apps.apple.com/us/app/kinemaster-video-editor/id1609369954)and install **KineMaster** on your device. Launch the app and choose the **aspect ratio**. Tap the **"Media"** option from the right side of the screen. Select the video clips with **chroma-key** and import them to the **timeline.**
+Step1 Head to [Google Play Store](https://play.google.com/store/apps/details?id=com.nexstreaming.app.kinemasterfree&hl=en&gl=US) or [App Store](https://apps.apple.com/us/app/kinemaster-video-editor/id1609369954) and install **KineMaster** on your device. Launch the app and choose the **aspect ratio**. Tap the **"Media"** option from the right side of the screen. Select the video clips with **chroma-key** and import them to the **timeline.**
 
 Step2 Next, select all the video clips with the **green screen** and open the right-hand side **menu.** Scroll down and tap **"Chroma Key"** to remove the color from the videos.
 

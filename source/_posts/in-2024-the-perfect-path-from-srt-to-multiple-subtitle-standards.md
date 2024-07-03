@@ -1,7 +1,7 @@
 ---
 title: "In 2024, The Perfect Path From SRT to Multiple Subtitle Standards"
-date: 2024-06-17T14:22:01.696Z
-updated: 2024-06-18T14:22:01.696Z
+date: 2024-07-02T12:44:19.272Z
+updated: 2024-07-03T12:44:19.272Z
 tags: 
   - screen-recording
   - ai video
@@ -99,7 +99,7 @@ There are effective steps that could also come in handy if you want to convert S
 
 To convert SRT to SCC, you need an online converter, and here, we've explained the step-by-step process to convert SRT to SCC using REV online converter. It’s a reliable tool for the job.
 
-Step1 Visit REV's[official website](https://www.rev.com/captionconverter)
+Step1 Visit REV's [official website](https://www.rev.com/captionconverter)
 
 Step2 Click on Select.SRT Files to upload the SRT file you want to convert to SCC.
 
@@ -199,7 +199,7 @@ There are effective steps that could also come in handy if you want to convert S
 
 To convert SRT to SCC, you need an online converter, and here, we've explained the step-by-step process to convert SRT to SCC using REV online converter. It’s a reliable tool for the job.
 
-Step1 Visit REV's[official website](https://www.rev.com/captionconverter)
+Step1 Visit REV's [official website](https://www.rev.com/captionconverter)
 
 Step2 Click on Select.SRT Files to upload the SRT file you want to convert to SCC.
 

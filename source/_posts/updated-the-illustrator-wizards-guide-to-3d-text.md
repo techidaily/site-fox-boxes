@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Illustrator Wizard's Guide to 3D Text"
-date: 2024-06-17T13:59:18.002Z
-updated: 2024-06-18T13:59:18.002Z
+date: 2024-07-02T12:44:17.116Z
+updated: 2024-07-03T12:44:17.116Z
 tags: 
   - screen-recording
   - ai video
@@ -96,7 +96,7 @@ If you want to learn more about Filmora’s fantastic features, please watch the
 
 ## Conclusion
 
-Both programs will get the job done if you use Adobe Illustrator or Filmora for your 3D text effect. The main difference is that it will be easier with Filmora. The choice is yours. Have fun![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+Both programs will get the job done if you use Adobe Illustrator or Filmora for your 3D text effect. The main difference is that it will be easier with Filmora. The choice is yours. Have fun ![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
 

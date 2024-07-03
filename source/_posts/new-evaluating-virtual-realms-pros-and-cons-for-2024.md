@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Evaluating Virtual Realms  Pros and Cons for 2024\""
-date: 2024-06-17T14:31:55.898Z
-updated: 2024-06-18T14:31:55.898Z
+date: 2024-07-02T12:44:14.752Z
+updated: 2024-07-03T12:44:14.752Z
 tags: 
   - screen-recording
   - ai video
@@ -29,9 +29,9 @@ thumbnail: https://thmb.techidaily.com/88b9d1a1839e87bc852a7b88397e12987972348fa
 [Virtual Reality](https://tools.techidaily.com/wondershare/filmora/download/) is a technology that uses software for creating an artificial environment. It makes some artificial senses such as touching, hear and sight. The world of virtual reality merges the power of 3D graphics. Virtual reality technology is widely used for various purposes. Such as video games, engineering, entertainment, education, design, films, media, medicine and many more.Virtual reality makes various important changes in life of humans and their day to day activities. There are mainly three types of VR systems:Video Mapping VR, Immersive VR and Desktop VR.
 
  **_You may also like:_**
-_[History of Virtual Reality](https://tools.techidaily.com/wondershare/filmora/download/)_
-_[VR Application in Entertainment](https://tools.techidaily.com/wondershare/filmora/download/)_
-_[Differences between VR, AR and MR](https://tools.techidaily.com/wondershare/filmora/download/)_
+_ [History of Virtual Reality](https://tools.techidaily.com/wondershare/filmora/download/) _
+_ [VR Application in Entertainment](https://tools.techidaily.com/wondershare/filmora/download/) _
+_ [Differences between VR, AR and MR](https://tools.techidaily.com/wondershare/filmora/download/) _
 
 ### Pros and cons of Virtual Reality
 

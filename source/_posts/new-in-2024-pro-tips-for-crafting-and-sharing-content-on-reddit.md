@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Pro Tips for Crafting & Sharing Content on Reddit"
-date: 2024-06-17T13:21:50.695Z
-updated: 2024-06-18T13:21:50.695Z
+date: 2024-07-02T12:44:15.772Z
+updated: 2024-07-03T12:44:15.772Z
 tags: 
   - screen-recording
   - ai video
@@ -96,7 +96,7 @@ Some important rules to follow:
 
 ### Reddiquettes
 
-Simply put, etiquettes refer to Reddit etiquette. They are the dos and don'ts of Reddit. Reddit has posted an[official list of the proper reddiquettes](https://www.reddithelp.com/hc/en-us/articles/205926439) all users should always try and stick to.
+Simply put, etiquettes refer to Reddit etiquette. They are the dos and don'ts of Reddit. Reddit has posted an [official list of the proper reddiquettes](https://www.reddithelp.com/hc/en-us/articles/205926439) all users should always try and stick to.
 
 The goal behind this is to make Reddit a safer and more enjoyable platform to use. However, if you do not follow proper reddiquette, you will usually see the adverse effects in your Karma points. In other words, your Reddit Karma will decrease.
 
