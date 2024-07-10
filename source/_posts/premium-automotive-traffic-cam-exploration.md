@@ -1,7 +1,7 @@
 ---
 title: "Premium Automotive Traffic Cam Exploration"
-date: 2024-06-17T14:29:08.966Z
-updated: 2024-06-18T14:29:08.966Z
+date: 2024-07-09T22:02:47.462Z
+updated: 2024-07-10T22:02:47.462Z
 tags: 
   - screen-recording
   - ai video
@@ -221,7 +221,7 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
-![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
+![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg) Secure Download
 
 ### Frequently Asked Questions About Auto-Tracking Camera
 
