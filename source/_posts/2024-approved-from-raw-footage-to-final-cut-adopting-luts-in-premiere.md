@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  From Raw Footage to Final Cut  Adopting LUTs in Premiere\""
-date: 2024-06-17T13:29:40.263Z
-updated: 2024-06-18T13:29:40.263Z
+date: 2024-07-13T19:50:25.805Z
+updated: 2024-07-14T19:50:25.805Z
 tags: 
   - screen-recording
   - ai video
@@ -32,6 +32,9 @@ Step2Locate the Lumetri LUTs folder in your Premiere Pro installation directory 
 
 Step3Paste all of your fresh LUTs in this folder at this time. Your new LUTs will now show up in the Lumetri Color Panel when you launch Premiere Pro (or restart the software if it was already open). Innovative >> Looks
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. How to add LUTs to your footage
 
 Step1Choose the Color Workspace at the top after your clip is in the timeline and prepared for grading.
@@ -42,6 +45,9 @@ Step3The first Basic Correction option in the right-hand panel of Lumetri Color 
 
 Step4Double-click the LUT you wish to use once you've located it, and it will be applied immediately.A tiny tip I like to use occasionally is to find the Effect Controls panel on the left side, then click the drop-down arrow next to Opacity, and make adjustments if you input your LUT and feel that it's too intense.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. Why use LUTs in your project?
 
 When there is no time limit or restriction on when to submit the result file, it is fun to edit your own clips because you have complete creative control over the process. Because of this, Color Grading is a rather unimportant aspect to worry about. After making a few adjustments to the Exposure and Contrast settings, you should be good to go.
@@ -52,6 +58,9 @@ Because of this, some designers employ look-up tables (LUTs) that they have crea
 
 When it comes to working on a project for a customer that has a stringent deadline to fulfill, poor color grading could result in a negative impression of your work. This is the case even if everything from the sound effects to the video effects is done to a high standard and is done well.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 4\. Can you adjust the strength of the LUT?
 
 There are no such modifications that can be made in a certain LUT or Look, and there is no reason to adjust them because there is no need to. However, you may change its strength, which is essentially the same thing as the opacity of the LUT that was applied, and there are still choices to color grade the entire movie after the LUT has been applied.
@@ -85,17 +94,20 @@ You might be asking, "Now that I've learned more about LUTs (Lookup Tables), whe
 * Filmic Tone LUTs
 * Urban Dark Creative LUTs
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Additionally, check to see if you have inadvertently downloaded any viruses. There is a strong temptation to simply conduct a search for cinematic LUTs on Google, then download all free files that we come across.
 
 Sometimes, some of them are out there to steal your money rather than provide the color correcting settings that you desire. One other thing that could have been wrong is if your LUT files were placed in the incorrect folder. Please ensure that this is not the case by performing a second check.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -120,3 +132,61 @@ Sometimes, some of them are out there to steal your money rather than provide th
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/updated-superior-suggestions-elite-iphone-ringtones-developers/"><u>[Updated] Superior Suggestions  Elite iPhone Ringtones Developers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-ultimate-offline-voice-processor/"><u>[New] Ultimate Offline Voice Processor</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-your-essential-list-of-free-high-quality-online-meeting-software/"><u>2024 Approved  Your Essential List of Free, High-Quality Online Meeting Software</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-prime-tips-for-soundless-videography-for-2024/"><u>[Updated] Prime Tips for Soundless Videography for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-mastering-the-art-of-editing-in-garageband/"><u>[New] 2024 Approved  Mastering the Art of Editing in GarageBand</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-spectral-showcase-curating-the-best-4k-displays-on-screen/"><u>[Updated] In 2024, Spectral Showcase  Curating the Best 4K Displays on Screen</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/3-effective-ways-to-unlock-icloud-account-without-password-on-apple-iphone-13-mini-by-drfone-ios/"><u>3 Effective Ways to Unlock iCloud Account Without Password On Apple iPhone 13 mini</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-motorola-razr-40-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Motorola Razr 40 Quickly? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-honor-play-40c-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Honor Play 40C Device</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-google-pixel-8-pro-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Google Pixel 8 Pro Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-meizu-21-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Meizu 21 Phones with/without a PC</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-affordable-cloud-vaulting-mass-file-saving-made-cheap/"><u>[New] 2024 Approved  Affordable Cloud Vaulting  Mass File Saving Made Cheap</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-expert-insights-into-attaining-stock-artwork-for-2024/"><u>[New] Expert Insights Into Attaining Stock Artwork for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-melodies-meet-graphics-adding-soundtracks-to-powerpoint/"><u>[Updated] Melodies Meet Graphics  Adding Soundtracks to PowerPoint</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-comprehensive-list-securing-monetized-youtube-content/"><u>[New] 2024 Approved  Comprehensive List  Securing Monetized YouTube Content</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-techniques-in-artificial-intelligence-for-effective-sonic-clarity-and-denoising/"><u>New Techniques in Artificial Intelligence for Effective Sonic Clarity and Denoising</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/high-definition-magic-cutting-edge-camcorders-reviewed-for-2024/"><u>High-Definition Magic  Cutting-Edge Camcorders Reviewed for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/flawlessly-flip-twist-and-merge-videos-on-your-android-gear/"><u>Flawlessly Flip, Twist & Merge Videos on Your Android Gear</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/exploring-the-distinctions-of-srgb-and-rgb-for-2024/"><u>Exploring the Distinctions of Srgb and Rgb for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-depth-analysis-top-10-video-cards-built-for-youtube-watching/"><u>In-Depth Analysis  Top 10 Video Cards Built for YouTube Watching</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-quick-fix-for-turning-yt-lists-backwards/"><u>[New] The Quick Fix for Turning YT Lists Backwards</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-vivo-y55s-5g-2023s-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Vivo Y55s 5G (2023)s Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-mastering-the-exchange-of-fb-vids-on-whatsapp/"><u>[New] Mastering the Exchange of FB Vids on WhatsApp</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/enhance-imagery-with-elegant-borders-ig-edition-for-2024/"><u>Enhance Imagery with Elegant Borders – IG Edition for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-unveiling-simple-techniques-for-effortless-undersea-vids-for-2024/"><u>[Updated] Unveiling Simple Techniques for Effortless Undersea Vids for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-uncover-top-affordable-video-enhancement-platforms-a-comprehensive-guide-for-2024/"><u>[Updated] Uncover Top Affordable Video Enhancement Platforms - A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-becoming-a-color-connoisseur-top-techniques/"><u>[New] Becoming a Color Connoisseur  Top Techniques</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-on-realme-gt-5-240w-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Realme GT 5 (240W) FRP Bypass</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-converging-computer-visuals-flawlessly/"><u>[New] In 2024, Converging Computer Visuals Flawlessly</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-sony-xperia-10-v-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Sony Xperia 10 V to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-comprehensive-walkthrough-setting-up-sound-recording-on-garageband/"><u>Updated Comprehensive Walkthrough Setting Up Sound Recording on GarageBand</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-navigate-the-future-of-meetings-a-win11-and-zoom-guide/"><u>[New] 2024 Approved  Navigate the Future of Meetings  A Win11 and Zoom Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-essentials-of-effective-spotify-ad-placement-for-2024/"><u>[New] Essentials of Effective Spotify Ad Placement for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/from-two-dimensions-techniques-for-3d-text-in-illustrator/"><u>From Two-Dimensions  Techniques for 3D Text in Illustrator</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-larger-than-life-instagram-videos-tips-to-break-the-barrier/"><u>[New] In 2024, Larger-than-Life Instagram Videos  Tips to Break the Barrier</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-capturing-every-move-in-games-with-fbx-for-2024/"><u>[New] Capturing Every Move in Games with FBX for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-laugh-out-loud-a-step-by-step-meme-building/"><u>[New] Laugh Out Loud  A Step-by-Step Meme Building</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-ultimate-plugins-list-after-effects-edition/"><u>[New] In 2024, Ultimate Plugins List  After Effects Edition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/iphone-guide-jpegpng-to-pdf-conversion-techniques-for-2024/"><u>IPhone Guide  JPEG/PNG to PDF Conversion Techniques for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-how-to-upgrade-or-install-the-macos-sierra/"><u>In 2024, How to Upgrade or Install the macOs Sierra</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/mastering-personal-tones-androids-ringtone-and-sound-guide-for-2024/"><u>Mastering Personal Tones  Android's Ringtone & Sound Guide for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-final-word-on-powerdirector-a-complete-review-for-2024/"><u>[New] The Final Word on PowerDirector  A Complete Review for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-bargain-ballbusters-learn-free-football-broadcast-techniques-for-2024/"><u>[New] Bargain Ballbusters  Learn Free Football Broadcast Techniques for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-a-step-by-step-approach-to-freeing-up-space-in-figma/"><u>[Updated] A Step-by-Step Approach to Freeing Up Space in Figma</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-platform-pair-comparison-twitch-and-youtube/"><u>[Updated] The Ultimate Platform Pair Comparison  Twitch and YouTube</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Lava Yuva 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/efficient-recapture-techniques-for-twitch-streams/"><u>Efficient Recapture Techniques for Twitch Streams</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-mastering-picture-in-picture-feature-in-chrome-anywhere/"><u>[Updated] In 2024, Mastering Picture In Picture Feature in Chrome, Anywhere</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/kickstarting-a-vlog-key-hardware-and-apps/"><u>Kickstarting a Vlog  Key Hardware & Apps</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/premium-cameras-for-next-level-music-video-production/"><u>Premium Cameras for Next-Level Music Video Production</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/are-feedbacks-on-items-monetized-in-videos-in-2024/"><u>Are Feedbacks on Items Monetized in Videos, In 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/secure-your-shots-in-the-cloud-unlimited-free-space-plus-charged-premium-solutions/"><u>Secure Your Shots in the Cloud  Unlimited Free Space + Charged Premium Solutions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-inside-track-becoming-an-expert-in-srt-technology/"><u>[Updated] In 2024, Inside Track  Becoming an Expert in SRT Technology</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-perfect-5-monitors-to-boost-your-ps5/"><u>[New] Perfect 5 Monitors to Boost Your PS5</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Which Is Superior, GoPro V5 Edge or Keymission?\""
-date: 2024-06-17T13:20:38.089Z
-updated: 2024-06-18T13:20:38.089Z
+date: 2024-07-13T19:40:56.522Z
+updated: 2024-07-14T19:40:56.522Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,9 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 
 # GoPro Hero 5 Black vs Nikon Keymission 170 Action Camera: Which is better?
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -28,6 +31,9 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 
 The GoPro has ruled the action camera market for over a decade. Whether a professional or someone looking for a personal adventure video shooting device, GoPro has eased the job for everybody. Off late, Nikon the premier camera-manufacturing brand has introduced a series of Keymission action camera models. Recently, after the release of Keymission 170 (widely in glance for the 170 degree view), with features comparable to the **GoPro Hero 5 Black**, there is much hype among the buyers when making a choice. We have tried to give you every bit of detail and a comparative analysis on these two camera models to ease your decision-making.
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## GoPro Hero 5 Black VS Nikon Keymission 170
 
 [gopro hero5 black vs nikon keymission 170](https://images.wondershare.com/filmora/article-images/gopro-hero5-black-vs-nikon-keymission-170.jpg) ](https://www.amazon.com/gp/product/B01M14ATO0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M14ATO0&linkId=5ce54ea937ecffa6b1b8056b6922abaa)
@@ -107,6 +113,9 @@ White Balance
 Nikon Keymission gives you an amazing feel with the yellowish orange effect when using the default white balance. This is much enhanced compared to that on the GoPro Hero 5 black. GoPro supports automatic white balance adjustment according to the ambiance and lights. While this feature is very advanced in the latest, model but not as that of the Nikon effect.  
 Low Light Video Capturing  
 There are shortcomings with both these cameras when you are shooting under low light availability. Yet, GoPro is a bit advanced to give you good video quality under low light. With Nikon it is preferable to use extra lights if you desire to get bright sharp objects.  
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![hero5 balck keymission170 low light test](https://images.wondershare.com/hero5-balck-keymission170-low-light-test.jpg)
 3. **Audio Quality**  
 The Hero 5 Black is very tactically designed with dual microphones – at the rear and front ends. The camera can auto switch microphone during video capturing based on the requirements. To give you better sound quality, the camera swaps to the back microphone during heavy disturbing noise coming from the front direction like biking under heavy wind speed. The **Nikon Keymission 170 action camera** has built in stereo microphone to produce medium quality satisfactory sound capturing.
@@ -137,6 +146,9 @@ What’s more, it has all the features you will need to make you feel like a pro
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/) [Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -163,3 +175,41 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-realme-11-proplus-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Realme 11 Pro+ without App | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-focus-on-the-details-with-videoleaps-zooming-feature/"><u>In 2024, Focus on the Details with Videoleap's Zooming Feature</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/latest-guide-how-to-bypass-itel-a05s-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Itel A05s FRP Without Computer</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/navigating-the-best-lipo-cells-for-quality-flight-time-for-2024/"><u>Navigating the Best LiPo Cells for Quality Flight Time for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-the-mini-moviemaker-a-fun-guide-for-kids-to-make-their-own-movies/"><u>In 2024, The Mini Moviemaker A Fun Guide for Kids to Make Their Own Movies</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-cross-platform-iptv-capture-for-2024/"><u>[New] Cross-Platform IPTV Capture for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-ultimate-guide-to-iphone-burst-mode-shooting/"><u>[New] In 2024, The Ultimate Guide to iPhone Burst Mode Shooting</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-step-by-step-to-adobe-cloud-success-and-non-adobe-options/"><u>In 2024, Step-by-Step to Adobe Cloud Success & Non-Adobe Options</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-image-illumination-the-essential-list-of-frame-enhancing-apps/"><u>In 2024, Image Illumination  The Essential List of Frame-Enhancing Apps</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-quick-insights-5-easy-techniques-for-effective-audio-capture-on-windows-11/"><u>In 2024, Quick Insights  5 Easy Techniques for Effective Audio Capture on Windows 11</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/windows-11-perfect-display-no-more-issues/"><u>Windows 11: Perfect Display, No More Issues</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-handheld-vr-camera-stability-enhancer-for-2024/"><u>[New] Handheld VR Camera Stability Enhancer for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-photo-twisting-with-professional-tools/"><u>[Updated] Photo Twisting with Professional Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-detailed-guide-to-photo-hue-opposites-technique/"><u>[New] Detailed Guide to Photo Hue Opposites Technique</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-wax-video-editor-a-beginners-guide-to-editing-like-a-pro/"><u>Updated Wax Video Editor A Beginners Guide to Editing Like a Pro</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-core-skills-in-video-and-film-creation/"><u>[New] Core Skills in Video and Film Creation</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-best-applications-that-can-help-apply-the-best-vhs-camera-effect/"><u>Updated Best Applications That Can Help Apply The Best VHS Camera Effect</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-expert-tips-to-sharpen-video-calls-with-zoom-in-teams/"><u>[New] 2024 Approved  Expert Tips to Sharpen Video Calls with ZOOM in Teams</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-unpacking-magix-video-editor-features/"><u>[New] 2024 Approved  Unpacking MAGIX Video Editor Features</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-leveraging-the-power-of-visuals-essential-knowledge-about-pexelscoms-image-catalog-for-2024/"><u>New Leveraging the Power of Visuals Essential Knowledge About Pexels.coms Image Catalog for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-explore-popular-youtube-comment-sections/"><u>[Updated] In 2024, Explore Popular YouTube Comment Sections</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/elite-archives-for-3d-graffiti-fonts-for-2024/"><u>Elite Archives for 3D Graffiti Fonts for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-stand-out-in-a-crowd-the-best-20-snapchat-filter-ideas/"><u>[Updated] Stand Out in a Crowd  The Best 20 Snapchat Filter Ideas</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-handheld-smooth-movies-maker/"><u>[New] 2024 Approved  Handheld Smooth Movies Maker</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-expert-tips-for-ios-downloading-podcasts-on-iphone-for-2024/"><u>[New] Expert Tips for iOS  Downloading Podcasts on iPhone for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-full-rotational-photography-versus-3d-scanning/"><u>[New] 2024 Approved  Full-Rotational Photography versus 3D Scanning</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-exploring-dells-bold-move-with-the-latest-p2715q-monitor-review-for-2024/"><u>[New] Exploring Dell's Bold Move with the Latest P2715Q Monitor Review for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Realme GT 5 | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/transform-your-videos-comprehensive-guide-to-video-enhancer-22-for-2024/"><u>Transform Your Videos  Comprehensive Guide to Video Enhancer 2.2 for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-how-to-bypass-infinix-smart-7-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Infinix Smart 7 FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-unlocking-laughter-in-vr-crafting-metaverse-humor/"><u>[New] 2024 Approved  Unlocking Laughter in VR  Crafting Metaverse Humor</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-flashback-filmmaking-essential-retro-vhs-techniques-for-modern-videos/"><u>[New] Flashback Filmmaking  Essential Retro VHS Techniques for Modern Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/mobile-tools-optimize-and-enhance-audio-faster-for-2024/"><u>Mobile Tools  Optimize and Enhance Audio Faster for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-low-light-guru-writes-for-iphone-users/"><u>[New] In 2024, The Low Light Guru' Writes for iPhone Users</u></a></li>
+</ul></div>

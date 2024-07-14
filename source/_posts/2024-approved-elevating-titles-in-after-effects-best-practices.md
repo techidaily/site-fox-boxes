@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Elevating Titles in After Effects  Best Practices\""
-date: 2024-07-02T12:48:23.941Z
-updated: 2024-07-03T12:48:23.941Z
+date: 2024-07-13T21:06:13.333Z
+updated: 2024-07-14T21:06:13.333Z
 tags: 
   - screen-recording
   - ai video
@@ -59,6 +59,9 @@ There are different variations of zoom in and out effect that you can try on you
 
 You must have seen the text animation where the blurry text comes into focus and this can be achieved using Blur parameter. Many people confused Blur with Opacity but blur refers to out of focus while opacity can be understood by fade in and fade out effect. You can adjust the horizontal and vertical blur amount separately and you can come up with stunning text animations by changing Blur value.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. Fill and Stroke
 
 When it comes to text formatting in animation, fill color and stroke color play a major role. You can change the fill of the text so that the text animation is about changing color randomly. There are different options available for fill color such as RGB, Hue, Saturation, and likewise.
@@ -119,6 +122,9 @@ Step3 Double-click on the text layer on the timeline to edit the text preset. Yo
 
 Step4 Go to Animation section and click on Advanced button. Change different parameters under Customize section such as Blue, Opacity, Shadow, and much more. You can create keyframes on the timeline like AE and edit parameters as per your preference.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add animation text in filmora](https://images.wondershare.com/filmora/article-images/2022/09/add-animation-text-in-filmora.jpg)
 
 ## Part 4\. Related FAQs of Title Effects in After Effects
@@ -169,6 +175,9 @@ Similarly, the stroke color can be changed and you can create an animation with 
 
 If you want your text to be distorted and unusual, the skew parameter is there for you in After Effects. Skew means the character will not stay parallel and at right angles. You can adjust the skew value make texts distorted and this is useful in several text animations where distorted texts become normal texts. You can also skew texts in respect to different axis for creative animation.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 7\. Tracking
 
 Tracking refers to the spacing between the characters in a word for a text. You must have seen so many different types of text animations where the spacing between the characters is changing. You can create amazing funny and eye-catching text effects in After Effects by combining tracking and keyframe properly. Along with tracking, there is line anchor that determines the alignment of tracking. Similarly, there is line spacing parameter that controls the spacing between the lines.
@@ -219,6 +228,9 @@ Step3 Double-click on the text layer on the timeline to edit the text preset. Yo
 
 Step4 Go to Animation section and click on Advanced button. Change different parameters under Customize section such as Blue, Opacity, Shadow, and much more. You can create keyframes on the timeline like AE and edit parameters as per your preference.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add animation text in filmora](https://images.wondershare.com/filmora/article-images/2022/09/add-animation-text-in-filmora.jpg)
 
 ## Part 4\. Related FAQs of Title Effects in After Effects
@@ -258,3 +270,58 @@ Motion title is a dynamic text effect template available in After Effects throug
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-ultimate-guide-for-premiere-pro-full-screen-viewing/"><u>[Updated] The Ultimate Guide for Premiere Pro Full Screen Viewing</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-turbocharged-titans-compile-the-finest-srt-enhancements-for-pcs-and-macs/"><u>In 2024, Turbocharged Titans  Compile the Finest SRT Enhancements for PCs & Macs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-sharing-tunes-instagram-copyright-edicts/"><u>In 2024, Sharing Tunes  Instagram Copyright Edicts</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-tecno-pova-6-pro-5g-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Tecno Pova 6 Pro 5G To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-reverse-trick-in-android-filmmaking-for-2024/"><u>[New] The Reverse Trick in Android Filmmaking for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-10-leading-ai-named-generators-boosting-podcast-titles/"><u>[New] 10 Leading AI Named Generators  Boosting Podcast Titles</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-captivating-your-network-streamlining-content-via-wirecast-to-facebook-for-2024/"><u>[New] Captivating Your Network  Streamlining Content via Wirecast to Facebook for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-enhance-editing-efficiency-the-finest-text-plugins-for-ae/"><u>2024 Approved  Enhance Editing Efficiency  The Finest Text Plugins for AE</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-videography-space-on-128gb-technology/"><u>[Updated] In 2024, Videography Space on 128GB Technology</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/2024-approved-video-editing-on-a-budget-top-free-special-effects-apps-for-mobile/"><u>2024 Approved Video Editing on a Budget Top Free Special Effects Apps for Mobile</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-strategy-in-the-shopping-experience/"><u>[Updated] 2024 Approved  Strategy in the Shopping Experience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/top-tier-templates-for-zooid-introduction/"><u>Top-Tier Templates for Zooid Introduction</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-navigating-the-essence-of-photography-polarrs-edits-revealed-for-2024/"><u>[Updated] Navigating the Essence of Photography  Polarr’s Edits Revealed for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-crafting-your-dream-minecraft-house-with-ease/"><u>[Updated] In 2024, Crafting Your Dream Minecraft House with Ease</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-the-pinnacle-of-macro-photography-and-cinematography/"><u>In 2024, The Pinnacle of Macro Photography and Cinematography</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-comedy-in-code-transformative-steps-for-tailoring-gif-laughter/"><u>[New] Comedy in Code  Transformative Steps for Tailoring GIF Laughter</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-xsplit-index-download-and-evaluation-guide/"><u>In 2024, XSplit Index  Download & Evaluation Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/top-steadicams-for-exceptional-aerial-shots-with-drones/"><u>Top Steadicams for Exceptional Aerial Shots with Drones</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-breaking-down-sony-bdp-s6700-updates/"><u>In 2024, Breaking Down Sony BDP-S6700 Updates</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-superior-video-capture-leading-webcams-for-podcasts/"><u>In 2024, Superior Video Capture  Leading Webcams for Podcasts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-navigating-your-way-through-vr-headset-selection-is-the-mobile-experience-more-attractive-than-tethered-tech/"><u>2024 Approved  Navigating Your Way Through VR Headset Selection  Is the Mobile Experience More Attractive Than Tethered Tech?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/top-10-lightroom-alternatives-free-and-paid-filmora-for-2024/"><u>Top 10 Lightroom Alternatives [Free & Paid] | Filmora for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-elevating-visuals-with-acoustic-elements-for-2024/"><u>[Updated] Elevating Visuals with Acoustic Elements for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-top-notch-ae-extensions-selection-for-2024/"><u>[Updated] Top-Notch AE Extensions Selection for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-top-10-creative-overlays-for-video-content/"><u>[New] Top 10 Creative Overlays for Video Content</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-innovative-zooid-conceptual-models/"><u>In 2024, Innovative Zooid Conceptual Models</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-comedy-gold-examining-the-goofy-vhs-experience/"><u>In 2024, 'Comedy Gold'  Examining the Goofy VHS Experience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-top-10-mobile-photography-enhancers-ios-and-android-comparison/"><u>[New] Top 10 Mobile Photography Enhancers  IOS & Android Comparison</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-captivating-viewers-with-visuals-picture-upload-tips/"><u>In 2024, Captivating Viewers with Visuals  Picture Upload Tips</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-leading-hexa-flight-top-10-hexacopters/"><u>[Updated] In 2024, Leading Hexa-Flight  Top 10 Hexacopters</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-optimize-gmail-for-video-calls-with-effective-zoom-use/"><u>2024 Approved  Optimize Gmail for Video Calls with Effective Zoom Use</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-master-the-spectrum-advanced-hdr-tips-for-lightroom-pro/"><u>2024 Approved  Master the Spectrum  Advanced HDR Tips for Lightroom Pro</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-mastering-hashtags-for-six-figure-youtube-growth/"><u>2024 Approved  Mastering Hashtags for Six-Figure YouTube Growth</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/top-20-open-access-free-pubg-montages-for-2024/"><u>Top 20 Open Access, Free PUBG Montages for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-elevate-your-video-production-top-4k-video-editing-software/"><u>2024 Approved Elevate Your Video Production Top 4K Video Editing Software</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/best-3d-video-player-for-android/"><u>Best 3D Video Player for Android</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-ultimate-hd-encoding-devices-for-live-events/"><u>[New] Ultimate HD Encoding Devices for Live Events</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-essential-online-locations-for-promoting-youtube-content/"><u>[Updated] In 2024, Essential Online Locations for Promoting YouTube Content</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-from-catalina-to-big-sur-a-comprehensive-mac-os-shift-guide/"><u>[Updated] 2024 Approved  From Catalina to Big Sur  A Comprehensive Mac OS Shift Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-from-daily-use-to-extraordinary-experiences-phones-into-vr/"><u>In 2024, From Daily Use to Extraordinary Experiences  Phones Into VR</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-poco-c51-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Poco C51?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-top-tier-iphone-camera-apps-for-amateurs-and-experts-alike/"><u>[Updated] Top-Tier iPhone Camera Apps for Amateurs & Experts Alike</u></a></li>
+<li><a href="https://extra-support.techidaily.com/navigating-through-the-premier-10-image-stock-websites-for-2024/"><u>Navigating Through the Premier 10 Image Stock Websites for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-simplified-access-how-to-dive-into-youtube-comment-threads/"><u>[Updated] Simplified Access  How to Dive Into YouTube Comment Threads</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-remove-flashlight-from-iphone-12-pro-lock-screen-drfone-by-drfone-ios/"><u>In 2024, How To Remove Flashlight From iPhone 12 Pro Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-delving-into-filmoras-appeal-its-essential-10-features/"><u>[Updated] In 2024, Delving Into Filmora's Appeal  Its Essential 10 Features</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-ultimate-memory-upgrade-for-sony-a7c/"><u>[Updated] In 2024, Ultimate Memory Upgrade for Sony A7C</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-fabulous-critique-and-diverse-suggestions/"><u>[Updated] 2024 Approved  Fabulous Critique & Diverse Suggestions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-from-novice-to-pro-steps-in-online-streaming-for-2024/"><u>[Updated] From Novice to Pro  Steps in Online Streaming for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-metavision-uncovered-analyzing-6-compelling-metaverse-cases/"><u>[New] Metavision Uncovered  Analyzing 6 Compelling Metaverse Cases</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-ultimate-speed-loading-windows-photo-displayer/"><u>In 2024, Ultimate Speed-Loading Windows Photo Displayer</u></a></li>
+</ul></div>

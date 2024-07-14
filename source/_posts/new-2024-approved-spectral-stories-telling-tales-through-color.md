@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Spectral Stories  Telling Tales Through Color\""
-date: 2024-07-09T22:02:44.441Z
-updated: 2024-07-10T22:02:44.441Z
+date: 2024-07-13T20:21:03.585Z
+updated: 2024-07-14T20:21:03.585Z
 tags: 
   - screen-recording
   - ai video
@@ -62,6 +62,9 @@ Kindly see the details and steps on how to engage in color grading and color cor
 
 Then select the New Project to create a new project file and click Import to find and load your videos in local folders or portable media devices to the local media library. This software also allows you to add files with drag and drop. Then put them on the timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![put video to filmora cd](https://images.wondershare.com/filmora/article-images/2022/08/put-video-to-filmora-cd.jpg)
 
 ##### Step2There are 2 ways to color your video in Wondershare Filmora
@@ -72,6 +75,9 @@ Advanced Color Tools icon – click the Advanced Color Tools icon in the toolbar
 
 Color Panel Window - to perform color correction in Wondershare Filmora, switch to the Color tab. You can modify the white balance, saturation, tint, contrast, temperature, and brightness and apply 3D LUT immediately and quickly in this editing panel. You see the output in the Preview window.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![edit color grading video fx](https://images.wondershare.com/filmora/article-images/2022/08/edit-color-grading-video-fx.jpg)
 
 **Contrast**: is the variance in luminance or color that makes an object identifiable. By modifying this setting, control the dissimilarity in color and brightness in contrary parts of the video image.
@@ -102,10 +108,16 @@ First, you need to select the specific video portion you want to change the colo
 
 * And I selected the end portion of the video. After that, choose the part of the video.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![selected end portion video filmora](https://images.wondershare.com/filmora/article-images/2022/08/selected-end-portion-video-filmora.jpg)
 
 ##### Step3Apply the color correction preset that you want then click ok
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![apply color correction preset](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-correction-preset.jpg)
 
 You will notice that the color changes depending on your selected preset.
@@ -199,3 +211,51 @@ Overall, Color grading is the process of video editing to have an excellent look
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/updated-how-to-stream-on-mixer-macos/"><u>[Updated] How to Stream on Mixer MacOS</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-vs-video-edition-which-editor-wins-for-filmmaking-in-2024/"><u>[Updated] Vs. Video Edition  Which Editor Wins for Filmmaking, In 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-exploring-lgs-ultra-clear-4k-screen-capabilities/"><u>[Updated] In 2024, Exploring LG's Ultra-Clear 4K Screen Capabilities</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-turbocharge-fb-video-speed-selective-extensions-and-apps-guidebook-for-2024/"><u>[Updated] Turbocharge FB Video Speed  Selective Extensions & Apps Guidebook for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-leading-music-service-streaming-channels/"><u>2024 Approved  Leading Music Service Streaming Channels</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/guide-to-delivering-engaging-ppt-in-google-meet-mobiledesktop-for-2024/"><u>Guide to Delivering Engaging PPT in Google Meet (Mobile/Desktop) for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-transcribe-speech-to-text-seamlessly-using-words-tools-for-2024/"><u>[Updated] Transcribe Speech to Text Seamlessly Using Word's Tools for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-ultimate-resource-for-microsoft-azure-speech-services-for-2024/"><u>[Updated] The Ultimate Resource for Microsoft Azure Speech Services for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-inshot-showdown-expert-review-of-best-editing-software/"><u>In 2024, InShot Showdown  Expert Review of Best Editing Software</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-teaching-with-video-effective-editing-methods/"><u>[Updated] Teaching with Video  Effective Editing Methods</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-trouble-with-apple-iphone-6-plus-swipe-up-try-these-11-solutions-drfone-by-drfone-ios/"><u>In 2024, Trouble with Apple iPhone 6 Plus Swipe-Up? Try These 11 Solutions | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-xiaomi-redmi-12-screen-sharing-drfone-by-drfone-android/"><u>How To Do Xiaomi Redmi 12 Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-smart-buying-top-value-action-cam-models/"><u>In 2024, Smart Buying  Top Value Action Cam Models</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-costless-conundrum-of-final-cut-pro-access/"><u>[Updated] The Costless Conundrum of Final Cut Pro Access</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-mastering-movies-the-best-of-viral-tiktok-creations-top-10/"><u>[Updated] In 2024, Mastering Movies  The Best of Viral TikTok Creations (Top 10)</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-action-avalon-10-thrilling-titles-comparable-to-gta-v/"><u>[New] Action Avalon  10 Thrilling Titles Comparable To GTA V</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/discovering-the-top-free-hd-video-backdrop-archives-online-a-comprehensive-guide-for-2024/"><u>Discovering the Top Free HD Video Backdrop Archives Online (A Comprehensive Guide ) for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Motorola G54 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-mastering-pip-activatedeactivate-in-safari-on-apple-devices/"><u>[Updated] Mastering PIP  Activate/Deactivate in Safari on Apple Devices</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/cutting-edge-clarity-in-depth-analysis-of-asuss-mg28uq-monitor/"><u>Cutting-Edge Clarity  In-Depth Analysis of ASUS's MG28UQ Monitor</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-unveiling-the-art-of-discopf-making-your-virtual-self-shine-for-2024/"><u>[New] Unveiling the Art of DiscoPf  Making Your Virtual Self Shine for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-lightroom-guide-creating-and-merging-stunning-hdr-images/"><u>In 2024, Lightroom Guide  Creating & Merging Stunning HDR Images</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/giggle-factory-gratis-memo-makers-available-for-2024/"><u>Giggle Factory  Gratis Memo Makers Available for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-elevate-your-dating-game-with-cleverly-crafted-tinder-profiles/"><u>[Updated] In 2024, Elevate Your Dating Game with Cleverly Crafted Tinder Profiles</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-transfer-tactics-efficiently-getting-data-on-your-computer/"><u>2024 Approved  Transfer Tactics  Efficiently Getting Data On Your Computer</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-engaging-conversations-with-your-youtube-audience/"><u>In 2024, Engaging Conversations with Your YouTube Audience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-top-choices-for-professional-gopro-video-editing-for-2024/"><u>[Updated] Top Choices for Professional GoPro Video Editing for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-make-unforgettable-video-invitations-with-these-mobile-apps/"><u>Updated 2024 Approved Make Unforgettable Video Invitations with These Mobile Apps</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-poco-m6-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-superior-vector-file-polishing-for-2024/"><u>[Updated] Superior Vector File Polishing for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-whatsapp-wizardry-unveiling-the-ultimate-chat-strategies/"><u>2024 Approved  WhatsApp Wizardry  Unveiling the Ultimate Chat Strategies</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-sculpting-textures-creating-realistic-3d-effects-in-illustrator-for-2024/"><u>[Updated] Sculpting Textures  Creating Realistic 3D Effects in Illustrator for 2024</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/updated-in-2024-techniques-on-how-to-make-after-effects-2d-animation/"><u>Updated In 2024, Techniques on How to Make After Effects 2D Animation</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-tech-tips-streamlining-your-overwatch-video-recordings/"><u>[New] Tech Tips  Streamlining Your Overwatch Video Recordings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-discover-the-epic-android-video-editor-apps/"><u>[Updated] Discover the Epic Android Video Editor Apps</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-unlock-your-earning-potential-maximizing-youtube-revenue-on-mobile/"><u>2024 Approved  Unlock Your Earning Potential  Maximizing YouTube Revenue on Mobile</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-gopros-versatility-up-against-nikons-km-170/"><u>In 2024, GoPro's Versatility Up Against Nikon's KM-170</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-japanese-aesthetics-on-the-go-applying-anime-filters-to-snaps/"><u>[Updated] 2024 Approved  Japanese Aesthetics on the Go  Applying Anime Filters to Snaps</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/echo-of-tamil-syncing-songs-as-mobile-notifications/"><u>Echo of Tamil  Syncing Songs as Mobile Notifications</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-tutorial-for-downloading-movie-maker-6-on-windows/"><u>[Updated] In 2024, Tutorial for Downloading Movie Maker 6 on Windows</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-syncing-zen-and-zeal-elevating-youtube-livestreams-on-zoom/"><u>[Updated] Syncing Zen and Zeal  Elevating YouTube Livestreams on Zoom</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-from-bargain-hunting-to-video-glamour-editing-insights-for-hauls-for-2024/"><u>[Updated] From Bargain Hunting to Video Glamour  Editing Insights for Hauls for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/current-drone-applications-vs-future-technological-paradigm/"><u>Current Drone Applications vs Future Technological Paradigm</u></a></li>
+</ul></div>

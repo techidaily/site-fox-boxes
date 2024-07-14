@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unleash the Mixer in You  20 Free, Custom LUTs for DJI Minis & Airs for 2024\""
-date: 2024-06-17T13:24:41.792Z
-updated: 2024-06-18T13:24:41.792Z
+date: 2024-07-13T19:45:06.900Z
+updated: 2024-07-14T19:45:06.900Z
 tags: 
   - screen-recording
   - ai video
@@ -66,6 +66,9 @@ Sun Set
 
 When the drones zoom through the sky, the blue shade gives out reflective recordings. This blue space LUT fixes the errors in the captures and helps to assign the perfect color gradings as per the requirements. The clarity of the sky and other blue elements like water are well-edited using this LUT. The respective attributes related to the blue shades are available with these blue space effects.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Free DJI LUTs - Blue Space](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-5.jpg)
 
 Blue Space
@@ -74,6 +77,9 @@ Blue Space
 
 If you want your captures to take up the matte texture, then apply this effect without hesitation. It gives you quality outcomes and you will witness the matte finish on the media files. The color gradients are adjusted to reach the matte looks of the content.
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Free DJI LUTs - Matte](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-6.jpg)
 
 Matte
@@ -158,6 +164,9 @@ Price: $47.95
 
 This Cine collection LUTs is like the cinematic drone LUT with few changes in the setting related to the color gradients and brightness levels. This LUT optimizes the existing footage with its in-built effects to bring out the best in the recordings.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Paid DJI LUTs - Cine Collections](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-15.jpg)
 
 Cine Collections
@@ -212,6 +221,9 @@ Another pro pack adds extra effects to the footage, and you can use this LUT on 
 
 LUTS pro pack
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ### 10\. FPV Drone LUT
 
 Price: $10
@@ -265,3 +277,63 @@ Thus, you had an elaborate discussion on the DJI LUTS in detail, and you can use
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://android-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Oppo Find N3? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-learn-to-navigate-large-tiktok-files-editing-made-simple-and-swift/"><u>In 2024, Learn to Navigate Large TikTok Files  Editing Made Simple and Swift</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-final-cut-pro-transition-tips-3-essential-methods/"><u>New In 2024, Final Cut Pro Transition Tips 3 Essential Methods</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-tutorial-turning-on-hdr-for-windows-11-users-for-2024/"><u>[New] Tutorial  Turning on HDR for Windows 11 Users for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-open-source-musical-aid-for-playing-games/"><u>2024 Approved  Open Source Musical Aid for Playing Games</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-exclusive-guide-to-high-quality-audio-recording-on-windows-10-systems/"><u>In 2024, Exclusive Guide to High-Quality Audio Recording on Windows 10 Systems</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-a-step-by-step-approach-add-a-linked-url-to-your-tiktok-profile/"><u>2024 Approved  A Step-by-Step Approach  Add a Linked URL to Your TikTok Profile</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-vivo-s18e-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Vivo S18e? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/weaving-worthy-movie-openings-for-2024/"><u>Weaving Worthy Movie Openings for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-dissecting-shake-mitigation-is-it-vital-for-photoshop-users/"><u>[New] In 2024, Dissecting 'Shake' Mitigation - Is It Vital for Photoshop Users?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-visualizing-the-future-virtual-realities-explored-for-2024/"><u>[New] Visualizing the Future  Virtual Realities Explored for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/essential-list-top-16-best-free-video-viewers-for-2024/"><u>Essential List  Top 16 Best Free Video Viewers for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-step-by-step-tutorial-download-save-and-share-gifs-from-social-networks-like-fb/"><u>[New] In 2024, Step-by-Step Tutorial  Download, Save, and Share GIFs From Social Networks Like FB</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-snapchat-strategies-the-guide-to-biz-marketing-mastery/"><u>2024 Approved  Snapchat Strategies  The Guide to Biz Marketing Mastery</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-unleashing-the-power-of-free-copyright-free-image-repositories/"><u>In 2024, Unleashing the Power of Free, Copyright-Free Image Repositories</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/laugh-loom-imgur-memomaker/"><u>Laugh Loom  Imgur MemoMaker</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-the-art-of-friend-finding-topest-15-secure-apps-on-idevices-and-android-for-2024/"><u>Mastering the Art of Friend-Finding - Topest 15 Secure Apps on iDevices & Android for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-complete-guide-to-affordable-online-passport-photo-services/"><u>The Complete Guide to Affordable Online Passport Photo Services</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/cherished-holiday-hits-our-top-10-family-friendly-films-for-2024/"><u>Cherished Holiday Hits  Our Top 10 Family-Friendly Films for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-diving-deep-into-samsung-photo-enhancers-guide/"><u>[New] Diving Deep Into Samsung Photo Enhancers Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-transforming-srt-to-widely-used-digital-audio-formats-with-ease/"><u>2024 Approved  Transforming SRT to Widely Used Digital Audio Formats with Ease</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/vlc-slow-motion-tutorial-enhance-your-video-viewing-experience/"><u>VLC Slow Motion Tutorial Enhance Your Video Viewing Experience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-navigating-picture-landscapes-on-pexelscom/"><u>In 2024, Navigating Picture Landscapes on Pexels.com</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/vault-selection-for-top-corporate-use-for-2024/"><u>Vault Selection for Top Corporate Use for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/decoding-fast-forward-features-in-editing-software/"><u>Decoding Fast-Forward Features in Editing Software</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-selecting-the-ultimate-steadicams-for-flawless-dslr-shoots/"><u>[New] 2024 Approved  Selecting the Ultimate Steadicams for Flawless DSLR Shoots</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/smooth-sound-dissipation-a-pro-editors-manual/"><u>Smooth Sound Dissipation  A Pro Editor's Manual</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-hasty-hacks-for-enhancing-personal-movie-making/"><u>2024 Approved  Hasty Hacks for Enhancing Personal Movie Making</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-instant-charm-iphones-extended-shutter-showcase-for-2024/"><u>[New] Instant Charm  IPhone’s Extended Shutter Showcase for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-zte-axon-40-lite-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track ZTE Axon 40 Lite Location | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-dive-into-title-design-adding-insights-to-visual-content-via-windows-photos-app-for-2024/"><u>[New] Dive Into Title Design  Adding Insights to Visual Content via Windows Photos App for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-advanced-mobiles-for-crafting-perfect-dji-videos/"><u>[New] In 2024, Advanced Mobiles for Crafting Perfect DJi Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/arc-architect-suite-for-2024/"><u>Arc Architect Suite for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-innovative-choices-best-android-simulators-for-macpc-enthusiasts-for-2024/"><u>[Updated] Innovative Choices  Best Android Simulators for Mac/PC Enthusiasts for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-remarkable-effects-of-asmr-on-you/"><u>[Updated] The Remarkable Effects of ASMR on You</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-virtual-veracity-versus-physical-prowess-in-live-links/"><u>[New] In 2024, Virtual Veracity Versus Physical Prowess in Live Links</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-flavorful-footage-the-ultimate-guide-to-delicious-food-vids/"><u>[New] 2024 Approved  Flavorful Footage  The Ultimate Guide to Delicious Food Vids</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-insider-tips-skyrocketing-your-canva-experience/"><u>In 2024, Insider Tips  Skyrocketing Your Canva Experience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/video-integration-made-easy-building-dynamic-youtube-compilations/"><u>Video Integration Made Easy  Building Dynamic YouTube Compilations</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-pixel-perfect-photography-excelling-in-the-best-6-4k-dslrs/"><u>[New] In 2024, Pixel Perfect Photography  Excelling in the Best 6 4K DSLRs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-altvmix-cross-platform-virtual-mixer/"><u>[New] AltVMix  Cross-Platform Virtual Mixer</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-become-a-cartoon-star-best-apps-for-transforming-your-photos-on-iphone-and-android-for-2024/"><u>New Become a Cartoon Star Best Apps for Transforming Your Photos on iPhone and Android for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/premier-android-storage-in-the-clouds-list-for-2024/"><u>Premier Android Storage in the Clouds List for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-essential-tips-for-leveraging-azure-speech-to-text-service/"><u>[New] Essential Tips for Leveraging Azure Speech to Text Service</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-elevate-your-youtube-profitability-anywhere-anytime/"><u>[New] 2024 Approved  Elevate Your Youtube Profitability Anywhere, Anytime</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-unlocking-the-secrets-to-iphone-stellar-images/"><u>[Updated] Unlocking the Secrets to iPhone Stellar Images</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-achieving-video-excellence-yt-shorts-to-premium-mp4/"><u>[New] Achieving Video Excellence  YT Shorts to Premium MP4</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/expert-methods-for-incorporating-links-into-tiktok-bios/"><u>Expert Methods for Incorporating Links Into TikTok Bios</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/selecting-the-perfect-wedding-countdown-clock-for-android-and-ios-devices-for-2024/"><u>Selecting the Perfect Wedding Countdown Clock for Android & iOS Devices for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-best-3d-blu-ray-players/"><u>[Updated] 2024 Approved  Best 3D Blu-Ray Players</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-in-2024-15-free-cinematic-luts-for-your-film/"><u>New In 2024, 15 Free Cinematic LUTs for Your Film</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-premier-mac-programming-options-excluding-bandicam/"><u>[Updated] 2024 Approved  Premier Mac Programming Options Excluding Bandicam</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-guide-for-apple-iphone-14-lock-screen-by-drfone-ios/"><u>In 2024, Complete Guide For Apple iPhone 14 Lock Screen</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/in-2024-transform-your-footage-a-beginners-guide-to-gopro-quik-editing-on-macbook/"><u>In 2024, Transform Your Footage A Beginners Guide to GoPro Quik Editing on MacBook</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-dazzling-dynamics-the-essence-of-grading-aesthetics/"><u>2024 Approved  Dazzling Dynamics  The Essence of Grading Aesthetics</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/cutting-edge-tips-for-the-aspiring-gopro-4k-editor/"><u>Cutting-Edge Tips for the Aspiring GoPro 4K Editor</u></a></li>
+</ul></div>

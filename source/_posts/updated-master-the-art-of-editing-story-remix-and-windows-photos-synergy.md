@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Master the Art of Editing  Story Remix & Windows Photos Synergy\""
-date: 2024-06-17T14:25:41.878Z
-updated: 2024-06-18T14:25:41.878Z
+date: 2024-07-13T20:51:22.433Z
+updated: 2024-07-14T20:51:22.433Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,9 @@ thumbnail: https://thmb.techidaily.com/3a0ddaab1602f9aac9589130fbb24dc40e59a2711
 
 # How to Use Story Remix to Edit a Video in Windows 10 Photos
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -68,6 +71,9 @@ How to create a Story Remix project automatically –
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-name-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: How to create a Story Remix project from scratch
 
 Here is the guide –
@@ -81,6 +87,18 @@ Here is the guide –
 1. Hit on **Create video** afterwards.
 2. Now, you can preview, edit or share your video.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4: How to edit a Story Remix video
 
 Story Remix has 3 major sections namely, media bin consists of files already included in your card-based timeline and files that you chose in previous steps; preview section with recent changes and timeline shows the card with a running video; and the timeline having the option to drag and drop cards from the media bin.
@@ -159,6 +177,9 @@ If you want to edit video, we recommend [Wondershare Filmora](https://tools.tech
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -185,3 +206,60 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-immersive-tech-in-everyday-life-for-2024/"><u>[New] Immersive Tech in Everyday Life for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-meme-ology-manual-easy-ways-to-whip-up-giggles/"><u>[New] 2024 Approved  Meme-Ology Manual  Easy Ways to Whip Up Giggles</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-converting-images-into-harmonious-videography-for-2024/"><u>[New] Converting Images Into Harmonious Videography for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-switching-up-your-iphones-call-sound-effectively-for-2024/"><u>[Updated] Switching up Your iPhone's Call Sound Effectively for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/gmail-not-working-on-itel-p55plus-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Itel P55+ 7 Common Problems & Fixes | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-listeners-language-decoded-without-the-charge-for-2024/"><u>[Updated] Listeners' Language Decoded, Without the Charge for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-superior-card-selection-for-4k-edit-workstations/"><u>[New] Superior Card Selection for 4K Edit Workstations</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/budget-conscious-filmmakers-guide-to-360-cameras/"><u>Budget-Conscious Filmmakers' Guide to 360° Cameras</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-goofy-adventure-a-critical-appraisal-videotape-edition/"><u>[Updated] 'The Goofy Adventure' - A Critical Appraisal Videotape Edition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-magic-behind-the-lens-iphone-xs-groundbreayer-camera-tech-for-2024/"><u>The Magic Behind the Lens  IPhone X's Groundbreayer Camera Tech for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-step-by-step-approach-for-verifying-your-age-on-tiktok-for-2024/"><u>[Updated] Step-by-Step Approach for Verifying Your Age on TikTok for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-perfect-synchronization-enhancing-audio-visual-with-subtitles-in-wmp/"><u>2024 Approved  Perfect Synchronization  Enhancing Audio-Visual with Subtitles in WMP</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-a-closer-look-at-the-vivavideo-interface/"><u>[New] In 2024, A Closer Look at the VivaVideo Interface</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-track-apple-iphone-12-pro-max-location-by-number-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Track Apple iPhone 12 Pro Max Location by Number | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Tecno Spark Go (2023) | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-voice-yourself-audio-recording-on-windows-10/"><u>[Updated] Voice Yourself  Audio Recording on Windows 10</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-essential-techniques-for-audio-recording-on-modern-windows/"><u>[New] Essential Techniques for Audio Recording on Modern Windows</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-excellence-in-image-making-via-premium-grid-makers/"><u>2024 Approved  Excellence in Image Making via Premium Grid Makers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-complete-breakdown-hero4-black-functionality/"><u>[Updated] Complete Breakdown  Hero4 Black Functionality</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-million-viewer-milestone-unpacking-youtubes-revenue-formula/"><u>[Updated] Million-Viewer Milestone  Unpacking YouTube’s Revenue Formula</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-beginners-guide-to-solo-youtube-broadcasting-from-yourphone/"><u>[Updated] In 2024, Beginner's Guide to Solo YouTube Broadcasting From Yourphone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-premier-pro-templates-of-the-year-free-version/"><u>2024 Approved  Premier Pro Templates of the Year - Free Version</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/arcade-adventurers-approaches/"><u>ARCADE ADVENTURERS' APPROACHES</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-expertise-in-action-mastering-iphone-silhouette-art/"><u>2024 Approved  Expertise in Action  Mastering iPhone Silhouette Art</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-can-we-unlock-our-honor-x7b-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Honor X7b Phone Screen?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-navigating-the-world-of-vivacut-video-editing-insights-for-2024/"><u>[Updated] Navigating the World of VivaCut Video Editing - Insights for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-introductory-handbook-on-video-quality-and-size-for-2024/"><u>[New] Introductory Handbook on Video Quality and Size for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/in-2024-utilizing-mystery-and-intrigue-through-suspense-music-for-film-scoring-excellence/"><u>In 2024, Utilizing Mystery and Intrigue Through Suspense Music for Film Scoring Excellence</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-holiday-memories-revisited-summertimes-best-vacation-flicks/"><u>2024 Approved  Holiday Memories Revisited  Summertime’s Best Vacation Flicks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/revamping-virtual-communication-top-strategies-for-zoom-format-conversion/"><u>Revamping Virtual Communication  Top Strategies for Zoom Format Conversion</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-find-your-perfect-match-gear-vr-compatible-phones-2023/"><u>[Updated] 2024 Approved  Find Your Perfect Match  Gear VR-Compatible Phones 2023</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-quicktime-player-tutorial-speed-up-videos-on-windows-and-mac-computers-for-2024/"><u>Updated QuickTime Player Tutorial Speed Up Videos on Windows and Mac Computers for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-zooming-in-clearer-faces-better-discussions/"><u>2024 Approved  Zooming In  Clearer Faces, Better Discussions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-attention-magnet-article-initiator-for-2024/"><u>[Updated] Attention Magnet  Article Initiator for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instas-power-players-a-guide-to-your-niches-movers-and-shakers/"><u>[Updated] In 2024, Insta’s Power Players  A Guide to Your Niche's Movers & Shakers</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-effective-strategies-to-log-your-google-voice-talks/"><u>[Updated] In 2024, Effective Strategies to Log Your Google Voice Talks</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-2024-approved-how-to-create-funny-talking-avatars-using-oddcast-text-to-speech/"><u>Updated 2024 Approved How to Create Funny Talking Avatars Using Oddcast Text to Speech</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/perfecting-pixels-lighting-setup-secrets-unveiled-for-2024/"><u>Perfecting Pixels  Lighting Setup Secrets Unveiled for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/humor-haven-the-ultimate-choice-of-memer-text-tools/"><u>Humor Haven  The Ultimate Choice of Memer Text Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-unlocking-64128gbs-full-potential-for-video-storing/"><u>[New] 2024 Approved  Unlocking 64/128GB's Full Potential for Video Storing</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-from-snapshot-to-success-an-in-depth-video-guide-for-youtube-photos/"><u>[New] In 2024, From Snapshot to Success  An In-Depth Video Guide for YouTube Photos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-important-measures-to-adapt-music-tempoplay-on-spotify/"><u>[New] In 2024, Important Measures to Adapt Music Tempoplay on Spotify</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unmatched-mounting-premier-photos-tripods-for-2024/"><u>Unmatched Mounting  Premier Photos Tripods for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/replace-missing-watch-playback-icons-for-2024/"><u>Replace Missing Watch Playback Icons for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/expert-tips-for-snagging-superior-pixels-without-spending/"><u>Expert Tips for Snagging Superior Pixels Without Spending</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-paving-your-way-to-cost-savvy-cloud-choices/"><u>[New] Paving Your Way to Cost-Savvy Cloud Choices</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-digital-dissection-the-vll-review-process/"><u>[Updated] Digital Dissection  The VLL Review Process</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-opening-and-managing-srt-files-seamlessly-for-2024/"><u>[New] Opening and Managing SRT Files Seamlessly for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/turn-any-video-into-a-paper-rip-effect-with-filmora-for-2024/"><u>Turn Any Video Into a Paper Rip Effect with Filmora for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-captivating-comedy-crafted-step-by-step-meme-tutorial/"><u>[Updated] 2024 Approved  Captivating Comedy Crafted  Step-by-Step Meme Tutorial</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-starting-an-online-platform-for-consumer-goods-reviews/"><u>[New] In 2024, Starting an Online Platform for Consumer Goods Reviews</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-top-fun-girl-games-for-kids/"><u>In 2024, Top Fun Girl Games for Kids</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/streamlined-process-chromeandroidios-tiktok-posting-for-2024/"><u>Streamlined Process  Chrome/Android/iOS TikTok Posting for 2024</u></a></li>
+</ul></div>

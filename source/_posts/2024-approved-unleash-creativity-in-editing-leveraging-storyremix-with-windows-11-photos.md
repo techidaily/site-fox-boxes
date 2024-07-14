@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unleash Creativity in Editing  Leveraging StoryRemix with Windows 11 Photos\""
-date: 2024-07-09T22:37:09.174Z
-updated: 2024-07-10T22:37:09.174Z
+date: 2024-07-13T21:21:05.354Z
+updated: 2024-07-14T21:21:05.354Z
 tags: 
   - screen-recording
   - ai video
@@ -68,6 +68,9 @@ How to create a Story Remix project automatically –
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-name-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ## Part 3: How to create a Story Remix project from scratch
 
 Here is the guide –
@@ -102,8 +105,14 @@ While adding media to the timeline in Story Mix, you will see that there is a de
 
 Tap the ‘Duration’ button > pick another value or manually set the seconds.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-duration-min.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Adding custom text
 
 1. Choose card from timeline, click ‘Text’ and feed the custom text in the box located at right side. You can simply use animated text styles too.
@@ -117,6 +126,9 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 1. Firstly, choose the content from the timeline and hit on ‘Motion’. Now, select camera motion style from ‘Zoom in center’/’Zoom in right’/’Pan left’/’Tilt up’ etc.
 2. Preview the changes and click ‘Done’.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-motion-min.jpg)
 
 ### Trimming video clips
@@ -185,3 +197,47 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-vivo-y78plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Vivo Y78+ | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-extended-review-easy-dynamic-range-explained/"><u>2024 Approved  Extended Review  Easy Dynamic Range Explained</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-leading-5-display-choices-for-ps5-gamers/"><u>2024 Approved  Leading 5 Display Choices for PS5 Gamers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-cutting-edge-camera-list-best-videography-devices-of-the-year/"><u>2024 Approved  Cutting-Edge Camera List  Best Videography Devices of the Year</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-inspire-business-identity-utilize-free-logo-templates-and-modify-endlessly/"><u>2024 Approved  Inspire Business Identity  Utilize Free Logo Templates & Modify Endlessly</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-how-to-completely-remove-your-instagram-footprint-forever/"><u>[Updated] In 2024, How to Completely Remove Your Instagram Footprint Forever</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-crafting-memorable-titles-a-comprehensible-ae-approach/"><u>[Updated] In 2024, Crafting Memorable Titles  A Comprehensible AE Approach</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-perfecting-the-art-of-hd-broadcasting-on-facebookshiftscreenresolution/"><u>[New] 2024 Approved  Perfecting the Art of HD Broadcasting on Facebook'shift_screen_resolution</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-visual-vistas-essential-effects-for-striking-snaps-for-2024/"><u>[Updated] Visual Vistas  Essential Effects for Striking Snaps for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-innovative-approach-to-hdr-portraiture-excellence/"><u>2024 Approved  Innovative Approach to HDR Portraiture Excellence</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-capturing-magic-in-motion-a-guide-to-hero5-timelapses/"><u>2024 Approved  Capturing Magic in Motion  A Guide to Hero5 Timelapses</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-detailed-guide-to-mastering-recordings-with-audacity/"><u>2024 Approved  Detailed Guide to Mastering Recordings with Audacity</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-giggle-grid-curated-list-of-uproarious-ringtone-sites/"><u>2024 Approved  Giggle Grid  Curated List of Uproarious Ringtone Sites</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-from-laggard-to-lightning-pick-8-apps-now/"><u>2024 Approved  From Laggard to Lightning  Pick 8 Apps Now</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-camera-confusion-no-video-display-issue/"><u>2024 Approved  Camera Confusion  No Video Display Issue</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-guide-to-easy-content-making-10-basic-youtube-videos/"><u>[Updated] The Ultimate Guide to Easy Content  Making 10 Basic YouTube Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-lullabies-of-relaxation-prime-asmr-talents/"><u>2024 Approved  Lullabies of Relaxation  Prime ASMR Talents</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-free-logo-blueprints-to-refine-and-personalize-your-symbol/"><u>2024 Approved  Free Logo Blueprints to Refine and Personalize Your Symbol</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-melody-match-maker-audio-ambience-for-videos/"><u>[Updated] Melody Match-Maker  Audio Ambience For Videos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-how-to-record-skype-video-and-audio-calls-on-windows-and-mac-10-ways/"><u>[New] In 2024, How to Record Skype Video & Audio Calls on Windows & Mac [10 Ways]</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-reigning-reddit-stars-10-all-time-favorites/"><u>2024 Approved  Reigning Reddit Stars  10 All-Time Favorites</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-visual-storytelling-on-facebook-crafting-compelling-slideshows/"><u>[New] 2024 Approved  Visual Storytelling on Facebook  Crafting Compelling Slideshows</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-elite-unmanned-aerial-vehicles-up-for-grabs/"><u>2024 Approved  Elite Unmanned Aerial Vehicles Up for Grabs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-capture-edit-and-enhance-a-novices-journey-with-lunapic/"><u>2024 Approved  Capture, Edit & Enhance  A Novice's Journey with LunaPic</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/cross-social-video-broadcasting-from-twitter-to-snapchat/"><u>Cross-Social Video Broadcasting  From Twitter, To Snapchat</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-become-a-sound-design-wizard-easy-steps-for-tiktok-vocal-alteration/"><u>2024 Approved  Become a Sound Design Wizard  Easy Steps for TikTok Vocal Alteration</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-capturing-stories-the-best-cinematographic-techniques/"><u>2024 Approved  Capturing Stories  The Best Cinematographic Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-creating-soft-music-endings-in-adobe-premiere-video-editing/"><u>2024 Approved  Creating Soft Music Endings in Adobe Premiere Video Editing</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-elite-5-background-swap-apps-compatible-with-iphones-x-7-8/"><u>2024 Approved  Elite 5 Background Swap Apps Compatible with iPhones (X, 7, 8)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-cutting-edge-subtitling-solutions-the-ultimate-top-10-list-online/"><u>2024 Approved  Cutting-Edge Subtitling Solutions  The Ultimate Top 10 List (Online)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-beyond-zoom-the-intricacies-of-iphone-xs-lens-tech/"><u>2024 Approved  Beyond Zoom  The Intricacies of iPhone X's Lens Tech</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-first-rate-6-software-for-visual-text-conversion/"><u>2024 Approved  First-Rate 6 Software for Visual Text Conversion</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-mastering-choice-optimal-free-srt-translation-services/"><u>2024 Approved  Mastering Choice  Optimal Free SRT Translation Services</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-revolutionizing-home-cinema-latest-on-samsungs-ubd-k850u/"><u>In 2024, Revolutionizing Home Cinema  Latest on Samsung’s UBD-K850U</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-top-10-non-youtube-video-platforms-for-iphone-and-android-enthusiasts/"><u>In 2024, Top 10 Non-YouTube Video Platforms for iPhone & Android Enthusiasts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-how-to-take-long-exposure-shots-with-iphone-in-ios-11-or-previous/"><u>2024 Approved  How to Take Long Exposure Shots with iPhone in iOS 11 or Previous</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-how-to-make-reels-on-instagram/"><u>2024 Approved  How to Make Reels on Instagram</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-leading-voice-to-text-programs/"><u>2024 Approved  Leading Voice to Text Programs</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/hp-officejet-pro-8600-printer-software-for-windows/"><u>HP OfficeJet Pro 8600 Printer Software for Windows</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-streamlining-remote-recordings-a-producers-guide/"><u>[New] In 2024, Streamlining Remote Recordings  A Producer’s Guide</u></a></li>
+</ul></div>

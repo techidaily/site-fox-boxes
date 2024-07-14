@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Elevate Your Typography with Affects' Best-in-Class Plug-Ins\""
-date: 2024-06-17T13:28:52.425Z
-updated: 2024-06-18T13:28:52.425Z
+date: 2024-07-13T19:49:33.427Z
+updated: 2024-07-14T19:49:33.427Z
 tags: 
   - screen-recording
   - ai video
@@ -60,6 +60,9 @@ Font Manager is an After Effects text plugin that is useful when creating and wo
 
 ![font manager plugin](https://images.wondershare.com/filmora/article-images/2022/07/font-manager-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cartoon Moblur
 
 Link: <https://www.toolfarm.com/buy/plugin%5Feverything%5Fcartoon%5Fmoblur>
@@ -82,6 +85,9 @@ This is a bundle of more than 80 different templates to add text effects to any 
 
 ![texts animation bundle plugin](https://images.wondershare.com/filmora/article-images/2022/07/texts-animation-bundle-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Artificial Intelligence Titles
 
 Link: <https://videohive.net/item/ait-artificial-intelligence-titles/22124640?s%5Frank=1>
@@ -90,12 +96,27 @@ The Artificial Intelligence Titles is an After Effects text plugin that is desig
 
 ![artificial intelligence titles plugin](https://images.wondershare.com/filmora/article-images/2022/07/artificial-intelligence-titles-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Text Library
 
 Link: <https://videohive.net/item/text-library-handy-text-animations/21932974>
 
 This is another great text animation bundle with different options for just about any kind of project. But unlike other plugin bundles that only have a few effects to choose from, Text Library has thousands of templates to choose from. Once you have selected the template that you would like to use, you also get the option to customize the template to suit your project. You can customize the text, size, duration of the animation, and color. It is easy to use and is constantly updated to introduce even more templates with each update.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![text library plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-library-plugin.jpg)
 
 ## Conclusion
@@ -131,3 +152,53 @@ On its own After Effects comes with so many post-production effects and features
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/2024-approved-photoshop-basics-for-beginners-10-must-know-tricks/"><u>2024 Approved  Photoshop Basics for Beginners  10 Must-Know Tricks</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-the-premier-webcam-lineup-for-next-gen-windows-pcs/"><u>[Updated] 2024 Approved  The Premier Webcam Lineup for Next-Gen Windows PCs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-harness-the-power-of-dual-screen-on-apple-devices-via-safari/"><u>2024 Approved  Harness the Power of Dual Screen on Apple Devices via Safari</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-jubilant-join-and-disconnect-protocols/"><u>[New] In 2024, Jubilant Join & Disconnect Protocols</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-from-zte-nubia-flip-5g-by-drfone-android/"><u>How to Bypass FRP from ZTE Nubia Flip 5G?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-best-practices-for-drone-cinematography/"><u>2024 Approved  Best Practices for Drone Cinematography</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-macbook-air-vs-pro-evaluating-the-m1-advantage/"><u>[New] In 2024, MacBook Air Vs. Pro  Evaluating the M1 Advantage</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-prime-naturalist-screen-recording-systems-explained/"><u>[Updated] 2024 Approved  Prime Naturalist Screen Recording Systems Explained</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-the-visual-advantage-how-to-use-aspect-ratios-to-boost-your-social-media-presence-for-2024/"><u>Updated The Visual Advantage How to Use Aspect Ratios to Boost Your Social Media Presence for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-harness-freedom-with-top-rated-android-editing-apps/"><u>[Updated] 2024 Approved  Harness Freedom with Top-Rated Android Editing Apps</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-restoring-iphone-xs-trust-reviving-biometric-lock/"><u>2024 Approved  Restoring iPhone X's Trust  Reviving Biometric Lock</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-exclusive-catalog-budget-friendly-image-treasuries-online/"><u>In 2024, Exclusive Catalog  Budget-Friendly Image Treasuries Online</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-embark-on-elevating-voice-startup-steps-for-an-engaging-product-vlog-channel/"><u>2024 Approved  Embark on Elevating Voice  Startup Steps for an Engaging Product Vlog Channel</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-transition-tactics-for-a-hassle-free-macos-11-big-sur-upgrade/"><u>[New] 2024 Approved  Transition Tactics for a Hassle-Free macOS 11 Big Sur Upgrade</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-7-plus-to-other-iphone-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 7 Plus To Other iPhone devices? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/explore-the-best-iphone-vr-games-today-for-2024/"><u>Explore the Best iPhone VR Games Today for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/aerial-capture-face-off-dji-mavic-2-vs-hero6-black-for-2024/"><u>Aerial Capture Face-Off  DJi Mavic 2 vs Hero6 Black for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-stream-control-duo-deciding-between-xsplit-and-obs-tech/"><u>In 2024, Stream Control Duo  Deciding Between XSplit and OBS Tech</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/professionals-guide-to-top-10-fcp-tools/"><u>Professional's Guide to Top 10 FCP Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-discover-the-premier-5-ios-podcast-clients/"><u>2024 Approved  Discover the Premier 5 iOS Podcast Clients</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-playbook-to-create-compelling-youtube-educational-videos-for-2024/"><u>The Ultimate Playbook to Create Compelling YouTube Educational Videos for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-skyline-scanning-smartphone-panorama-techniques-for-2024/"><u>[New] Skyline Scanning  Smartphone Panorama Techniques for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-insiders-guide-to-the-vr-lexicon-essentials/"><u>[New] In 2024, Insider's Guide to the VR Lexicon Essentials</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-explore-the-best-kept-secrets-ios-10-best-no-cost-collages-and-edits/"><u>[New] 2024 Approved  Explore the Best-Kept Secrets  IOS' 10 Best, No-Cost Collages & Edits</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-ultimate-backdrop-choices-for-streamers/"><u>[New] 2024 Approved  Ultimate Backdrop Choices for Streamers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-stellar-stories-celebrating-youtubes-best-narratives/"><u>[New] In 2024, Stellar Stories  Celebrating YouTube's Best Narratives</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-essential-e-steps-your-pathway-from-preparation-to-production-in-a-reviews-channel/"><u>[New] The Essential E-Steps  Your Pathway From Preparation to Production in a Reviews Channel</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-top-offline-speech-to-text-transcription-apps/"><u>[New] In 2024, Top Offline Speech-to-Text Transcription Apps</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oppo-reno-11-5g-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Oppo Reno 11 5G to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/laugh-labs-free-comedy-creation-for-creative-souls/"><u>Laugh Labs  Free Comedy Creation for Creative Souls</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-pioneering-the-future-of-aerial-film-craftsmanship/"><u>[New] In 2024, Pioneering the Future of Aerial Film Craftsmanship</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-hourly-headliners-the-leading-yt-videos-in-the-last-24-hours/"><u>[Updated] Hourly Headliners  The Leading YT Videos in the Last 24 Hours</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-best-zero-fee-technique-for-pixel-perfection/"><u>[New] 2024 Approved  Best Zero-Fee Technique for Pixel Perfection</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-enhancing-media-workflow-the-rise-of-magix-vpx/"><u>In 2024, Enhancing Media Workflow  The Rise of Magix VPX</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-deciphering-hand-tracking-methodologies/"><u>In 2024, Deciphering Hand Tracking Methodologies</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-spark-engagement-the-ultimate-list-of-video-text-effects/"><u>[Updated] Spark Engagement  The Ultimate List of Video Text Effects</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-journey-through-time-the-best-history-yt-channels-ranked-1-10/"><u>In 2024, Journey Through Time  The Best History YT Channels Ranked #1-10</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-vida-reimagined-editing-revolution-unveiled/"><u>2024 Approved  Vida Reimagined  Editing Revolution Unveiled</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-unveiling-vrs-elite-accessories-top-10/"><u>[New] In 2024, Unveiling VR's Elite Accessories (Top 10)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-visualize-images-mastering-photo-editing-tools/"><u>[Updated] Visualize Images  Mastering Photo Editing Tools</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-iphone-14-plus-screen-lock-without-losing-data-by-drfone-ios-unlock-ios-unlock/"><u>How to unlock iPhone 14 Plus screen lock without losing data?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-top-tier-funny-editing-tool-for-2024/"><u>[Updated] Top-Tier Funny Editing Tool for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-15-apps-to-hack-wifi-password-on-zte-nubia-flip-5g-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On ZTE Nubia Flip 5G</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/capturing-purity-best-sound-for-podcasts/"><u>Capturing Purity  Best Sound for Podcasts</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-pathway-to-preserving-instagram-content-via-desktop-platforms/"><u>[New] 2024 Approved  The Pathway to Preserving Instagram Content via Desktop Platforms</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-top-picks-8-superior-5k-computer-monitors/"><u>In 2024, Top Picks  8 Superior 5K Computer Monitors</u></a></li>
+</ul></div>

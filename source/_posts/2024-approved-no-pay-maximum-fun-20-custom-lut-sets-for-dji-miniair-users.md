@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  No Pay, Maximum Fun  20 Custom LUT Sets for DJI Mini/Air Users\""
-date: 2024-07-09T22:29:53.718Z
-updated: 2024-07-10T22:29:53.718Z
+date: 2024-07-13T21:20:07.235Z
+updated: 2024-07-14T21:20:07.235Z
 tags: 
   - screen-recording
   - ai video
@@ -46,6 +46,9 @@ This LUT focus on the original displays of the aerial space in the recordings. I
 
 Aerial Sky
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Vibrance Colors
 
 The Vibrance Colors LUT impacts the recording in the DJI drone, and the captured content takes a new look using this LUT effect. The Vibrance LUT increases the intensity of the dark colors using color grading techniques, and the brightness level is optimized to reveal the exact color of the recorded content.
@@ -62,6 +65,9 @@ This LUT suits well for outdoor recordings during the dawn, and it is the time w
 
 Sun Set
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. Blue Space
 
 When the drones zoom through the sky, the blue shade gives out reflective recordings. This blue space LUT fixes the errors in the captures and helps to assign the perfect color gradings as per the requirements. The clarity of the sky and other blue elements like water are well-edited using this LUT. The respective attributes related to the blue shades are available with these blue space effects.
@@ -158,6 +164,9 @@ Price: $47.95
 
 This Cine collection LUTs is like the cinematic drone LUT with few changes in the setting related to the color gradients and brightness levels. This LUT optimizes the existing footage with its in-built effects to bring out the best in the recordings.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Paid DJI LUTs - Cine Collections](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-15.jpg)
 
 Cine Collections
@@ -212,6 +221,9 @@ Another pro pack adds extra effects to the footage, and you can use this LUT on 
 
 LUTS pro pack
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 10\. FPV Drone LUT
 
 Price: $10
@@ -265,3 +277,65 @@ Thus, you had an elaborate discussion on the DJI LUTS in detail, and you can use
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-content-creator.techidaily.com/in-2024-make-a-lasting-impression-6-best-movie-intro-creation-tools/"><u>In 2024, Make a Lasting Impression 6 Best Movie Intro Creation Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-customizing-windows-photos-to-enjoy-music-on-every-picture/"><u>[Updated] In 2024, Customizing Windows Photos to Enjoy Music on Every Picture</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-subtlety-in-volume-the-ableton-way/"><u>[New] Subtlety in Volume  The Ableton Way</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astering-video-content-defeating-10-vlogging-hurdles-for-2024/"><u>[New] Mastering Video Content  Defeating 10 Vlogging Hurdles for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unveiling-costless-creativity-a-deep-dive-into-best-luts/"><u>[New] Unveiling Costless Creativity  A Deep Dive Into Best LUTs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/step-into-the-realm-of-3d-graffiti-a-guide-to-10-exceptional-websites/"><u>Step Into the Realm of 3D Graffiti  A Guide to 10 Exceptional Websites</u></a></li>
+<li><a href="https://extra-information.techidaily.com/how-to-make-your-linkedin-profile-professional/"><u>How To Make Your LinkedIn Profile Professional</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-mastering-windows-11-photo-app-stability-troubleshooting-for-2024/"><u>[New] Mastering Windows 11 Photo App Stability Troubleshooting for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-top-subtitle-editors-for-mac-best-alternatives-to-subtitle-edit/"><u>New 2024 Approved Top Subtitle Editors for Mac Best Alternatives to Subtitle Edit</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-top-5-economical-game-ready-keyboards/"><u>2024 Approved  Top 5 Economical Game-Ready Keyboards</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/1715860743232-new-essential-mac-screen-recorders-top-10-free-list/"><u>[New] Essential Mac Screen Recorders – Top 10 FREE List!</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-precise-methods-for-creating-impactful-client-spots-on-film/"><u>[New] Precise Methods for Creating Impactful Client Spots on Film</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/unmasking-instagrams-unnoticed-capabilities/"><u>Unmasking Instagram’s Unnoticed Capabilities</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-easy-editing-unlimited-canon-lut-choices-for-2024/"><u>[New] Easy Editing - Unlimited Canon LUT Choices for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-enhanced-color-and-contrast-why-hdr-outshines-sdr/"><u>[Updated] 2024 Approved  Enhanced Color and Contrast  Why HDR Outshines SDR</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-transformative-tinsel-a-journey-from-box-to-joy-for-2024/"><u>[New] Transformative Tinsel  A Journey From Box to Joy for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-subtle-art-of-easing-audio-intensity-garageband-for-2024/"><u>The Subtle Art of Easing Audio Intensity (Garageband) for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/in-2024-tiktok-video-reversal-the-complete-guide-for-creators-updated-2023/"><u>In 2024, TikTok Video Reversal The Complete Guide for Creators Updated 2023</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-infinix-smart-7-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Infinix Smart 7</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-the-fastest-way-to-determine-twitter-video-aspect-ratios-for-2024/"><u>New The Fastest Way to Determine Twitter Video Aspect Ratios for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-unmatched-editing-apps-to-enhance-webcam-content/"><u>[New] In 2024, Unmatched Editing Apps to Enhance Webcam Content</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-cropping-photos-why-does-imovie-adjust-video-sizes-in-2024/"><u>[New] Cropping Photos  Why Does iMovie Adjust Video Sizes, In 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-ultimate-guide-to-no-cost-high-quality-srt-editors/"><u>[Updated] In 2024, The Ultimate Guide to No-Cost, High-Quality Srt Editors</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-high-end-camcorders-reviewed-top-15/"><u>[New] High-End Camcorders Reviewed  Top 15</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/tap-into-the-rhythm-web-free-and-comprehensive-for-2024/"><u>Tap Into the Rhythm Web (FREE & Comprehensive) for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-prime-listings-photoplustune-recording-software-innovations-for-2024/"><u>[New] Prime Listings  Photo+Tune Recording Software Innovations for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-sound-convergence-10-premier-blenders-for-podcasters/"><u>[New] Sound Convergence  10 Premier Blenders for Podcasters</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-achieve-social-stardom-essential-tips-for-thriving-instagram-unboxings/"><u>2024 Approved  Achieve Social Stardom  Essential Tips for Thriving Instagram Unboxings</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-2024-approved-step-by-step-guide-to-attending-live-showcases-on-tiktok/"><u>[New] 2024 Approved  Step-by-Step Guide to Attending Live Showcases on TikTok</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-top-10-innovations-in-social-media-tiktok-advertising/"><u>[New] Top 10 Innovations in Social Media TikTok Advertising</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-motorola-edge-40-pro-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Motorola Edge 40 Pro Without Volume Buttons | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-the-ultimate-ringers-guide-shaping-iphone-sounds/"><u>[Updated] 2024 Approved  The Ultimate Ringer's Guide  Shaping iPhone Sounds</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/streaming-success-implementing-green-screen-innovations/"><u>Streaming Success  Implementing Green Screen Innovations</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-audio-enhancement-strategies-using-premiere-pro/"><u>[New] In 2024, Audio Enhancement Strategies Using Premiere Pro</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-building-a-competitive-advantage-through-in-depth-industry-analysis/"><u>[New] Building a Competitive Advantage Through In-Depth Industry Analysis</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-5-ultimate-platforms-for-high-quality-text-embellishments/"><u>[New] In 2024, 5 Ultimate Platforms for High-Quality Text Embellishments</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/tricks-and-secrets-for-gaining-more-likes-in-tiktok-unboxings-for-2024/"><u>Tricks & Secrets for Gaining More 'Likes' In TikTok Unboxings for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-top-websites-aimed-at-enhancing-text-appearance/"><u>[New] In 2024, Top Websites Aimed at Enhancing Text Appearance</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-acclaimed-ideas-top-tone-creators-for-apple-phones/"><u>[New] In 2024, Acclaimed Ideas  Top Tone Creators for Apple Phones</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-streamline-live-tv-capture-in-windows-free-methods-for-2024/"><u>[New] Streamline Live TV Capture in Windows (Free Methods) for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-crafting-professional-broadcasts-mastering-obs-plus-zoom-techniques/"><u>[New] 2024 Approved  Crafting Professional Broadcasts  Mastering OBS + Zoom Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-instagrams-sideways-video-phenomenon-investigation-required/"><u>[Updated] In 2024, Instagram's Sideways Video Phenomenon - Investigation Required</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/step-by-step-guide-to-hilarious-memes/"><u>Step-by-Step Guide to Hilarious Memes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-discover-10-premier-stock-source-for-vectors/"><u>[Updated] In 2024, Discover 10 Premier Stock Source for Vectors</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-creative-command-center-studio-for-youtubers/"><u>In 2024, Creative Command Center  Studio for YouTubers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-crafting-compelling-podcast-imagery-fundamental-tips/"><u>[Updated] In 2024, Crafting Compelling Podcast Imagery  Fundamental Tips</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-nubia-z50-ultra-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Nubia Z50 Ultra Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unlock-professional-subtitle-transformation-at-zero-price/"><u>[New] Unlock Professional Subtitle Transformation at Zero Price</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-top-10-invisible-observers-of-instagram-stories/"><u>[Updated] In 2024, Top 10 Invisible Observers of Instagram Stories</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-sound-communication-on-whatsapp/"><u>2024 Approved  Mastering Sound Communication on WhatsApp</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-do-reviewers-receive-payments-online-for-2024/"><u>[Updated] Do Reviewers Receive Payments Online for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-price-scale-for-shooting-tunes-in-visual-narratives/"><u>[New] In 2024, Price Scale for Shooting Tunes in Visual Narratives</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-intuitive-audio-fading-strategies-with-garageband/"><u>[Updated] Intuitive Audio Fading Strategies with Garageband</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-chuckles-and-chortles-reviewing-the-goofy-movie-on-vhs/"><u>[New] In 2024, 'Chuckles and Chortles' - Reviewing The Goofy Movie on VHS</u></a></li>
+<li><a href="https://techidaily.com/three-methods-to-recover-lost-data-on-realme-12-proplus-5g-by-fonelab-android-recover-data/"><u>Three methods to recover lost data on Realme 12 Pro+ 5G</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-resolve-your-apple-iphone-12-pro-max-keeps-asking-for-outlook-password-drfone-by-drfone-ios/"><u>In 2024, Resolve Your Apple iPhone 12 Pro Max Keeps Asking for Outlook Password | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-iphone-guide-jpegpng-to-pdf-conversion-techniques/"><u>[New] In 2024, IPhone Guide  JPEG/PNG to PDF Conversion Techniques</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-perfecting-the-art-of-quiet-videography/"><u>[Updated] Perfecting the Art of Quiet Videography</u></a></li>
+</ul></div>

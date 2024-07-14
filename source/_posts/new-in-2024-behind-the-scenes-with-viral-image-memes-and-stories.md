@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Behind the Scenes with Viral Image Memes & Stories"
-date: 2024-06-17T14:30:29.251Z
-updated: 2024-06-18T14:30:29.251Z
+date: 2024-07-13T20:57:03.095Z
+updated: 2024-07-14T20:57:03.095Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,9 @@ Since 2011, Hide the Pain Harold continues to rank as one of the world's most po
 
 According to Andras, Hide the Pain Harold results from his vacation in Turkey. A professional photographer contacted him to do stock image modeling. During the shoot, the photographer kept telling him to smile, resulting in some photos of Andras appearing to force a smile. This expression led to netizens using his image to express situations where the forced smile is masking your true feelings.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![do stock image modeling](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-3.jpg)
 
 Currently, Hide the Pain Harold has over 300,000 followers across all platforms. In addition, Hide the pain Harold has an official Facebook and Know Your Meme page that features the most popular versions of the stock image meme.
@@ -51,6 +54,9 @@ Another popular stock image meme is Distracted Boyfriend. It features the stock 
 
 The original photo is the work of Antonio Guillem, who uploaded it on iStock in November 2015\. Initially, the photo was labeled as a lisloyal man with his girlfriend looking at another girl and required purchasing the proper license to use it.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![original photo](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-5.jpg)
 
 According to Meme Documentation, the first version of the Distracted boyfriend theme dates back to January 2017\. Prog Snob, a Turkish progressive rock group on Facebook, posted the meme on their page to reference Phil Collin's distraction from progressive rock by pop music. However, it was the August 2017 Twitter version referencing the youth's feelings towards capitalism and socialism that went viral.
@@ -68,6 +74,9 @@ The latest version of Distracted boyfriend is a compilation of photos featuring 
 
 In addition, Antonio Guillem also has a stock image meme where the roles are reversed. The meme was later posted on Reddit underneath the original and received over 25,600 points in 24 hours.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part3: I Bet He's Thinking About Other Women
 
 ![meme features](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-7.jpg)
@@ -125,17 +134,20 @@ This is because not all stock photo providers offer their images with a creative
 
 Yes, all memes are under copyright law, which means you have the authority to govern their use. Although identifying the meme owner can be challenging, posting or sharing a meme through your social media accounts without consent violates copyright law. Therefore, only use stock image memes from verified stock content providers like Shutterstock, where the license provisions are clear.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Can you use watermarked stock photos to create memes?
 
 No. Before using watermarked images to create memes, you must get verifiable permission from the rights holder. This is because it violates copyright law and can result in heavy fines or even prison time in extreme circumstances.
 
 Therefore, always perform stock image reverse searches to verify the image permissions. Alternatively, you can refer to stock photo libraries such as Adobe Stock and Unsplash for your meme creation.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -160,3 +172,62 @@ Therefore, always perform stock image reverse searches to verify the image permi
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://review-topics.techidaily.com/remove-google-frp-lock-on-moto-g24-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP Lock on Moto G24</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-gopros-versatility-up-against-nikons-km-170/"><u>In 2024, GoPro's Versatility Up Against Nikon's KM-170</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/accurate-atmospheres-expert-picks-of-windows-11s-weather-apps/"><u>Accurate Atmospheres: Expert Picks of Windows 11'S Weather Apps</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-from-casual-gamer-to-pro-elevating-your-minecraft-recordings-with-a-mac/"><u>[New] 2024 Approved  From Casual Gamer to Pro  Elevating Your Minecraft Recordings with a Mac</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Tecno Spark 10 5G | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-excellent-10-drone-set-professional-filming-and-photography/"><u>2024 Approved  Excellent 10-Drone Set  Professional Filming & Photography</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-craft-your-visual-narrative-top-10-iphoneandroid-screenshot-sticker-apps/"><u>[New] 2024 Approved  Craft Your Visual Narrative – Top 10 iPhone/Android Screenshot Sticker Apps</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-learn-to-navigate-two-screens-a-comprehensible-guide-to-floating-window-on-netflix/"><u>[Updated] 2024 Approved  Learn to Navigate Two Screens  A Comprehensible Guide to Floating Window on Netflix</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/from-viewers-to-valuables-mastering-video-monetization-on-vimeo/"><u>From Viewers to Valuables  Mastering Video Monetization on Vimeo</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-transfer-tactics-efficiently-getting-data-on-your-computer/"><u>2024 Approved  Transfer Tactics  Efficiently Getting Data On Your Computer</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-vs-video-edition-which-editor-wins-for-filmmaking-in-2024/"><u>[Updated] Vs. Video Edition  Which Editor Wins for Filmmaking, In 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-capturing-cinema-smartphone-mac-and-desktop-screenshots/"><u>In 2024, Capturing Cinema  Smartphone, Mac, and Desktop Screenshots</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-metaverse-inspiration-enhanced-by-ar-and-vr/"><u>In 2024, Metaverse Inspiration  Enhanced by AR & VR</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-engaging-conversations-with-your-youtube-audience/"><u>In 2024, Engaging Conversations with Your YouTube Audience</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-turn-your-videos-into-a-revenue-stream-with-these-tips/"><u>[New] In 2024, Turn Your Videos Into a Revenue Stream with These Tips</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-parrot-prowess-in-bebop-an-in-depth-critique/"><u>[New] In 2024, Parrot Prowess in Bebop – An In-Depth Critique</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-pinnacle-enterprise-data-vaulting/"><u>[New] In 2024, Pinnacle Enterprise Data Vaulting</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/current-drone-applications-vs-future-technological-paradigm/"><u>Current Drone Applications vs Future Technological Paradigm</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-your-phones-call-chronicle-iphone-2024/"><u>[New] Your Phone's Call Chronicle - iPhone 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-increase-conversions-with-these-top-marketing-phrases/"><u>[Updated] 2024 Approved  Increase Conversions with These Top Marketing Phrases</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-the-noobs-manual-to-saving-streaming-radio-lines/"><u>[New] 2024 Approved  The Noob's Manual to Saving Streaming Radio Lines</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-step-into-premium-sound-quality-garageband-edition/"><u>[New] 2024 Approved  Step Into Premium Sound Quality  GarageBand Edition</u></a></li>
+<li><a href="https://techidaily.com/complete-tutorial-for-honor-magic-5-pro-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Honor Magic 5 Pro Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/winners-circle-worlds-most-subscribed-youtubers-for-2024/"><u>Web's Winners Circle  World's Most Subscribed YouTubers for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-ultimate-mic-showdown-for-podcasters/"><u>[New] 2024 Approved  Ultimate Mic Showdown for Podcasters</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-unlock-hidden-potential-boost-productivity-essential-activities-during-podcast-sessions/"><u>[New] 2024 Approved  Unlock Hidden Potential, Boost Productivity  Essential Activities During Podcast Sessions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-piecing-together-a-memorable-trailer-moment/"><u>[New] 2024 Approved  Piecing Together a Memorable Trailer Moment</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-movavi-video-pro-review-release-for-2024/"><u>[New] Movavi Video Pro Review Release for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-pinnacle-tools-for-subs-to-srt-unveiling-the-top-8-win-and-mac-software/"><u>[New] Pinnacle Tools for Subs to SRT  Unveiling the Top 8 Win & Mac Software</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-navigating-video-multitasking-in-chromes-pip-mode-on-all-devices/"><u>[New] In 2024, Navigating Video Multitasking in Chrome’s PIP Mode on All Devices</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-seamless-blend-enhancing-your-ae-projects-with-luts/"><u>[New] The Seamless Blend  Enhancing Your AE Projects with LUTs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/cutting-edge-clarity-in-depth-analysis-of-asuss-mg28uq-monitor/"><u>Cutting-Edge Clarity  In-Depth Analysis of ASUS's MG28UQ Monitor</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/your-speech-any-sound-discover-the-best-vocal-transformation-tools-on-android-for-2024/"><u>Your Speech, Any Sound  Discover the Best Vocal Transformation Tools on Android for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/how-to-update-intel-graphics-driver-in-windows-7/"><u>How to Update Intel Graphics Driver in Windows 7</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-virtual-frontier-peripherals-the-hottest-10/"><u>[New] 2024 Approved  Virtual Frontier Peripherals  The Hottest 10</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-daily-dose-of-tiktok-motivation-the-elite-fifteen/"><u>In 2024, Daily Dose of TikTok Motivation  The Elite Fifteen</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-ig-tik-combined-expertise-for-smooth-integration/"><u>[New] In 2024, IG-Tik Combined Expertise for Smooth Integration</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-shaking-no-more-evaluating-photoshops-anti-shake-feature/"><u>[New] Shaking No More  Evaluating Photoshop's Anti-Shake Feature</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-3d-lut-expertise-in-a-quick-learning-journey/"><u>[Updated] 2024 Approved  3D LUT Expertise in a Quick Learning Journey</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-expert-tips-activating-or-deactivating-youtube-comments/"><u>In 2024, Expert Tips  Activating or Deactivating YouTube Comments</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-chucklechops-witworks-corp-for-2024/"><u>[Updated] ChuckleChops  WitWorks Corp for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-steps-to-decline-autoplayed-and-suggested-podcasts-on-spotify-for-2024/"><u>[New] Steps to Decline Autoplayed and Suggested Podcasts on Spotify for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-leading-music-service-streaming-channels/"><u>2024 Approved  Leading Music Service Streaming Channels</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-toggle-picture-in-picture-feature-for-youtube-app/"><u>In 2024, Toggle Picture-in-Picture Feature for Youtube App</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-subtle-start-sequence/"><u>In 2024, Subtle Start Sequence</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/giggle-factory-gratis-memo-makers-available-for-2024/"><u>Giggle Factory  Gratis Memo Makers Available for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-smarter-spending-on-cloud-data-services-insights-and-recommendations-for-2024/"><u>[New] Smarter Spending on Cloud Data Services  Insights & Recommendations for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/echo-of-tamil-syncing-songs-as-mobile-notifications/"><u>Echo of Tamil  Syncing Songs as Mobile Notifications</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-transforming-images-with-dynamic-mosaic-designs/"><u>[New] 2024 Approved  Transforming Images with Dynamic Mosaic Designs</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-from-chords-to-chart-toppers-essential-musician-focused-youtube-content/"><u>2024 Approved  From Chords to Chart-Toppers  Essential Musician-Focused YouTube Content</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-get-facebook-links-downloaded-top-8-tools-of-the-year-2023-for-2024/"><u>[New] Get Facebook Links Downloaded  Top 8 Tools of the Year 2023 for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-iphone-photography-breakthroughs-with-lifelike-motion/"><u>[New] 2024 Approved  IPhone Photography Breakthroughs with Lifelike Motion</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-whatsapp-wizardry-unveiling-the-ultimate-chat-strategies/"><u>2024 Approved  WhatsApp Wizardry  Unveiling the Ultimate Chat Strategies</u></a></li>
+<li><a href="https://change-location.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Vivo Y27 4G | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/gmail-not-working-on-lava-blaze-curve-5g-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Lava Blaze Curve 5G 7 Common Problems & Fixes | Dr.fone</u></a></li>
+</ul></div>

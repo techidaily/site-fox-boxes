@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Innovations in Portraying Chrono-Displacement on Screen\""
-date: 2024-06-17T14:26:47.335Z
-updated: 2024-06-18T14:26:47.335Z
+date: 2024-07-13T20:52:40.016Z
+updated: 2024-07-14T20:52:40.016Z
 tags: 
   - screen-recording
   - ai video
@@ -34,6 +34,9 @@ However, in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/
 
 To create shots, we have to do two processing rounds. In the first round, we will film a shot for daytime activity. While in the next round, we will shoot a video for nighttime activity. Get straight into the filming mode and create according to your script.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### #1 daylight lighting setup
 
 In this round, you have to create a daytime action, implying that you need daylight. As well as, you don't need professional filming skills because it is going to be so simple.
@@ -64,6 +67,9 @@ After setting the lights, now it's time to check the camera!
 
 It is a very important step that you don't have to change the camera position during filming. Because if the camera angle will not be same, it's difficult to show in the same alignment during editing.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![camera alignment](https://images.wondershare.com/filmora/article-images/2023/04/camera-alignment.gif)
 
 After setting all equipment, now it's time to allow the character to perform in front of the camera.
@@ -106,6 +112,9 @@ You can also create a marking by using anything in yours. We are using the midli
 
 ![marking for the cross line of transitions](https://images.wondershare.com/filmora/article-images/2023/04/marking-for-the-cross-line-of-transitions.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** Ensure to match the **"stepping over"** of the character for better results in the transition video.
@@ -432,6 +441,9 @@ Next, you have to apply the **"Shape Mask"** for smooth movements of the charact
 
 Play the video again and check out the smoothness of the actions. As we have already marked the points, that's why the actions match with each other and give an equivalent look!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** If your video actions are not aligning with each other, then adjust again according to the requirements.
@@ -523,3 +535,59 @@ Create for you and add different effects and experiment with new features. You w
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-comparative-analysis-of-the-metaverse-and-multimeva-worlds-detailed-guide/"><u>[New] Comparative Analysis of the Metaverse & Multimeva Worlds (Detailed Guide)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-no-pay-maximum-fun-20-custom-lut-sets-for-dji-miniair-users/"><u>2024 Approved  No Pay, Maximum Fun  20 Custom LUT Sets for DJI Mini/Air Users</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-streaming-wars-the-digital-platform-showdown/"><u>2024 Approved  Streaming Wars  The Digital Platform Showdown</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/a-nostalgic-journey-through-time-with-stop-motion-classics-for-2024/"><u>A Nostalgic Journey Through Time with Stop-Motion Classics for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-precision-viewing-at-a-glance-quick-minigame-tips/"><u>2024 Approved  Precision Viewing at a Glance  Quick Minigame Tips</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-step-by-step-tutorial-on-how-to-use-igtv-effectively/"><u>[Updated] 2024 Approved  Step-by-Step Tutorial on How to Use IGTV Effectively</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-swiftly-address-iphone-photography-blur/"><u>2024 Approved  Swiftly Address iPhone Photography Blur</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-shutters-symphony-top-techniques-for-exquisite-images-for-2024/"><u>The Shutter's Symphony  Top Techniques for Exquisite Images for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/data-retrieval-tool-restore-lost-data-from-v30-lite-5g-by-fonelab-android-recover-data/"><u>Data Retrieval tool – restore lost data from V30 Lite 5G</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/ultimate-photography-journey-with-vsco-editing-tool/"><u>Ultimate Photography Journey with VSCO Editing Tool</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/pioneering-panoramic-photography-gear/"><u>Pioneering Panoramic Photography Gear</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-why-magix-video-pro-x-is-a-game-changer/"><u>2024 Approved  Why Magix Video Pro X Is a Game-Changer</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unleashing-creativity-in-hd-windows-powered-visionary-editing-and-viewing/"><u>2024 Approved  Unleashing Creativity in HD  Windows-Powered Visionary Editing & Viewing</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-visualizing-success-designing-captivating-teasers-and-trailers-for-your-podcasts/"><u>2024 Approved  Visualizing Success  Designing Captivating Teasers and Trailers for Your Podcasts</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Infinix GT 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-sculpt-satirical-gifs-via-giphy/"><u>In 2024, Sculpt Satirical Gifs via Giphy</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unveiling-the-best-macbook-air-or-pro-with-m1/"><u>2024 Approved  Unveiling the Best MacBook Air or Pro with M1</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-step-by-step-creating-popular-tiktok-reaction-videos/"><u>[New] 2024 Approved  Step-by-Step  Creating Popular TikTok Reaction Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-versatile-biz-decks-free-template-and-resource-options/"><u>2024 Approved  Versatile Biz Decks  FREE Template and Resource Options</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-unveiling-premium-screen-recorders-in-tech/"><u>[Updated] In 2024, Unveiling Premium Screen Recorders in Tech</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-dismantling-the-economics-of-youtubes-ambitious-shorts-fund/"><u>[New] 2024 Approved  Dismantling the Economics of YouTube's Ambitious Shorts Fund</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-top-5-efforts-crafting-perfect-titles/"><u>2024 Approved  Top 5 Efforts  Crafting Perfect Titles</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-secret-spotters-where-to-find-your-snappiest-ringtone/"><u>2024 Approved  Secret Spotters  Where to Find Your Snappiest Ringtone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-formulating-final-fact-finding-flourishes-for-2024/"><u>[Updated] Formulating Final Fact-Finding Flourishes for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-ultimate-list-10-superior-podcast-mic-choices/"><u>2024 Approved  The Ultimate List  10 Superior Podcast Mic Choices</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-easy-steps-to-blend-igtv-into-your-stories/"><u>2024 Approved  Easy Steps to Blend IGTV Into Your Stories</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-transform-your-digital-works-into-blockchain-treasures-with-these-tools/"><u>2024 Approved  Transform Your Digital Works Into Blockchain Treasures with These Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-structuring-stimulating-podcast-trailers/"><u>2024 Approved  Structuring Stimulating Podcast Trailers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-top-edits-bottom-line-pro-guide-to-tiktok-creativity/"><u>2024 Approved  Top Edits, Bottom Line  Pro Guide to TikTok Creativity</u></a></li>
+<li><a href="https://win11.techidaily.com/understanding-and-utilizing-apples-messaging-service-on-pc/"><u>Understanding and Utilizing Apple's Messaging Service on PC</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-outlining-expenditures-the-price-tag-of-video-capturing-tunes/"><u>2024 Approved  Outlining Expenditures  The Price Tag of Video Capturing Tunes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-seamless-sound-dimming-techniques-for-garageband/"><u>2024 Approved  Seamless Sound Dimming Techniques for Garageband</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-navigating-through-non-gopro-cam-options-a-guide/"><u>2024 Approved  Navigating Through Non-GoPro Cam Options  A Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-strategic-insights-for-triumph-in-smm/"><u>2024 Approved  Strategic Insights for Triumph in SMM</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-tailor-topical-laughs/"><u>2024 Approved  Tailor Topical Laughs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/a-toast-to-trending-celebrating-reddit-writings-top-10/"><u>A Toast to Trending  Celebrating Reddit’ Writings (Top 10)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-streamlined-language-translation-best-online-subtitle-manipulators/"><u>2024 Approved  Streamlined Language Translation – Best Online Subtitle Manipulators</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/5-pioneering-portals-to-streamline-your-text-effects-search/"><u>5 Pioneering Portals to Streamline Your Text Effects Search</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-the-future-of-content-navigating-video-landscapes-on-fb-for-2024/"><u>[Updated] The Future of Content  Navigating Video Landscapes on FB for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-revealing-top-streamers-expert-tips-on-choosing-right/"><u>2024 Approved  Revealing Top Streamers  Expert Tips on Choosing Right</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-most-affordable-mac-audiophiles-editing-app/"><u>Updated Most Affordable Mac Audiophiles Editing App</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-taming-the-audio-in-your-canva-videos-step-by-step/"><u>2024 Approved  Taming the Audio in Your Canva Videos Step by Step</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unraveling-the-packaging-a-marketing-approach/"><u>2024 Approved  Unraveling the Packaging  A Marketing Approach</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unlocking-hidden-potential-how-to-use-video-filters-on-zoom/"><u>2024 Approved  Unlocking Hidden Potential  How To Use Video Filters on Zoom</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-highest-quality-livestream-gatherer/"><u>[New] 2024 Approved  Highest Quality Livestream Gatherer</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/unlock-virtual-realms-on-your-phone-with-simple-steps-for-2024/"><u>Unlock Virtual Realms on Your Phone with Simple Steps for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-top-professional-camera-choices-complete-360-guide-2023/"><u>2024 Approved  Top Professional Camera Choices - Complete 360 Guide 2023</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-understanding-the-basics-of-audio-crossfading/"><u>2024 Approved  Understanding the Basics of Audio Crossfading</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/accessing-audio-at-no-cost-the-ultimate-list-of-8-mp3-seekers-android-for-2024/"><u>Accessing Audio at No Cost  The Ultimate List of 8 MP3 Seekers (Android) for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-splitcam-vs-competitors-top-tier-video-recording/"><u>In 2024, SplitCam Vs. Competitors  Top-Tier Video Recording?</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-ideal-green-visual-effects-systems-practical-steps/"><u>In 2024, Ideal Green Visual Effects Systems  Practical Steps</u></a></li>
+</ul></div>

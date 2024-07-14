@@ -1,7 +1,7 @@
 ---
 title: "Expert Techniques in Creating Timelapses on Black Hero5 for 2024"
-date: 2024-06-17T13:41:11.321Z
-updated: 2024-06-18T13:41:11.321Z
+date: 2024-07-13T20:02:54.791Z
+updated: 2024-07-14T20:02:54.791Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,9 @@ thumbnail: https://thmb.techidaily.com/845fcd5e3eadfdeed515b58ea51b6008ffc3adda0
 
 # How to Shoot a Time-lapse Video with GoPro Hero5 Black
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -35,6 +38,9 @@ Are you an amateur travel photographer who has recently bought a GoPro cam and w
 * [Part 1:Shooting a time lapse video with GoPro Hero5](#part1)
 * [Part 2: Making time lapse videos with Wondershare Filmora](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: Shooting a time lapse video with GoPro Hero5
 
 #### **1. The best time lapse settings in GoPro:**
@@ -91,15 +97,21 @@ The Instant cutter tool on the other hand can be used for trimming and merging v
 * First, launch the Filmora app and then choose the ‘action cam tool’
 * Next, you need to click the ‘Import’ button or the ‘ Import an Action cam video’ button, so as to import your recorded video to Wondershare Filmora.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![1-action-cam-tool-fix-entrance](https://images.wondershare.com/filmora/article-images/filmora-splash-screen-0321.jpg)
 
 * Now go to the Speed tab and bring the Playhead to the exact position where the speed effect is to be applied.
 * Click the Add Marker button. Click the speed marker and drag it onto either side of your timeline so as to choose a number of clips on your timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![speed-effect-speed-add-marke](https://images.wondershare.com/filmora/article-images/speed-effect-speed-add-marker.png)
 
 * The speed settings can be adjusted by clicking on the checkbox marked Speed. The speed slider can be moved forward to make it faster up to 20x for the time lapse effect.
-* Export your time lapse video to Full Features Mode to edit further, such as adding various filters, overlay and effects. Currently, there are more than 300 Effects, and there is an [ACTION CAM WINTER SET](https://www.filmstocks.com/effects-store-upgrade.html)available now. [Check More](https://www.filmstocks.com/effects-store-upgrade.html)
+* Export your time lapse video to Full Features Mode to edit further, such as adding various filters, overlay and effects. Currently, there are more than 300 Effects, and there is an [ACTION CAM WINTER SET](https://www.filmstocks.com/effects-store-upgrade.html) available now. [Check More](https://www.filmstocks.com/effects-store-upgrade.html)
 
 [Learn more detailed information about how to make a time lapse video in Filmora Full Feature Mode](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -129,3 +141,50 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-free-yourself-from-fringe-a-youtube-video-fix-guide/"><u>[New] In 2024, Free Yourself From Fringe  A YouTube Video Fix Guide</u></a></li>
+<li><a href="https://windows11.techidaily.com/file-finder-simplicity-windowed-explorer-reduction-technique/"><u>File Finder Simplicity: Windowed Explorer Reduction Technique</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-visual-journey-app-performance-analysis-for-2024/"><u>[Updated] Visual Journey App Performance Analysis for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/av1-decoded-for-starters-for-2024/"><u>AV1 Decoded for Starters for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-discovering-the-power-of-hdr-in-iphone-photography/"><u>2024 Approved  Discovering the Power of HDR in iPhone Photography</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-money-savers-budget-priced-vr-devices-china/"><u>[Updated] In 2024, Money Savers  Budget-Priced VR Devices (China)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/pioneering-video-content-creation-via-google-trends-study/"><u>Pioneering Video Content Creation via Google Trends Study</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/mastery-in-mapping-out-your-youtube-audience-for-2024/"><u>Mastery in Mapping Out Your YouTube Audience for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/enchanting-photographs-with-music-infused-videography/"><u>Enchanting Photographs with Music-Infused Videography</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-theta-s-revealed-an-extensive-product-evaluation/"><u>2024 Approved  Theta S Revealed  An Extensive Product Evaluation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-mastering-your-digital-talk-leading-web-based-text-to-speech-apps-for-chrome/"><u>[Updated] Mastering Your Digital Talk  Leading Web-Based Text-to-Speech Apps for Chrome</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-adding-tunes-to-your-ios-clips-three-no-cost-ways-explored/"><u>2024 Approved  Adding Tunes to Your iOS Clips – Three No-Cost Ways Explored</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-infusing-your-art-with-captivating-collage-vistas/"><u>[Updated] In 2024, Infusing Your Art with Captivating Collage Vistas</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-master-picks-for-commercial-cloud-space/"><u>[Updated] 2024 Approved  Master Picks for Commercial Cloud Space</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-dissecting-the-utility-of-sns-hdr-for-hdri-tasks/"><u>[Updated] In 2024, Dissecting the Utility of SNS HDR for HDRI Tasks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-unveiling-iphones-silhouette-potential/"><u>[Updated] Unveiling iPhone's Silhouette Potential</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-intense-evaluation-the-detailed-study-of-bublcam-360-for-2024/"><u>[Updated] Intense Evaluation  The Detailed Study of Bublcam 360 for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-elite-hdr-cameras-a-buyers-selection-guide-for-2024/"><u>[Updated] Elite HDR Cameras  A Buyer's Selection Guide for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/navigating-windows-10-features-for-seamless-video-editing-for-2024/"><u>Navigating Windows 10 Features for Seamless Video Editing for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-pvr-uno-customizable-media-solution/"><u>[Updated] PVR Uno  Customizable Media Solution</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-essential-tips-for-smooth-screen-sharing-on-skype-while-working-from-home-for-2024/"><u>[Updated] Essential Tips for Smooth Screen Sharing on Skype While Working From Home for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-vuephoto-ai-enhancement-showcase/"><u>2024 Approved  VuePhoto AI Enhancement Showcase</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/stream-like-a-pro-setting-up-your-dslr-on-personal-computers/"><u>Stream Like a Pro  Setting Up Your DSLR on Personal Computers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-evaluating-cloud-options-price-and-performance/"><u>[Updated] In 2024, Evaluating Cloud Options  Price & Performance</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-beyond-boundaries-the-present-state-and-future-of-vr/"><u>2024 Approved  Beyond Boundaries  The Present State and Future of VR</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-laptop-editing-avoiding-inshot-dependence/"><u>[New] Laptop Editing  Avoiding Inshot Dependence</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-essential-tutorial-for-stunning-hdr-portraits-for-2024/"><u>[Updated] The Essential Tutorial for Stunning HDR Portraits for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-implementing-gradual-diminishing-techniques-on-soundtracks-with-audacity/"><u>[Updated] Implementing Gradual Diminishing Techniques on Soundtracks with Audacity</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-audiophiles-top-picks-for-high-quality-window-based-podcasts-8/"><u>[Updated] Audiophile's Top Picks for High-Quality Window-Based Podcasts (#8)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-how-to-add-divine-chant-to-smartphone-notifications/"><u>[Updated] In 2024, How to Add Divine Chant to Smartphone Notifications</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-poco-f5-5g-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Poco F5 5G to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-precision-zoom-for-clearer-movie-scenes-for-2024/"><u>[Updated] Precision Zoom for Clearer Movie Scenes for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-what-is-the-best-mp4-cutter-for-youtubers-on-mac/"><u>2024 Approved  What Is the Best MP4 Cutter for YouTubers On Mac?</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-audio-elimination-mastery-a-step-by-step-guide-on-trimming-sounds-from-apple-videos/"><u>Updated 2024 Approved Audio Elimination Mastery A Step-by-Step Guide on Trimming Sounds From Apple Videos</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/top-5-best-imovie-replacements-for-windows-10/"><u>Top 5 Best iMovie Replacements for Windows 10</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-mental-matinee-best-general-knowledge-shows/"><u>[Updated] In 2024, Mental Matinee  Best General Knowledge Shows</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-leading-tools-for-instantaneous-gif-to-video-transformation/"><u>2024 Approved  Leading Tools for Instantaneous GIF to Video Transformation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-peak-performance-win-tunes/"><u>2024 Approved  Peak Performance WIN Tunes</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-video-formatting-made-easy-change-shape-size-and-aspect-ratio/"><u>Updated Video Formatting Made Easy Change Shape, Size, and Aspect Ratio</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-flawless-free-download-of-youtube-video-covers-no-hurdles-in-2024/"><u>[Updated] Flawless Free Download of YouTube Video Covers - No Hurdles, In 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-10-apps-to-elevate-your-picture-grids/"><u>2024 Approved  10 Apps to Elevate Your Picture Grids</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-mastering-igtv-thumbnail-creation-and-editing-for-2024/"><u>[New] Mastering IGTV Thumbnail Creation & Editing for 2024</u></a></li>
+</ul></div>

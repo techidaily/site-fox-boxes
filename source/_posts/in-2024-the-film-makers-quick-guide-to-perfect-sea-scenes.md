@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, The Film-Maker’s Quick Guide to Perfect Sea Scenes\""
-date: 2024-06-17T14:17:58.750Z
-updated: 2024-06-18T14:17:58.750Z
+date: 2024-07-13T20:42:36.266Z
+updated: 2024-07-14T20:42:36.266Z
 tags: 
   - screen-recording
   - ai video
@@ -32,6 +32,18 @@ thumbnail: https://thmb.techidaily.com/37188c2ac0547dbb668f9ed584425f62c5411d081
 
  There are many tips you can learn from to get the results that you require, so read on to find out more about what you can do to shoot underwater video with ease.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Tips on shooting video underwater
 
 #### 1\. Frame your shots
@@ -58,6 +70,9 @@ thumbnail: https://thmb.techidaily.com/37188c2ac0547dbb668f9ed584425f62c5411d081
 
  You can instead make use of natural sunlight, which should help you get the excellence you require even when you’re shooting at more than 30 metres depth. Deeper white balancing can be helpful during cloudy days.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
 
 #### 4\. Stay steady
@@ -72,6 +87,9 @@ thumbnail: https://thmb.techidaily.com/37188c2ac0547dbb668f9ed584425f62c5411d081
 
  Unfortunately, other divers have a tendency to get in the way when you’re shooting footage underwater. Many video production professionals opt to intentionally include clips of divers in their footage so everything flows nicely and cuts work well together if their presence in other shots is unavoidable.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
 
 #### 6\. Wide angle
@@ -98,6 +116,9 @@ thumbnail: https://thmb.techidaily.com/37188c2ac0547dbb668f9ed584425f62c5411d081
 
  If you’re planning on making a DVD of your work, consider adding extras to the product such as highlights or photos. Filmora is a popular editing software solution that will help you add an extra dash of magic to your work.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
@@ -126,3 +147,43 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-exploring-lgs-ultra-clear-4k-screen-capabilities/"><u>[Updated] In 2024, Exploring LG's Ultra-Clear 4K Screen Capabilities</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/leaders-in-earnings-prediction-tiktoks-finest-tools-for-2024/"><u>Leaders in Earnings Prediction  TikTok's Finest Tools for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-top-choices-for-professional-gopro-video-editing-for-2024/"><u>[Updated] Top Choices for Professional GoPro Video Editing for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-syncing-zen-and-zeal-elevating-youtube-livestreams-on-zoom/"><u>[Updated] Syncing Zen and Zeal  Elevating YouTube Livestreams on Zoom</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-sculpting-textures-creating-realistic-3d-effects-in-illustrator-for-2024/"><u>[Updated] Sculpting Textures  Creating Realistic 3D Effects in Illustrator for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/cutting-edge-clarity-in-depth-analysis-of-asuss-mg28uq-monitor/"><u>Cutting-Edge Clarity  In-Depth Analysis of ASUS's MG28UQ Monitor</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-teaching-with-video-effective-editing-methods/"><u>[Updated] Teaching with Video  Effective Editing Methods</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-costless-conundrum-of-final-cut-pro-access/"><u>[Updated] The Costless Conundrum of Final Cut Pro Access</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-leading-music-service-streaming-channels/"><u>2024 Approved  Leading Music Service Streaming Channels</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-rhythmic-revelry-selecting-ultimate-event-templates/"><u>[New] Rhythmic Revelry  Selecting Ultimate Event Templates</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/echo-of-tamil-syncing-songs-as-mobile-notifications/"><u>Echo of Tamil  Syncing Songs as Mobile Notifications</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-mastering-pip-activatedeactivate-in-safari-on-apple-devices/"><u>[Updated] Mastering PIP  Activate/Deactivate in Safari on Apple Devices</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-t-view-hevc-h-265-content-on-redmi-13c-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Can’t view HEVC H.265 content on Redmi 13C</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-androids-best-free-mp3-extraction-tools/"><u>2024 Approved  Android's Best Free MP3 Extraction Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-whatsapp-wizardry-unveiling-the-ultimate-chat-strategies/"><u>2024 Approved  WhatsApp Wizardry  Unveiling the Ultimate Chat Strategies</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-pricing-framework-music-video-filming-costs/"><u>[New] Pricing Framework  Music Video Filming Costs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/current-drone-applications-vs-future-technological-paradigm/"><u>Current Drone Applications vs Future Technological Paradigm</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-engaging-conversations-with-your-youtube-audience/"><u>In 2024, Engaging Conversations with Your YouTube Audience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-transcribe-speech-to-text-seamlessly-using-words-tools-for-2024/"><u>[Updated] Transcribe Speech to Text Seamlessly Using Word's Tools for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-vivo-t2x-5g-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Vivo T2x 5G Pattern Lock Screen</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-gopros-versatility-up-against-nikons-km-170/"><u>In 2024, GoPro's Versatility Up Against Nikon's KM-170</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-superior-vector-file-polishing-for-2024/"><u>[Updated] Superior Vector File Polishing for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-ultimate-7-secure-video-conferencing-systems-for-smbs/"><u>[New] 2024 Approved  Ultimate 7 Secure Video Conferencing Systems for SMBs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-ultimate-resource-for-microsoft-azure-speech-services-for-2024/"><u>[Updated] The Ultimate Resource for Microsoft Azure Speech Services for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/giggle-factory-gratis-memo-makers-available-for-2024/"><u>Giggle Factory  Gratis Memo Makers Available for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-turbocharge-fb-video-speed-selective-extensions-and-apps-guidebook-for-2024/"><u>[Updated] Turbocharge FB Video Speed  Selective Extensions & Apps Guidebook for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-apple-iphone-xs-by-drfone-ios/"><u>Top 11 Free Apps to Check IMEI on Apple iPhone XS</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-transfer-tactics-efficiently-getting-data-on-your-computer/"><u>2024 Approved  Transfer Tactics  Efficiently Getting Data On Your Computer</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-from-bargain-hunting-to-video-glamour-editing-insights-for-hauls-for-2024/"><u>[Updated] From Bargain Hunting to Video Glamour  Editing Insights for Hauls for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-prime-bot-collective-of-digital-dialogues/"><u>[New] Prime Bot Collective of Digital Dialogues</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-tutorial-for-downloading-movie-maker-6-on-windows/"><u>[Updated] In 2024, Tutorial for Downloading Movie Maker 6 on Windows</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-how-to-stream-on-mixer-macos/"><u>[Updated] How to Stream on Mixer MacOS</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-metaverse-inspiration-enhanced-by-ar-and-vr/"><u>In 2024, Metaverse Inspiration  Enhanced by AR & VR</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-vs-video-edition-which-editor-wins-for-filmmaking-in-2024/"><u>[Updated] Vs. Video Edition  Which Editor Wins for Filmmaking, In 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-without-backup-on-honor-play-7t-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery without backup on Honor Play 7T</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-elevate-your-dating-game-with-cleverly-crafted-tinder-profiles/"><u>[Updated] In 2024, Elevate Your Dating Game with Cleverly Crafted Tinder Profiles</u></a></li>
+</ul></div>

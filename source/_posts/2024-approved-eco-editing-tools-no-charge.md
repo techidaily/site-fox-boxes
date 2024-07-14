@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Eco Editing Tools  No Charge\""
-date: 2024-07-02T12:52:43.645Z
-updated: 2024-07-03T12:52:43.645Z
+date: 2024-07-13T21:10:41.889Z
+updated: 2024-07-14T21:10:41.889Z
 tags: 
   - screen-recording
   - ai video
@@ -60,12 +60,18 @@ Import the two videos on Filmora: background and green screen; the background vi
 
 The edit panel option opens upon activating the panel; the edit panel option includes color, offset, edge thickness, alpha tolerance, edge feather, and tolerance. Each feature contributes directly to your final result. Offset, tolerance, and alpha channel affect the video clarity; edge thickness and edge feather affect the edge appearance: shadow, transparency, and edges.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![set the green screen edit panel](https://images.wondershare.com/filmora/guide/green-screen-overlay-video-chroma-key-settings.jpg)
 
 ### 2.4 Background positioning
 
 You have to position the background video on the green screen: the green screen will disappear, and the ground video will replace the green overlay. All the applications you added in 2.3 will appear. That is, transparency, movements, and video manipulation will be saved. Lastly, you should save your work.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Best green screen templates
 
 1. [**Filmstock**](https://filmstock.wondershare.com/collection/green-screen-template.html?p=1)
@@ -114,6 +120,9 @@ Using a green screen template for your project outweighs other processes. Howeve
 
 * Click on “new file” and create a new program on Filmora. Ensure you save the program as you proceed. Click on “file” then “import file” from the upper right corner of the display screen. Select the videos from your computer (ensure you save them in a separate folder for easy location).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![create a new program on filmora](https://images.wondershare.com/filmora/guide/place-green-screen-background-videos.jpg)
 
 * You will see two tracks on the Filmora edit page: drag and paste the background video into the first track, and drag the green screen into the second track. Proceed to the Chroma key: right click on the “green screen” option on the menu and select “green screen.” You can also activate the edit panel by double clicking on the “green screen video” you imported.
@@ -150,6 +159,9 @@ Although Filmstock has an editor, Videezy only supplies green screen templates f
 
 Kapwing is similar to Filmstock because it permits customization and free green screen download. Many advantages align with a “download“ and “edit“ platform like Kapwing. Customization is another effect allowing you to edit an existing green screen video. Kapwing is easy to use – the drag and drop feature is enough to maximize the platform for excellent videography production
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![kapwing green screen](https://images.wondershare.com/filmora/article-images/2022/07/kapwing.jpg)
 
 1. [**Pikbest**](https://pikbest.com/)
@@ -195,3 +207,57 @@ Using a green screen template for your project outweighs other processes. Howeve
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-pioneering-sites-for-downloading-text-aesthetics/"><u>2024 Approved  Pioneering Sites for Downloading Text Aesthetics</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-virtual-venture-gears-choosing-best-metaverse-headsets/"><u>2024 Approved  Virtual Venture Gears  Choosing Best Metaverse Headsets</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-state-of-the-art-devices-for-online-live-shows/"><u>2024 Approved  State-of-the-Art Devices for Online Live Shows</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-art-of-blending-audio-and-visuals-in-a-trailer/"><u>2024 Approved  The Art of Blending Audio and Visuals in a Trailer</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-step-by-step-soundscapes-for-iphone-customization/"><u>2024 Approved  Step-by-Step Soundscapes for iPhone Customization</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-visualizing-text-with-3d-effects-in-ai/"><u>2024 Approved  Visualizing Text with 3D Effects in AI</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-metaverse-race-begins-dont-miss-these-7-essential-tools/"><u>2024 Approved  The Metaverse Race Begins  Don't Miss These 7 Essential Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/a-journey-through-colors-leading-tutorials-for-grading-and-correction/"><u>A Journey Through Colors  Leading Tutorials for Grading & Correction</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-understanding-the-technology-behind-vr-goggles/"><u>2024 Approved  Understanding the Technology Behind VR Goggles</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/kickstart-your-webinar-skills-with-easy-to-follow-zoom-steps-for-2024/"><u>Kickstart Your Webinar Skills with Easy-to-Follow Zoom Steps for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-polar-pinnacles-beijing-2022-olympic-spotlight/"><u>2024 Approved  Polar Pinnacles  Beijing 2022 Olympic Spotlight</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-taking-screen-grabs-compliance-on-youtube/"><u>2024 Approved  Taking Screen Grabs  Compliance on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-virtual-battlegrounds-a-million-moments-in-gaming/"><u>2024 Approved  Virtual Battlegrounds  A Million Moments in Gaming</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/youtubes-flawless-beauty-masterclass-skincare-hairdos-and-cosmetics/"><u>YouTube's Flawless Beauty Masterclass  Skincare, Hairdos & Cosmetics</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-zoomed-into-the-core-of-action-films/"><u>2024 Approved  Zoomed Into the Core of Action Films</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-redefining-cinematic-boundaries-with-360-video/"><u>2024 Approved  Redefining Cinematic Boundaries with 360 Video</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-samsung-gear-360-vs-lg-360-cam-which-360-degree-camera-is-better/"><u>2024 Approved  Samsung Gear 360 vs LG 360 Cam  Which 360 Degree Camera Is Better</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-shadow-broadcasters-master-the-art-of-anonymous-livestreaming-on-instagram/"><u>2024 Approved  Shadow Broadcasters  Master the Art of Anonymous Livestreaming on Instagram</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-prime-ways-from-video-links-to-audio-downloads/"><u>2024 Approved  Prime Ways  From Video Links to Audio Downloads</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/a-photographers-journey-to-jaw-dropping-colors/"><u>A Photographer's Journey to Jaw-Dropping Colors</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-14-effective-methods-zero-budget-webinar-recording-tips/"><u>[New] 14 Effective Methods  Zero Budget Webinar Recording Tips</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-top-9-windows-gif-capture-tools-perfect-animation-preservation/"><u>2024 Approved  Top 9 Windows GIF Capture Tools  Perfect Animation Preservation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/7-key-elements-for-perfect-instagram-unpackings/"><u>7 Key Elements for Perfect Instagram Unpackings</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-motorola-moto-g-stylus-5g-2023-by-fonelab-android-recover-pictures/"><u>How To  Restore Missing Pictures Files from Motorola Moto G Stylus 5G (2023).</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/a-deep-dive-into-magix-music-production-tools/"><u>A Deep Dive Into Magix Music Production Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-proiphone-close-ups-techniques-for-captivating-images/"><u>2024 Approved  Proiphone Close-Ups  Techniques for Captivating Images</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-the-top-12-tycoon-games-where-strategies-thrive-and-profits-peak/"><u>In 2024, The Top 12 Tycoon Games - Where Strategies Thrive and Profits Peak</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unlocking-virtual-potential-with-kinemasters-latest-android-release/"><u>Unlocking Virtual Potential with KineMaster's Latest Android Release</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-from-obscurity-to-stardom-trendsetting-tactics-for-videos/"><u>[New] From Obscurity to Stardom  Trendsetting Tactics for Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-visualmeld-crafting-multimedia-narratives-for-sierra/"><u>2024 Approved  VisualMeld  Crafting Multimedia Narratives for Sierra</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-transformative-notetaking-the-mematic-way/"><u>2024 Approved  Transformative Notetaking  The Mematic Way</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unveiling-xstream-studios-complete-exploration-in-156-words/"><u>2024 Approved  Unveiling XStream Studios  Complete Exploration in 156 Words</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-superior-5-iphones-for-podcasting-pleasure/"><u>2024 Approved  Superior 5 iPhones for Podcasting Pleasure</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-essential-shoppers-guide-to-modern-360cams/"><u>2024 Approved  The Essential Shopper's Guide to Modern 360Cams</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-tailoring-your-headline-for-job-searches/"><u>2024 Approved  Tailoring Your Headline for Job Searches</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/a-compreayers-guide-to-video-refinement-from-standard-definition-to-dynamic-range-zenith-for-2024/"><u>A Compreayer's Guide to Video Refinement  From Standard Definition to Dynamic Range Zenith for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-streamlining-projects-using-azures-speech-service/"><u>2024 Approved  Streamlining Projects Using Azure's Speech Service</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unique-business-symbols-edit-refine-and-download-logos-from-template-basics/"><u>2024 Approved  Unique Business Symbols  Edit, Refine, and Download Logos From Template Basics</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-navigating-the-nuances-of-snapchat-high-visibility/"><u>2024 Approved  Navigating the Nuances of Snapchat High-Visibility</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-thorough-review-gopro-hero4-slr4-sliver-features/"><u>2024 Approved  Thorough Review  GoPro Hero4 SLR4 Sliver Features</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-maximizing-macs-potential-capturing-the-spirit-of-roblox-games-for-2024/"><u>[Updated] Maximizing Mac's Potential  Capturing the Spirit of Roblox Games for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unlock-the-power-of-filmora-for-effective-avi-to-gif-conversion/"><u>2024 Approved  Unlock the Power of Filmora for Effective AVI-to-GIF Conversion</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-exporting-snapchat-content-to-your-phones-gallery/"><u>[Updated] 2024 Approved  Exporting SnapChat Content to Your Phone's Gallery</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-step-by-step-guide-to-perfecting-iphones-hdr-shots/"><u>2024 Approved  Step-by-Step Guide to Perfecting iPhone's HDR Shots</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-stream-your-audiovid-creations-here/"><u>2024 Approved  Stream Your AudioVid Creations Here</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/21plus-novel-collage-formulas-amplify-your-mood-for-2024/"><u>21+ Novel Collage Formulas  Amplify Your Mood for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/8-pioneering-online-photo-combination-suite-for-2024/"><u>8 Pioneering Online Photo Combination Suite for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-gentle-art-of-reducing-audio-amplitude-in-logic-pro/"><u>2024 Approved  The Gentle Art of Reducing Audio Amplitude in Logic Pro</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-trailblazers-in-virtual-reality-content-crafting/"><u>2024 Approved  Trailblazers in Virtual Reality Content Crafting</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-launchpad-for-newcomers-creating-a-successful-product-evaluation-vlog/"><u>2024 Approved  Launchpad for Newcomers  Creating a Successful Product Evaluation Vlog</u></a></li>
+</ul></div>

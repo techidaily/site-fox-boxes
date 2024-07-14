@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Avoiding Manual Transcription by Leveraging Voice Recognition in PPT"
-date: 2024-06-17T14:27:47.100Z
-updated: 2024-06-18T14:27:47.100Z
+date: 2024-07-13T20:53:51.050Z
+updated: 2024-07-14T20:53:51.050Z
 tags: 
   - screen-recording
   - ai video
@@ -24,6 +24,9 @@ Speech-to-text is not new, especially if you are used to the internet and many a
 
 [Make PPT Videos Now](https://tools.techidaily.com/wondershare/filmora/download/) [Make PPT Videos Now](https://tools.techidaily.com/wondershare/filmora/download/) [Explore STT](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 ## Part 1: How to enable speech-to-text in PowerPoint?
@@ -55,6 +58,9 @@ Aside from the regular Cortana speech recognition on Windows, you can use the sp
 
 * Click on the search button and type **“dictation”** or “**speech services**,” and the device redirects you to settings. Here, you activate the dictation button as the Mac option explained earlier. You may also press **“windows key + H”** to start the dictation option.
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![click on the search button](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-4.jpg)
 
 ## Part 2: How do I dictate PowerPoint for Mac?
@@ -73,6 +79,9 @@ It is easy to use PowerPoint on a Mac after activating the **“dictation”** b
 
 * From “all commands,” locate the speak option and add the option. Upon selection, the microphone button appears on the home screen of the PowerPoint.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![locate the speak option](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-7.jpg)
 
 ### **Use the speak option**
@@ -125,6 +134,9 @@ What's more, now Filmora's STT feature supports direct transcription of bilingua
 
 [Make PPT Videos](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Use Filmora STT to make PowerPoint videos translation
 
 ##### Step 1
@@ -157,9 +169,9 @@ You can use your device's in-built microphone. However, you may need external ge
 
 Speech-to-text is an additional feature for all users. Typing is, however, the default practice.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 [Make PPT Videos Now](https://tools.techidaily.com/wondershare/filmora/download/) [Make PPT Videos Now](https://tools.techidaily.com/wondershare/filmora/download/) [Explore STT](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -183,3 +195,45 @@ Speech-to-text is an additional feature for all users. Typing is, however, the d
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-realme-11-pro-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Realme 11 Pro Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/in-2024-best-10-photo-animator-templates/"><u>In 2024, Best 10 Photo Animator Templates</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-ultimate-guide-to-iphone-selfie-gear-rankings-8-for-2024/"><u>[Updated] The Ultimate Guide to Iphone Selfie Gear Rankings (#8) for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-nokia-130-music-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Nokia 130 Music Phones with/without a PC</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-mastering-windows-8-moviemaker-step-by-step-guide/"><u>[Updated] Mastering Windows 8 Moviemaker  Step-by-Step Guide</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-in-depth-look-at-djis-drone-model-3/"><u>[New] In-Depth Look at DJI's Drone Model 3</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-instagram-video-orientation-whats-the-flip-for-2024/"><u>[Updated] Instagram Video Orientation - What's the Flip for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-the-eye-opening-journey-with-q500/"><u>[Updated] 2024 Approved  The Eye-Opening Journey with Q500</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Nokia G42 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-preeminent-sites-to-amplify-youtube-traffic/"><u>[Updated] 2024 Approved  Preeminent Sites to Amplify YouTube Traffic</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-vivo-y78plus-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Vivo Y78+</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/strategies-for-slowing-music-beats-while-preserving-harmonic-quality-for-2024/"><u>Strategies for Slowing Music Beats While Preserving Harmonic Quality for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-budget-friendly-filmmaking-choose-the-best-6-action-cameras/"><u>In 2024, Budget-Friendly Filmmaking  Choose the Best 6 Action Cameras</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-free-voice-modification-tools-enhance-your-auditory-presentation-for-2024/"><u>[Updated] Free Voice Modification Tools – Enhance Your Auditory Presentation for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-pros-recommendations-for-free-and-paid-drawing-software-on-pc-for-2024/"><u>[Updated] Pro's Recommendations for Free & Paid Drawing Software on PC for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-comprehensive-guide-to-ultimate-video-editing-vivacut-24-edition-for-2024/"><u>[Updated] The Comprehensive Guide to Ultimate Video Editing  VivaCut '24 Edition for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-expert-tips-on-achieving-fluidity-in-inshot-cuts/"><u>[Updated] Expert Tips on Achieving Fluidity in Inshot Cuts</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unlocking-srt-potential-mac-edition-tutorial/"><u>[New] Unlocking SRT Potential  Mac Edition Tutorial</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-vivo-y36-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Vivo Y36</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-cutting-edge-mounts-uninterrupted-mobile-shooting/"><u>[Updated] Cutting-Edge Mounts  Uninterrupted Mobile Shooting</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-a-list-mobile-camera-utilities-for-iphone/"><u>[Updated] In 2024, A-List Mobile Camera Utilities for iPhone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-experience-next-gen-notetaking-with-mematic/"><u>In 2024, Experience Next-Gen Notetaking with Mematic</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-yt-story-excellence-a-must-follow-list-for-23/"><u>[Updated] 2024 Approved  YT Story Excellence  A Must-Follow List for '23</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-pixel-perfect-photography-excelling-in-the-best-6-4k-dslrs/"><u>[Updated] Pixel Perfect Photography  Excelling in the Best 6 4K DSLRs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-iphone-hdr-photography-tips-and-tricks/"><u>[Updated] IPhone HDR Photography  Tips & Tricks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unlocking-secrets-the-battle-of-biometric-systems-in-phones/"><u>[Updated] 2024 Approved  Unlocking Secrets  The Battle of Biometric Systems in Phones</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-inside-the-top-10-virtual-reality-smartphone-gaming/"><u>[Updated] Inside the Top 10 Virtual Reality Smartphone Gaming</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-a-detailed-exploration-of-professional-video-instruction-making/"><u>[New] In 2024, A Detailed Exploration of Professional Video Instruction Making</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-quick-and-clever-sharing-gifs-on-snapchat-made-simple/"><u>[Updated] Quick & Clever  Sharing GIFs on Snapchat Made Simple</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-joke-juggernauts-top-ranked-text-based-jokesters/"><u>[Updated] Joke Juggernauts  Top Ranked Text-Based Jokesters</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-step-by-step-tiktok-usage-for-mac-and-pc-users-for-2024/"><u>[Updated] Step-by-Step TikTok Usage for Mac and PC Users for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unveiling-advanced-features-of-vlc-for-mac-users/"><u>In 2024, Unveiling Advanced Features of VLC for Mac Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-eloquent-expression-of-germans-essential-25-phrases/"><u>The Eloquent Expression of Germans - Essential 25 Phrases</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-vivo-y36-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Vivo Y36 Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-watermark-warriors-10-best-tools-unveiled/"><u>[Updated] In 2024, Watermark Warriors  10 Best Tools Unveiled</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-crystal-clarity-in-depth-comparison-of-premium-8k-monitors/"><u>[Updated] 2024 Approved  Crystal Clarity  In-Depth Comparison of Premium 8K Monitors</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-integrate-advanced-note-organization-on-mematic-for-2024/"><u>[Updated] Integrate Advanced Note Organization on Mematic for 2024</u></a></li>
+</ul></div>

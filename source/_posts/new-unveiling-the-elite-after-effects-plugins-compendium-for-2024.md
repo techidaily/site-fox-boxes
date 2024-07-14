@@ -1,7 +1,7 @@
 ---
 title: "[New] Unveiling the Elite After Effects Plugins Compendium for 2024"
-date: 2024-06-17T13:30:09.599Z
-updated: 2024-06-18T13:30:09.599Z
+date: 2024-07-13T19:50:57.721Z
+updated: 2024-07-14T19:50:57.721Z
 tags: 
   - screen-recording
   - ai video
@@ -44,6 +44,9 @@ If you want to effectively use the After Effects expressions even if you are not
 
 ![iexpression 2 plugin](https://images.wondershare.com/filmora/article-images/2022/07/iexpression-2-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## TextBox
 
 Link: <https://aescripts.com/textbox/>
@@ -58,6 +61,9 @@ Link: <https://aescripts.com/font-manager/>
 
 Font Manager is an After Effects text plugin that is useful when creating and working with animated typefaces. You can use it to create the most complex animated text graphics in just a few simple clicks. You will also find it very familiar to use as the user interface is similar to the Character Panel in After Effects.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![font manager plugin](https://images.wondershare.com/filmora/article-images/2022/07/font-manager-plugin.jpg)
 
 ## Cartoon Moblur
@@ -68,6 +74,9 @@ This is the most ideal plugin to choose when you want to add motion trail to the
 
 ![cartoon moblur plugin](https://images.wondershare.com/filmora/article-images/2022/07/cartoon-moblur-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Shadow Studio
 
 If you are looking for shadow styles that will go very well with your project, Shadow Studio is a good plugin to get. It offers you a wide variety of shadow styles including radial, inner, soft, and long shadows. Most people find it an easier and more affordable way to add soft shadows as compared to traditional methods like raytracing. It is also quite easy to use, meaning that shadow effects that would take hours to complete can be done in a matter of minutes.
@@ -80,6 +89,9 @@ Link: <https://aedownload.com/download-texts-animation-bundle-free-videohive/>
 
 This is a bundle of more than 80 different templates to add text effects to any text in After Effects. All the templates in the bundle are easily customizable and the plugin is very easy to use, allowing you to create amazing text effects in just a few clicks. The templates are modeled from various titles, quotes, and stories, so there is a little bit of something for everyone. Plus, the bundle gets constant updates and you are likely to get new templates with each update.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![texts animation bundle plugin](https://images.wondershare.com/filmora/article-images/2022/07/texts-animation-bundle-plugin.jpg)
 
 ## Artificial Intelligence Titles
@@ -131,3 +143,46 @@ On its own After Effects comes with so many post-production effects and features
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/in-2024-step-by-step-method-for-selecting-tiktok-screenshots/"><u>In 2024, Step-by-Step Method for Selecting TikTok Screenshots</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-step-by-step-methodology-effortless-youtube-playlist-embedding-on-websites/"><u>2024 Approved  Step-by-Step Methodology  Effortless YouTube Playlist Embedding on Websites</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-youtube-income-how-much-does-each-1000-viewer-earn-for-2024/"><u>Decoding YouTube Income  How Much Does Each 1,000 Viewer Earn for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-streamline-sharing-process-youtube-to-facebook-tips/"><u>[Updated] Streamline Sharing Process  YouTube to Facebook Tips</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-leading-picture-holding-portals/"><u>2024 Approved  Leading Picture Holding Portals</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-crafting-perfect-playlists-import-music-with-inshot/"><u>[New] Crafting Perfect Playlists  Import Music with InShot</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-educational-videography-mastery-in-cutting-and-pacing/"><u>2024 Approved  Educational Videography  Mastery in Cutting & Pacing</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-fusion-of-video-files-for-ios-devices/"><u>2024 Approved  Fusion of Video Files for iOS Devices</u></a></li>
+<li><a href="https://win11.techidaily.com/resolve-keyboard-errors-fixing-function-keys-on-windows-11/"><u>Resolve: Keyboard Errors - Fixing Function Keys on Windows 11</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-breakneck-beats-short-track-highlights/"><u>2024 Approved  Breakneck Beats  Short Track Highlights</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-from-pro-to-max-the-transformative-journey-of-apples-macbook-chips/"><u>2024 Approved  From Pro to Max  The Transformative Journey of Apple’s MacBook Chips</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/asuss-proart-pa-329q-a-comprehensive-evaluation-of-a-top-tier-monitoring-solution/"><u>Asus’s ProArt PA 329Q  A Comprehensive Evaluation of a Top-Tier Monitoring Solution</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-luminouslabs-top-10-free-and-paid-filters-compare/"><u>2024 Approved  LuminousLabs  Top 10 Free & Paid Filters Compare</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-dominance-in-video-landscape-mirrorless-vs-dslr-cameras/"><u>[New] In 2024, Dominance in Video Landscape  Mirrorless vs DSLR Cameras</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-from-tecno-pova-5-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Tecno Pova 5 FRP Bypass</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-expert-hints-for-efficiently-managing-extra-large-files-iphones-and-macs/"><u>2024 Approved  Expert Hints for Efficiently Managing Extra-Large Files  IPhones & Macs</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-mastering-instagrams-musical-licensing-landscape/"><u>[Updated] In 2024, Mastering Instagram's Musical Licensing Landscape</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-forge-funny-frameworks/"><u>2024 Approved  Forge Funny Frameworks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-convert-srt-free-top-10-web-subtitle-services/"><u>2024 Approved  Convert SRT Free  Top 10 Web Subtitle Services</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-master-the-art-of-marketing-with-these-top-phrases/"><u>[Updated] Master the Art of Marketing with These Top Phrases</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-invest-in-quality-top-5-handhoced-stabilizers-review/"><u>2024 Approved  Invest in Quality  Top 5 Handhoced Stabilizers Review</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-comprehensive-guide-to-utilizing-telegram-web-services/"><u>2024 Approved  Comprehensive Guide to Utilizing Telegram Web Services</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-industry-leaders-top-notch-free-presentation-resources/"><u>2024 Approved  Industry Leaders  Top-Notch, Free Presentation Resources</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-master-the-skill-of-learning-behind-screen-scenes/"><u>2024 Approved  Master the Skill of Learning Behind Screen Scenes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-camera-roundup-top-picks-for-superior-videography/"><u>2024 Approved  Camera Roundup  Top Picks for Superior Videography</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-freescape-extraction-revisited-a-look-at-the-latest-update/"><u>2024 Approved  Freescape Extraction Revisited  A Look at the Latest Update</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-meme-ology-manual-easy-ways-to-whip-up-giggles/"><u>2024 Approved  Meme-Ology Manual  Easy Ways to Whip Up Giggles</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-fabricate-viral-gifs-via-giphy-portal/"><u>2024 Approved  Fabricate Viral Gifs via Giphy Portal</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-discovering-the-leading-6-head-mounted-gopro-systems-for-capturing-life/"><u>2024 Approved  Discovering the Leading 6 Head-Mounted GOPRO Systems for Capturing Life</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-capture-the-chuckles-a-guide-to-using-snapchats-laughing-lenses/"><u>2024 Approved  Capture the Chuckles  A Guide to Using Snapchat’s Laughing Lenses</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-manage-srt-files-in-winmac-environments/"><u>2024 Approved  Manage SRT Files in Win/Mac Environments</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-how-to-make-time-lapse-videos-with-gopro-studio/"><u>2024 Approved  How to Make Time Lapse Videos With GoPro Studio</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-iphone-11-pro-ios-system-issues-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iPhone 11 Pro iOS System Issues? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-masterclass-in-cinematic-viewing-youtube-edition/"><u>[Updated] In 2024, Masterclass in Cinematic Viewing - YouTube Edition</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-top-3-techniques-converting-pin-videos-to-mp3s/"><u>[New] Top 3 Techniques  Converting Pin Videos To MP3s</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-how-to-craft-an-engaging-solo-auditory-adventure/"><u>2024 Approved  How to Craft an Engaging Solo Auditory Adventure</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-unlocking-tiktoks-secrets-to-skyrocketing-engagement/"><u>[New] In 2024, Unlocking TikTok's Secrets to Skyrocketing Engagement</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-how-to-transcribe-a-youtube-video-for-free/"><u>[New] 2024 Approved  How to Transcribe a YouTube Video for FREE</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-what-is-hdri-everything-you-need-to-know-about-hdri/"><u>New 2024 Approved What Is HDRI? Everything You Need to Know About HDRI</u></a></li>
+</ul></div>

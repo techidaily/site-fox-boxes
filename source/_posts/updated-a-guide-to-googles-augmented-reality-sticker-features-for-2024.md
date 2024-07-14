@@ -1,7 +1,7 @@
 ---
 title: "[Updated] A Guide to Google's Augmented Reality Sticker Features for 2024"
-date: 2024-06-17T13:50:49.480Z
-updated: 2024-06-18T13:50:49.480Z
+date: 2024-07-13T20:13:19.987Z
+updated: 2024-07-14T20:13:19.987Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,9 @@ The thing is that it did not last long. Ever since Google launched its Pixel 4a 
 
 Owners of older Pixel models should not worry since the devices' hardware isn't changed. Thus, they will continue to support Playground, the app needed to use Google AR Stickers.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How To Use Google Playground AR Stickers on Pixel 4 and Earlier
 
 As mentioned above, older Pixel models still have Google Playground support. These devices are Pixel 4 and earlier. Meanwhile, Playmojis (3D AR Stickers) are available only for Pixel 3, 3a, and 4.
@@ -100,6 +103,9 @@ Step5 Tap the purple circle button at the bottom center of the screen to start r
 
 Step6 You'll see the video you recorded on the left side of the screen. Tap the "Edit" button to proceed to the video timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![edit option on filmora ar camera](https://images.wondershare.com/filmorago/article-image/click-edit-when-you-created-your-animoji-video-on-filmorago.jpg)
 
 Step7 Preview your video, edit as needed, and export it.
@@ -168,6 +174,9 @@ The best thing about Filmora AR Camera is it lets you record multiple videos wit
 
 Here's a tutorial on how to record an AR video & how to edit an AR selfie video on iPhone.
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### To Record an AR Video
 
 Step1 Install Filmora for Mobile from the App store.
@@ -204,6 +213,9 @@ Step2 Tap "Canvas" to adjust the video ratio size so it would be perfect for Tik
 
 Step3 Tap "Filters" to add more magic to the video.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ![adding filters on filmora for iphone](https://images.wondershare.com/filmorago/article-image/tap-filter-button-for-ar-video-on-filmorago.jpg)
 
 Step4 Suppose there is more than one video clip, and you're combining them. Tap the junction between them to add transition effects so that the switch would not look too abrupt or to make the video cooler.
@@ -265,3 +277,50 @@ Google AR Stickers are great for enhancing your photos and videos. Too bad it's 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-interactive-achievements-the-click-based-reward/"><u>In 2024, Interactive Achievements  The Click-Based Reward</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-stumble-upon-substantial-comment-sections/"><u>In 2024, Stumble upon Substantial Comment Sections</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/navigating-the-maze-of-massive-content-movement-from-iphones-to-mac/"><u>Navigating the Maze of Massive Content Movement From iPhones to Mac</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-2024-approved-enhance-videos-on-tiktok-with-effective-captions/"><u>[Updated] 2024 Approved  Enhance Videos on TikTok with Effective Captions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/cutting-edge-free-livestream-platforms-and-programs-reviewed-here-for-2024/"><u>Cutting-Edge Free Livestream Platforms and Programs Reviewed Here for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-pioneering-viewer-retention-discovering-6-video-forms/"><u>In 2024, Pioneering Viewer Retention  Discovering 6 Video Forms</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-mastering-the-art-of-trailer-sound-design/"><u>In 2024, Mastering the Art of Trailer Sound Design</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-transforming-movies-into-virtual-reality-realms/"><u>[New] 2024 Approved  Transforming Movies Into Virtual Reality Realms</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/mastering-speech-to-text-conversion-with-ms-word-for-2024/"><u>Mastering Speech-to-Text Conversion with MS Word for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-action-and-adventure-with-ions-pro-3-camera-insight/"><u>[New] Action and Adventure with ION's Pro 3 Camera Insight</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-best-gear-choosing-cameras-for-live-dynamic-music-visuals-in-hd/"><u>[Updated] In 2024, Best Gear  Choosing Cameras for Live, Dynamic Music Visuals in HD</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-pinnacle-of-iphone-photography-finding-ultimate-angles-for-2024/"><u>[Updated] The Pinnacle of iPhone Photography  Finding Ultimate Angles for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/android-and-ios-the-finest-virtual-experiences/"><u>Android and iOS  The Finest Virtual Experiences</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-comprehensive-analysis-the-power-of-sj-cam-s6/"><u>2024 Approved  Comprehensive Analysis  The Power of SJ-CAM S6</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-how-to-banish-spotifys-recommended-podcasts-for-2024/"><u>[Updated] How to Banish Spotify's Recommended Podcasts for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-effortlessly-arrange-your-iphones-memories-into-ordered-albums-for-icloud-for-2024/"><u>[New] Effortlessly Arrange Your iPhone's Memories Into Ordered Albums for iCloud for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-master-management-with-our-12-best-tycoon-games-ever-crafted/"><u>2024 Approved  Master Management with Our #12 Best Tycoon Games Ever Crafted</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone XR? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-experts-picks-for-high-quality-vector-websites/"><u>[Updated] The Expert's Picks for High-Quality Vector Websites</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-exploring-the-genesis-and-evolution-of-windows-movie-maker/"><u>[Updated] In 2024, Exploring the Genesis and Evolution of Windows Movie Maker</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-the-educators-compendium-of-video-assisted-methods/"><u>[New] 2024 Approved  The Educator's Compendium of Video-Assisted Methods</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-asus-proart-pa-329q-unveiled-a-critical-perspective-on-a-high-end-monitor/"><u>In 2024, Asus ProArt PA 329Q Unveiled  A Critical Perspective on a High-End Monitor</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-unleash-your-adventure-with-panasonics-cutting-edge-hx-a1-cam-for-2024/"><u>[Updated] Unleash Your Adventure with Panasonic's Cutting-Edge HX-A1 Cam for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/2024-approved-how-to-add-audio-fade-in-effect/"><u>2024 Approved How to Add Audio Fade In Effect</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-fabricate-comical-artwork-adobe-style/"><u>[Updated] Fabricate Comical Artwork, Adobe Style</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-uncover-the-10-most-trusted-wedding-timer-apps-androidios-of-2023/"><u>[New] 2024 Approved  Uncover the 10 Most Trusted Wedding Timer Apps (Android/iOS) of 2023</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-best-5-apple-podcast-services-for-ios-users/"><u>[New] 2024 Approved  Best 5 Apple Podcast Services for iOS Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-building-a-strong-foundation-for-advertising-deals-using-famebit-methods-for-2024/"><u>[Updated] Building a Strong Foundation for Advertising Deals Using FameBit Methods for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/canon-pro-editing-essentials-10plus-available-paid-and-free-choice/"><u>Canon Pro-Editing Essentials – 10+ Available, Paid & Free Choice</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-enhance-iphone-hd-video-clarity-in-premiere-pro-post-production-for-2024/"><u>[Updated] Enhance iPhone HD Video Clarity in Premiere Pro Post-Production for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-quick-route-to-true-profile-ages-on-tiktok-for-2024/"><u>[Updated] The Quick Route to True Profile Ages on TikTok for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-xiaomi-14-ultra-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Xiaomi 14 Ultra Phone Pattern Lock</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-inter-app-playlist-exchange-made-simple/"><u>2024 Approved  Inter-App Playlist Exchange Made Simple</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-mastering-windows-11-media-with-movie-maker-tools/"><u>In 2024, Mastering Windows 11 Media with Movie Maker Tools</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-nine-remedies-for-firefox-video-glitches-on-social-media/"><u>2024 Approved  Nine Remedies for Firefox Video Glitches on Social Media</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-paving-your-way-to-cost-savvy-cloud-choices-for-2024/"><u>[Updated] Paving Your Way to Cost-Savvy Cloud Choices for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-visual-mastery-with-iphone-identifying-optimal-shooting-spots/"><u>[New] 2024 Approved  Visual Mastery with iPhone  Identifying Optimal Shooting Spots</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-guidelines-for-optimal-youtube-video-brightness/"><u>[Updated] 2024 Approved  Guidelines for Optimal YouTube Video Brightness</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/expert-analysis-top-picks-of-the-best-5-slow-motion-cams-for-2024/"><u>Expert Analysis  Top Picks of the Best 5 Slow Motion Cams for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-virtual-world-laughter-excavating-the-best-metaverse-jokes-for-2024/"><u>[Updated] Virtual World Laughter  Excavating the Best Metaverse Jokes for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/2024-approved-fast-forward-your-videos-a-beginners-guide-to-time-lapse-software/"><u>2024 Approved Fast Forward Your Videos A Beginners Guide to Time Lapse Software</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/navigating-the-world-of-iphone-hdr-a-beginners-guide-for-2024/"><u>Navigating the World of iPhone HDR  A Beginner's Guide for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-enhancing-audio-transition-smoothness-in-audacity-for-2024/"><u>[New] Enhancing Audio Transition Smoothness in Audacity for 2024</u></a></li>
+</ul></div>

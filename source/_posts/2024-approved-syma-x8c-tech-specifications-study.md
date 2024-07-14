@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Syma X8C Tech Specifications Study\""
-date: 2024-06-17T14:04:20.906Z
-updated: 2024-06-18T14:04:20.906Z
+date: 2024-07-13T20:27:58.186Z
+updated: 2024-07-14T20:27:58.186Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,18 @@ thumbnail: https://thmb.techidaily.com/cbd55a60b36d243580c486b7896cd6baf0fe5a1c6
 
 # Syma X8C Review
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -32,6 +44,9 @@ thumbnail: https://thmb.techidaily.com/cbd55a60b36d243580c486b7896cd6baf0fe5a1c6
 
 **You may also like:** [Full review for Syma X5C >>](HTTPS://filmora.wondershare.com/drones/syma-x5c-drone-review.html)
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Pros and Cons of Syma X8C
 
 **Pros:**
@@ -87,6 +102,9 @@ thumbnail: https://thmb.techidaily.com/cbd55a60b36d243580c486b7896cd6baf0fe5a1c6
 
 #### 5\.  Controller/Transmitter
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
@@ -97,6 +115,9 @@ thumbnail: https://thmb.techidaily.com/cbd55a60b36d243580c486b7896cd6baf0fe5a1c6
 
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
  By considering all above factors, we must say that Syma X8C is a well designed drone unit that can serve with much better results as an entry level aerial shoot recorder. As the price tag keeps it below $100 range so beginners find it most affordable for their learning needs and the gimbal protection leads to highly stable footage that can be shared on social media sites to impress friends. The control mechanisms is rated as highly responsive so will all these satisfactory features it becomes a must buy product for your air flight adventures.
@@ -127,3 +148,54 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://discord-videos.techidaily.com/top-tier-discord-automations/"><u>Top-Tier Discord Automations</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-for-new-gopro-users-here-are-essential-accessories/"><u>[New] For New GoPro Users, Here Are Essential Accessories</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-aerial-choreography-the-fresh-take-on-bebops-parrot-for-2024/"><u>[New] Aerial Choreography – The Fresh Take on Bebop's Parrot for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/boosting-your-voices-impact-free-user-friendly-changes-available-for-2024/"><u>Boosting Your Voice's Impact – Free, User-Friendly Changes Available for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-unlock-screen-recording-potential-tips-and-tricks-for-filmora-scrn-users/"><u>New 2024 Approved Unlock Screen Recording Potential Tips and Tricks for Filmora Scrn Users</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-the-aspect-ratio-handbook-mastering-social-media-visual-content-for-2024/"><u>Updated The Aspect Ratio Handbook Mastering Social Media Visual Content for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-noise-reduction-for-videographers-best-freepriced-choices/"><u>[Updated] Noise Reduction for Videographers  Best Free/Priced Choices</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-boost-engagement-with-free-intro-templates/"><u>[New] In 2024, Boost Engagement with Free Intro Templates</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-efficient-zooming-strategies-for-youtube-videos/"><u>In 2024, Efficient Zooming Strategies for YouTube Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-sony-xperia-xz-bridging-the-gap-to-ultra-hd-phones/"><u>In 2024, Sony Xperia XZ - Bridging the Gap to Ultra HD Phones</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/1716465576203-exclusive-youtube-snippet-access-high-quality-free-download/"><u>Exclusive YouTube Snippet Access - High Quality, Free Download!</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-premium-selection-top-8-tripods-for-clear-4k-videos/"><u>In 2024, Premium Selection  Top 8 Tripods for Clear 4K Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-precision-narrative-craftsmanship-how-to-write-impressive-docu-scripts/"><u>[New] 2024 Approved  Precision Narrative Craftsmanship  How to Write Impressive Docu-Scripts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-elite-meme-enhancer-program/"><u>[New] In 2024, Elite Meme Enhancer Program</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-depth-kinetics-evaluation-2023/"><u>In-Depth Kinetics Evaluation 2023</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-2024-approved-lumafusion-or-final-cut-pro-the-battle-for-video-editing-supremacy/"><u>New 2024 Approved LumaFusion or Final Cut Pro The Battle for Video Editing Supremacy</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/expressive-echoes-mastering-snapchats-cartoon-face-effects-for-2024/"><u>Expressive Echoes  Mastering Snapchat's Cartoon Face Effects for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-laughter-lab-virtually/"><u>In 2024, Laughter Lab Virtually</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-curated-cinematic-journeys-the-best-yt-film-selections/"><u>[New] 2024 Approved  Curated Cinematic Journeys  The Best YT Film Selections</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-text-tips-enhancing-image-descriptions-for-pcmac-users/"><u>[New] 2024 Approved  Text Tips  Enhancing Image Descriptions for PC/Mac Users</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/addressing-playstation-services-hiccup-on-windows/"><u>Addressing PlayStation Services Hiccup on Windows</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/reactivate-and-enhance-photo-viewing-with-ease-win-11/"><u>Reactivate and Enhance Photo Viewing with Ease (Win 11)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/digital-artistry-perfecting-your-photoshop-skills/"><u>Digital Artistry  Perfecting Your Photoshop Skills</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-win11s-top-5-no-cost-screen-recorders-updated-guide-for-2024/"><u>[New] Win11's Top 5 No-Cost Screen Recorders - Updated Guide for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-binge-worthy-viral-video-roundup-on-tiktok/"><u>[Updated] In 2024, Binge-Worthy  Viral Video Roundup on TikTok</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-blur-out-not-into-discovering-photo-clarity-web-tools/"><u>[Updated] Blur Out, Not Into! Discovering Photo Clarity Web Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-critically-acclaimed-vr-film-selections/"><u>[New] In 2024, Critically Acclaimed VR Film Selections</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/directors-toolkit-win8/"><u>Director's Toolkit Win8</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/balanced-hue-enhancer-suite/"><u>Balanced Hue Enhancer Suite</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-open-and-play-srt-on-different-platforms/"><u>In 2024, Open and Play SRT on Different Platforms</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-selecting-the-perfect-timing-for-b-roll-insertion/"><u>[New] 2024 Approved  Selecting the Perfect Timing for B Roll Insertion</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/harmony-hearts-the-ultimate-song-playlist-for-a-promise-for-2024/"><u>Harmony Hearts  The Ultimate Song Playlist for a Promise for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-filmoras-prime-selective-screen-change-list/"><u>[New] In 2024, Filmora's Prime Selective Screen Change List</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-harness-ai-to-generate-prime-video-titles/"><u>In 2024, Harness AI to Generate Prime Video Titles</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-silent-space-sounder-a-next-gen-app-to-remove-distractions-from-your-mobile-audio-experience/"><u>Updated Silent Space Sounder A Next-Gen App to Remove Distractions From Your Mobile Audio Experience</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-vivo-x-flip-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Vivo X Flip to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/distinctive-shadowing-via-outer-radial-fuzz-on-pics-cs/"><u>Distinctive Shadowing via Outer Radial Fuzz on Pics CS</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/front-seat-escapades-beyond-athletic-viewing/"><u>Front Seat Escapades Beyond Athletic Viewing</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-zoom-meetings-unveiled-maximizing-video-clarity/"><u>[New] 2024 Approved  Zoom Meetings Unveiled  Maximizing Video Clarity</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-find-your-next-favorite-free-video-player-in-our-top-12-picks-pcmobile/"><u>[New] Find Your Next Favorite Free Video Player in Our Top 12 Picks (PC/Mobile)</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-itel-s23-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Itel S23? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-exploring-every-corner-of-youtube-a-detailed-comment-guide/"><u>[New] 2024 Approved  Exploring Every Corner of YouTube  A Detailed Comment Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-transitioning-artistry-in-inshot-videos/"><u>[New] 2024 Approved  Transitioning Artistry in Inshot Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-10-yt-channels-surging-ideas-and-insights-unleashed/"><u>In 2024, 10 YT Channels Surging  Ideas and Insights Unleashed</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unveiling-iphonepcs-best-video-conversion-software-8/"><u>[New] Unveiling iPhone/PC's Best Video Conversion Software #8</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-get-just-the-essentials-from-youtube-videos-for-2024/"><u>[New] How to Get Just the Essentials From YouTube Videos for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-a-symphony-of-shades-applying-complementary-colors-for-2024/"><u>[New] A Symphony of Shades  Applying Complementary Colors for 2024</u></a></li>
+</ul></div>

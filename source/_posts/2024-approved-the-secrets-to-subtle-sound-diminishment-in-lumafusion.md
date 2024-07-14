@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Secrets to Subtle Sound Diminishment in Lumafusion\""
-date: 2024-07-09T22:06:31.956Z
-updated: 2024-07-10T22:06:31.956Z
+date: 2024-07-13T21:15:35.904Z
+updated: 2024-07-14T21:15:35.904Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,9 @@ Step3 From the choices, choose the Cross Dissolve (Fade) transition. The transit
 
 Beyond simple editing, LumaFusion excels in enhancing projects with a wide variety of built-in effects, transitions, titles, and color correction. It also has a limited (but excellent) collection of royalty-free music. Finally, LumaFusion Project Packages are a terrific solution to regularly backup a project for security or to complete altering it. After choosing Export, choose the Project Package from the list.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2\. LumaFusion Alternative Way to Fade Audio in Video
 
 A multi-track video editor made specifically for mobile devices is called LumaFusion. Journalists, filmmakers, and expert video producers often utilize it to create engrossing video narratives. But if you have a toolkit with everything you need already built in so you can use it as needed, fading is unexpectedly made simple. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) does this task faster than ever because to its user-friendly interface, which makes audio editing in Filmora a breeze.
@@ -74,6 +77,9 @@ After finishing the method for editing audio in Filmora, click the Export button
 
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3\. Related FAQs about LumaFusion
 
 ### 1\. How do you fade in a title LumaFusion?
@@ -84,6 +90,9 @@ Go to Clip Defaults to do that. You may change the Title and Transition lengths 
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. How to you split audio and video in LumaFusion?
 
 Within the timeline, tap anywhere and move the mouse left or right to divide a clip in half. The audio from your clip may then be separated in the timeline. To do so, choose the audio channel and then click the pencil-shaped edit button at the bottom of the screen. This will display a variety of choices, including tools for pan, distortion, and volume. The audio editing features in LumaFusion are virtually as spectacular as the visual options—and just as intimidating.
@@ -124,6 +133,9 @@ Go to Clip Defaults to do that. You may change the Title and Transition lengths 
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. How to you split audio and video in LumaFusion?
 
 Within the timeline, tap anywhere and move the mouse left or right to divide a clip in half. The audio from your clip may then be separated in the timeline. To do so, choose the audio channel and then click the pencil-shaped edit button at the bottom of the screen. This will display a variety of choices, including tools for pan, distortion, and volume. The audio editing features in LumaFusion are virtually as spectacular as the visual options—and just as intimidating.
@@ -151,3 +163,53 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/real-time-media-magic-the-pmix-vs-wirecast-faceoff-for-2024/"><u>Real-Time Media Magic  The PMix Vs. Wirecast Faceoff for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/rotate-your-videos-for-free-top-online-video-flippers-for-2024/"><u>Rotate Your Videos for Free Top Online Video Flippers for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-direct-video-access-top-5-ways-to-transfer-igtv-content/"><u>[Updated] 2024 Approved  Direct Video Access  Top 5 Ways to Transfer IGTV Content</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-visual-virtuosos-guide-choosing-the-best-6-4k-cameras/"><u>2024 Approved  Visual Virtuosos Guide  Choosing the Best 6 4K Cameras</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-ultimate-morphvox-alteration-guidebook/"><u>2024 Approved  Ultimate MorphVOX Alteration Guidebook</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unlocking-the-mystery-of-facebooks-hidden-activities/"><u>Unlocking the Mystery of Facebook's Hidden Activities</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-prime-quickplay-best-fluid-games-for-tablets-and-laptops/"><u>In 2024, Prime Quickplay  Best Fluid Games For Tablets & Laptops</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-correcting-gopros-fish-eye-distortion-techniques/"><u>In 2024, Correcting GoPro's Fish Eye Distortion Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-best-color-correction-app-for-2024/"><u>[New] Best Color Correction App for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-samsung-galaxy-m34-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Samsung Galaxy M34 Phone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-excellence-in-dialogue-and-plot-hub/"><u>In 2024, Excellence in Dialogue & Plot Hub</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-dive-into-ios-downloads-an-experts-guide-to-podcast-acquisition/"><u>[Updated] 2024 Approved  Dive Into iOS Downloads  An Expert's Guide to Podcast Acquisition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-the-easy-way-to-spot-and-view-trending-youtube-feedback/"><u>In 2024, The Easy Way to Spot and View Trending YouTube Feedback</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/revamping-graphic-design-with-non-acid-pro-options-for-2024/"><u>Revamping Graphic Design with Non-ACID Pro Options for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-curated-index-of-leading-vector-art-and-illustration-pages/"><u>In 2024, Curated Index of Leading Vector Art and Illustration Pages</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-top-iphone-ios-vr-games-you-should-try/"><u>[New] Top Iphone iOS VR Games You Should Try</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-hands-of-honour-versus-followers-faith-for-2024/"><u>[New] Hands of Honour Versus Followers’ Faith for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-the-budget-friendly-filmmakers-dream/"><u>In 2024, The Budget-Friendly Filmmaker's Dream</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-achieving-fluidity-in-audio-blending-using-audacity-tools/"><u>[New] In 2024, Achieving Fluidity in Audio Blending Using Audacity Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-nikon-km-170-vs-gopro-for-flexible-filmmaking/"><u>[New] 2024 Approved  Nikon KM-170 Vs GoPro for Flexible Filmmaking?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-sony-s6700-updated-summary-unpacked/"><u>[New] Sony S6700 Updated Summary Unpacked</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-essentials-of-making-engaging-youtube-shorts/"><u>The Essentials of Making Engaging YouTube Shorts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/seamless-sharing-strategies-insta-tik-tok-integration-for-2024/"><u>Seamless Sharing Strategies  Insta-Tik Tok Integration for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Motorola Defy 2? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-proven-strategies-for-unveiling-pure-photospace-using-photopea/"><u>[New] 2024 Approved  Proven Strategies for Unveiling Pure Photospace Using Photopea</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-how-to-fix-shaky-gopro-videos/"><u>[New] In 2024, How to Fix Shaky GoPro Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/ultimate-iphone-vr-game-list-for-your-next-adventure-for-2024/"><u>Ultimate iPhone VR Game List for Your Next Adventure for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-integrating-secondary-shots-tips-and-tricks/"><u>2024 Approved  Integrating Secondary Shots  Tips and Tricks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/digital-vs-physical-tackling-free-text-animations-for-2024/"><u>Digital vs Physical  Tackling Free Text Animations for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-decoding-uavs-the-science-behind-airborne-machines/"><u>[Updated] 2024 Approved  Decoding UAVs  The Science Behind Airborne Machines</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-polaroid-cubeplus-review-live-action-in-a-new-light/"><u>[New] Polaroid Cube+ Review  Live-Action in a New Light</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-creative-visual-effects-harnessing-the-power-of-free-luts/"><u>[New] 2024 Approved  Creative Visual Effects  Harnessing the Power of FREE LUTS</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-darkest-hours-meet-brightest-blessings/"><u>[New] In 2024, Darkest Hours Meet Brightest Blessings</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-gt-5-240w-by-fonelab-android-recover-contacts/"><u>How To  Restore Missing Contacts Files from GT 5 (240W).</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-experts-choice-the-10-best-movie-making-cameras/"><u>[New] Expert's Choice  The 10 Best Movie Making Cameras</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-maximizing-viewership-with-effective-game-streaming/"><u>[Updated] Maximizing Viewership with Effective Game Streaming</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-best-ways-to-get-high-quality-version-of-pictures-for-free/"><u>In 2024, Best Ways To Get High Quality Version Of Pictures For Free</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-elevate-your-online-presence-editing-expertise-for-haul-vlogs/"><u>In 2024, Elevate Your Online Presence  Editing Expertise for Haul Vlogs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-avoid-common-mistakes-in-youtube-livestreaming-with-best-webcams/"><u>[Updated] 2024 Approved  Avoid Common Mistakes in YouTube Livestreaming with Best Webcams</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-cutting-edge-20-public-domain-pubg-slideshows/"><u>2024 Approved  Cutting-Edge 20 Public Domain PUBG Slideshows</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-top-ranked-costless-pixel-perfection-aid-for-2024/"><u>[New] Top-Ranked Costless Pixel Perfection Aid for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-mastering-the-craft-perfecting-podcast-trailer-production/"><u>In 2024, Mastering the Craft  Perfecting Podcast Trailer Production</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-realme-gt-5-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Realme GT 5 Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-spectral-vision-next-gen-drone-review/"><u>2024 Approved  Spectral Vision  Next-Gen Drone Review</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-concept-to-completion-crafting-your-youtube-masterpiece/"><u>[Updated] 2024 Approved  From Concept to Completion  Crafting Your YouTube Masterpiece</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/slow-your-roll-thriving-in-the-world-of-sluggish-youtube-content-52-chars-for-2024/"><u>Slow Your Roll  Thriving in the World of Sluggish YouTube Content (52 Chars) for 2024</u></a></li>
+</ul></div>

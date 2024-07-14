@@ -1,7 +1,7 @@
 ---
 title: "Innovative Techniques for Captivating AE Titles for 2024"
-date: 2024-06-17T13:51:15.115Z
-updated: 2024-06-18T13:51:15.115Z
+date: 2024-07-13T20:13:47.092Z
+updated: 2024-07-14T20:13:47.092Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,9 @@ Along with After Effects source text effect types, we have illustrated how you c
 
 There are certain properties and parameters associated with text effects and animations in After Effects. You need to get a complete overview of these types so that you can adjust them and come up with stunning text animations in After Effects.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. 3D Text
 
 Generally, when you type a text in After Effects, by default, it comes out to be two-dimensional. All the associated properties have X and Y axis only. However, if you are planning to create 3D text and title, you need to have Z axis.
@@ -159,12 +162,18 @@ There are different variations of zoom in and out effect that you can try on you
 
 You must have seen the text animation where the blurry text comes into focus and this can be achieved using Blur parameter. Many people confused Blur with Opacity but blur refers to out of focus while opacity can be understood by fade in and fade out effect. You can adjust the horizontal and vertical blur amount separately and you can come up with stunning text animations by changing Blur value.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. Fill and Stroke
 
 When it comes to text formatting in animation, fill color and stroke color play a major role. You can change the fill of the text so that the text animation is about changing color randomly. There are different options available for fill color such as RGB, Hue, Saturation, and likewise.
 
 Similarly, the stroke color can be changed and you can create an animation with changing outline color. At the same time, you can adjust the stroke width to make the text look thick or thin as per your animation requirements.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 6\. Skew
 
 If you want your text to be distorted and unusual, the skew parameter is there for you in After Effects. Skew means the character will not stay parallel and at right angles. You can adjust the skew value make texts distorted and this is useful in several text animations where distorted texts become normal texts. You can also skew texts in respect to different axis for creative animation.
@@ -219,6 +228,9 @@ Step3 Double-click on the text layer on the timeline to edit the text preset. Yo
 
 Step4 Go to Animation section and click on Advanced button. Change different parameters under Customize section such as Blue, Opacity, Shadow, and much more. You can create keyframes on the timeline like AE and edit parameters as per your preference.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add animation text in filmora](https://images.wondershare.com/filmora/article-images/2022/09/add-animation-text-in-filmora.jpg)
 
 ## Part 4\. Related FAQs of Title Effects in After Effects
@@ -258,3 +270,47 @@ Motion title is a dynamic text effect template available in After Effects throug
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-on-apple-iphone-6-plus-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code On Apple iPhone 6 Plus</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-in-depth-comparison-can-inshot-outshine-competitors/"><u>2024 Approved  In-Depth Comparison  Can InShot Outshine Competitors?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/advanced-shade-realist-app-for-2024/"><u>Advanced Shade Realist App for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-navigating-final-cut-pro-with-ease-an-insiders-guide-for-2024/"><u>[Updated] Navigating Final Cut Pro with Ease  An Insider's Guide for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-complete-examination-of-camstudios-capturing-features/"><u>[Updated] 2024 Approved  Complete Examination of CamStudio's Capturing Features</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-luminous-android-video-editing-hacks/"><u>[Updated] In 2024, Luminous Android Video Editing Hacks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/fundamentals-of-writing-captivating-videography-scripts-for-2024/"><u>Fundamentals of Writing Captivating Videography Scripts for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-unlocking-potential-innovations-in-gif-artistry-for-2024/"><u>[New] Unlocking Potential  Innovations in GIF Artistry for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-unlock-youtubes-potential-essential-tips-and-techniques-for-optimal-titles/"><u>In 2024, Unlock YouTube's Potential  Essential Tips & Techniques for Optimal Titles</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/ensemble-moves-syncing-your-song-collections-for-2024/"><u>Ensemble Moves  Syncing Your Song Collections for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-exclusive-selection-top-gopro-adornments/"><u>In 2024, Exclusive Selection  Top Gopro Adornments</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-craft-and-share-360-videos-to-youtube-an-essential-guide-for-creators/"><u>2024 Approved  Craft and Share 360 Videos to YouTube  An Essential Guide for Creators</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-streamlining-the-process-of-updating-tiktok-profile-age/"><u>[Updated] In 2024, Streamlining the Process of Updating TikTok Profile Age</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-photographic-advantages-with-quantum-hdr-mastery/"><u>[New] Photographic Advantages with Quantum HDR Mastery</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/a-newbies-blueprint-to-mastering-av1/"><u>A Newbie's Blueprint to Mastering AV1</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unlocking-the-potential-of-gopro-hero5-in-time-lapse-cinematography/"><u>In 2024, Unlocking the Potential of GoPro Hero5 in Time-Lapse Cinematography</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/from-jumble-to-flow-kinemasters-editing-masterclass-for-2024/"><u>From Jumble to Flow  Kinemaster's Editing Masterclass for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/exploring-imovies-automated-size-control-for-2024/"><u>Exploring iMovie's Automated Size Control for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-finding-the-ideal-soundtrack-for-unboxing-content/"><u>In 2024, Finding the Ideal Soundtrack for Unboxing Content</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-ultimate-guide-for-crafting-top-charting-youtube-titles/"><u>[Updated] In 2024, Ultimate Guide for Crafting Top-Charting YouTube Titles</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-from-good-to-great-transformative-tactics-with-studio/"><u>2024 Approved  From Good to Great  Transformative Tactics with Studio</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-music-to-video-seamless-audio-import-for-inshot-for-2024/"><u>[Updated] Music to Video  Seamless Audio Import for InShot for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-saving-time-avoiding-edgenuity-lessons-without-guilt/"><u>In 2024, Saving Time  Avoiding Edgenuity Lessons Without Guilt</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-realme-c67-5g-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Realme C67 5G Users</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-understanding-360-degree-and-virtual-reality-cinematography-for-2024/"><u>[Updated] Understanding 360-Degree and Virtual Reality Cinematography for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-vocal-variety-ventures-in-free-fire-play/"><u>[Updated] Vocal Variety Ventures in Free Fire Play</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/create-digital-humor-kapwings-meme-builder/"><u>Create Digital Humor  Kapwing's Meme Builder</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-triple-thrills-novel-bio-techniques-and-engaging-formats-to-boost-your-tiktok-filmora-following/"><u>[Updated] Triple Thrills  Novel Bio Techniques and Engaging Formats to Boost Your TikTok-Filmora Following</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-a-comprehensive-walkthrough-of-youtube-timestamping-techniques/"><u>In 2024, A Comprehensive Walkthrough of YouTube Timestamping Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-podcasts-vs-youtube-which-should-you-choose-for-2024/"><u>[Updated] Podcasts Vs. YouTube  Which Should You Choose for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-key-concepts-of-interactive-storytelling/"><u>In 2024, Key Concepts of Interactive Storytelling</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-final-cut-pro-transition-tutorial-3-essential-methods/"><u>New 2024 Approved Final Cut Pro Transition Tutorial 3 Essential Methods</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-trending-threads-triumph-top-twitters-for-2024/"><u>[Updated] Trending Threads Triumph  Top Twitters for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/erase-red-eye-in-iphone-pics-for-free-with-our-guide/"><u>Erase Red-Eye in iPhone Pics for Free with Our Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-video-vault-mastering-the-art-of-live-video-storage-for-2024/"><u>[New] The Video Vault  Mastering the Art of Live Video Storage for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-t5-unboxed-the-revolution-in-action-filming/"><u>2024 Approved  T5 Unboxed - The Revolution in Action Filming</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-ultimate-videographers-companion-the-ion-air-pro-3-deep-dive/"><u>[Updated] In 2024, The Ultimate Videographer's Companion  The ION Air Pro 3 Deep Dive</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-total-gigabytes-for-an-entirety-of-daily-films/"><u>2024 Approved  Total Gigabytes for an Entirety of Daily Films</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-transforming-videos-for-twitter-success-expert-convertors-guide/"><u>[Updated] In 2024, Transforming Videos for Twitter Success  Expert Convertors Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-setting-up-sports-content-sharing-on-a-mac-device/"><u>[Updated] Setting Up Sports Content Sharing on a Mac Device</u></a></li>
+</ul></div>

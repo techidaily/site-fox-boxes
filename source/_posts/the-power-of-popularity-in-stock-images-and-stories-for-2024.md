@@ -1,7 +1,7 @@
 ---
 title: "The Power of Popularity in Stock Images & Stories for 2024"
-date: 2024-07-02T12:44:16.896Z
-updated: 2024-07-03T12:44:16.896Z
+date: 2024-07-13T20:12:16.914Z
+updated: 2024-07-14T20:12:16.914Z
 tags: 
   - screen-recording
   - ai video
@@ -22,6 +22,9 @@ A stock photo meme is an image or video you use to communicate a specific idea. 
 
 So, what are the most popular stock photo memes, and how did they reach this status? Keep reading to find out more.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ## Part1: Hide the Pain Harold
 
 ![hide the pain harold](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-1.jpg)
@@ -51,6 +54,9 @@ Another popular stock image meme is Distracted Boyfriend. It features the stock 
 
 The original photo is the work of Antonio Guillem, who uploaded it on iStock in November 2015\. Initially, the photo was labeled as a lisloyal man with his girlfriend looking at another girl and required purchasing the proper license to use it.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![original photo](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-5.jpg)
 
 According to Meme Documentation, the first version of the Distracted boyfriend theme dates back to January 2017\. Prog Snob, a Turkish progressive rock group on Facebook, posted the meme on their page to reference Phil Collin's distraction from progressive rock by pop music. However, it was the August 2017 Twitter version referencing the youth's feelings towards capitalism and socialism that went viral.
@@ -64,6 +70,9 @@ Since then, the meme continues to enjoy mass popularity, including:
 
 The latest version of Distracted boyfriend is a compilation of photos featuring the three models, with the last one showing the women hanging out.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![latest version](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-6.jpg)
 
 In addition, Antonio Guillem also has a stock image meme where the roles are reversed. The meme was later posted on Reddit underneath the original and received over 25,600 points in 24 hours.
@@ -113,6 +122,9 @@ In addition, the post received over 91,700 points, with 95% of upvotes, within a
 
 The photo is available on most stock photo websites, such as Adobe and Tumblr. Furthermore, you will find other hilarious versions of Bonjour Bear under the subreddits r/dankmemes and r/memes on Reddit.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part5: FAQs
 
 ### 1\. Can you use stock photos for memes?
@@ -160,3 +172,45 @@ Therefore, always perform stock image reverse searches to verify the image permi
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-combine-audio-streams-into-powerpoint-flow/"><u>[New] Combine Audio Streams Into PowerPoint Flow</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-exploring-virtual-landscapes-with-android-vr360/"><u>[New] Exploring Virtual Landscapes with Android (VR/360)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-harmonizing-scores-with-cinematic-vision-in-film-trailers-for-2024/"><u>[New] Harmonizing Scores with Cinematic Vision in Film Trailers for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-echoing-social-engagement-transferring-tiktok-videos-on-facebook/"><u>[New] In 2024, Echoing Social Engagement  Transferring TikTok Videos on Facebook</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-how-to-curate-christian-chimes-for-devotion/"><u>[New] How to Curate Christian Chimes for Devotion</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-itel-p55-5g-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Itel P55 5G?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-unlocking-the-mystery-of-facebooks-hidden-activities/"><u>[New] In 2024, Unlocking the Mystery of Facebook's Hidden Activities</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-cutting-edge-editing-advanced-strategies-for-using-the-background-erase-feature/"><u>[Updated] 2024 Approved  Cutting Edge Editing  Advanced Strategies for Using the Background Erase Feature</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-edge-40-pro-by-fonelab-android-recover-data/"><u>How to recover lost data from Edge 40 Pro?</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/tackling-the-mystery-of-missing-shorts-video-images/"><u>Tackling the Mystery of Missing Shorts Video Images</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-remove-flashlight-from-apple-iphone-se-lock-screen-by-drfone-ios/"><u>How To Remove Flashlight From Apple iPhone SE Lock Screen</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Sony Xperia 1 V | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-art-of-short-to-mp4-format-transformation/"><u>In 2024, The Art of Short-to-MP4 Format Transformation</u></a></li>
+<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-infinix-zero-30-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Infinix Zero 30 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-ultimate-hd-experience-1-blu-ray-players-list/"><u>[New] Ultimate HD Experience  #1 Blu-Ray Players List</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-impressive-image-sequence-on-instagram/"><u>2024 Approved  Impressive Image Sequence on Instagram</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-quieting-the-cinematic-chaos-techniques-for-audio-trimming-in-imovie-videos-for-2024/"><u>New Quieting the Cinematic Chaos Techniques for Audio Trimming in iMovie Videos for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Xiaomi Redmi 13C 5G? | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/unlock-accessibility-adding-subtitles-and-captions-in-final-cut-pro-x-for-2024/"><u>Unlock Accessibility Adding Subtitles and Captions in Final Cut Pro X for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unbeatable-prices-for-top-6-action-cams-under-100-for-2024/"><u>[New] Unbeatable Prices for Top 6 Action Cams Under $100 for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-secrets-to-selecting-the-best-online-game-coverage-for-2024/"><u>[New] Secrets to Selecting the Best Online Game Coverage for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-iphone-and-android-edition-compile-the-most-useful-top-8-edits-tools/"><u>[New] In 2024, IPhone and Android Edition  Compile the Most Useful Top 8 Edits Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unattached-audio-puzzle-resolution-guide-for-2024/"><u>Unattached Audio Puzzle  Resolution Guide for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-easily-pulling-picture-moments-from-videos-for-windows-photos/"><u>[Updated] 2024 Approved  Easily Pulling Picture Moments From Videos for Windows Photos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-journey-through-ipodverse-mastering-iphones-podcast-downloads-for-2024/"><u>[New] Journey Through iPodverse  Mastering iPhone's Podcast Downloads for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-stream-video-freely-on-any-os-no-cost-video-player/"><u>[New] In 2024, Stream Video Freely on Any OS  No-Cost VIDEO Player</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/revolutionizing-voices-leading-real-time-alteration-technologies/"><u>Revolutionizing Voices Leading Real-Time Alteration Technologies</u></a></li>
+<li><a href="https://change-location.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Samsung Galaxy S23 | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-high-resolution-passport-portraits-download-for-free-and-print-your-document/"><u>[Updated] 2024 Approved  High-Resolution Passport Portraits - Download for FREE & Print Your Document</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-skys-the-limit-with-husqvarnas-x4-drone-for-2024/"><u>The Sky's the Limit with Husqvarna's X4 Drone for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-time-lapse-magic-capturing-moments-with-an-ipad-for-2024/"><u>[New] Time-Lapse Magic  Capturing Moments with an iPad for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-vivo-y100i-power-5g-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Vivo Y100i Power 5G</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/analyzing-video-success-self-vs-rivals-in-the-youtube-arena-for-2024/"><u>Analyzing Video Success  Self Vs. Rivals in the YouTube Arena for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-speeding-up-projects-without-compromising-quality-for-2024/"><u>[New] Speeding Up Projects Without Compromising Quality for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-top-5-free-screen-recorders-on-windows-11-2023-update/"><u>[New] Top 5 Free Screen Recorders on Windows 11-2023 Update</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-discreet-methods-to-evade-educational-media/"><u>[New] Discreet Methods to Evade Educational Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/start-a-secure-digital-footprint-meta-usa/"><u>Start a Secure Digital Footprint – Meta USA</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-eternal-methodology-for-instantaneous-tiktok-linking/"><u>The Eternal Methodology for Instantaneous TikTok Linking</u></a></li>
+</ul></div>

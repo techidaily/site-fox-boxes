@@ -1,7 +1,7 @@
 ---
 title: "[New] Merge Speeches and Music Into Slides Sequences"
-date: 2024-06-17T14:19:54.128Z
-updated: 2024-06-18T14:19:54.128Z
+date: 2024-07-13T20:44:44.305Z
+updated: 2024-07-14T20:44:44.305Z
 tags: 
   - screen-recording
   - ai video
@@ -46,6 +46,9 @@ To your PowerPoint presentation, you can add audio, such as music, narration, or
 
 ##### Step1 Select Insert > Audio
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![insert audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/insert-audio-ppt.jpg)
 
 ##### Step2 Select Audio on My PC
@@ -82,6 +85,9 @@ NOTE: Audio may begin getting recorded on its own if you are working on the olde
 
 NOTE: You can re-record the PowerPoint slides by hitting the Record Slide Show and Selecting Record from the Current Slide.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![record from current slide ppt](https://images.wondershare.com/filmora/article-images/2022/02/record-from-current-slide-ppt.jpg)
 
 ##### Step5 Hit the Record tab to begin recording narration
@@ -110,6 +116,9 @@ Let's suppose we've added long audio to our presentation, and we just only need 
 
 ##### Step2 Click Playback> Trim Audio as shown below
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ![trim ppt audio](https://images.wondershare.com/filmora/article-images/2022/02/trim-ppt-audio.jpg)
 
 ##### Step3 Within the pop-up window, you need to use the red and green markers to adjust the start and endpoint of the audio
@@ -158,7 +167,7 @@ Let’s see how we can achieve this!
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![download](https://images.wondershare.com/filmora/images/filmora-box.png)
 
@@ -180,6 +189,18 @@ Hover the mouse over the media you’ve imported for presentation and click the 
 
 Double-tap the Audio on the timeline and adjust the Audio to fade-in, fade-out, volume, pitch, speed, etc.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![edit audio Filmora](https://images.wondershare.com/filmora/article-images/edit-music.JPG)
 
 ##### Step4 Export audio
@@ -242,3 +263,40 @@ In this guide, we’ll specifically talk about the feature by which you can reco
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-securing-success-in-win11-conferences-via-zoom/"><u>[New] In 2024, Securing Success in Win11 Conferences via Zoom</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-polarr-photo-magic-your-complete-image-processing-manual-for-2024/"><u>[New] Polarr Photo Magic  Your Complete Image Processing Manual for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/re-establish-audible-vids-on-social-sound/"><u>Re-Establish Audible Vids on Social Sound</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-ideal-camcorders-for-high-definition-podcasts/"><u>[Updated] Ideal Camcorders for High-Definition Podcasts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-masterclass-in-timelapse-capture-via-gopro-studio-for-2024/"><u>[Updated] Masterclass in Timelapse Capture via GoPro Studio for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-xsplit-reviews-in-depth-game-split-analysis/"><u>[Updated] 2024 Approved  XSplit Reviews  In-Depth Game Split Analysis</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-15-top-mobiles-elevating-dji-video-production-value/"><u>[Updated] 2024 Approved  15 Top Mobiles Elevating DJi Video Production Value</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-prime-top-5-weightless-action-recording-units/"><u>[Updated] In 2024, Prime Top 5 Weightless Action Recording Units</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/reviewing-the-pinnacle-of-tv-tech-lg-27ud88-uhd-oled-hdtv/"><u>Reviewing the Pinnacle of TV Tech - LG 27UD88-UHD OLED HDTV</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-master-quick-photo-collage-with-google-images-in-minutes/"><u>[Updated] Master Quick Photo Collage with Google Images in Minutes</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-overcome-youtube-tweet-buffer-in-chromebook/"><u>[Updated] 2024 Approved  Overcome  YouTube Tweet Buffer in Chromebook</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/scripting-an-emotionally-charged-trailer-draft/"><u>Scripting an Emotionally Charged Trailer Draft</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-sj7-elevates-action-cinematography-in-depth-review-of-its-star-4k-camera/"><u>[Updated] SJ7 Elevates Action Cinematography  In Depth Review of Its Star 4K Camera</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-boosting-visual-clarity-comprehensive-strategies-for-zooming-photos-and-videos/"><u>[Updated] In 2024, Boosting Visual Clarity  Comprehensive Strategies for Zooming Photos & Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-simplify-aquatic-footage-7-key-shooting-strategies-for-2024/"><u>[New] Simplify Aquatic Footage  7 Key Shooting Strategies for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-looking-for-windows-movie-maker-on-mac-try-these-top-5-alternatives-for-2024/"><u>New Looking for Windows Movie Maker on Mac? Try These Top 5 Alternatives for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-quick-tunes-on-your-phone-top-speed-up-apps/"><u>[Updated] Quick Tunes on Your Phone  Top Speed-Up Apps</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unleashing-voice-windows-10-audio-basics/"><u>Unleashing Voice  Windows 10 Audio Basics</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-free-football-filmmaking-basics-from-screen-to-studio-for-2024/"><u>[Updated] Free-Football Filmmaking Basics  From Screen to Studio for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-revolutionaries-building-virtual-realms/"><u>[New] In 2024, Revolutionaries Building Virtual Realms</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-pinnacle-fix-in-digital-dimensions/"><u>[Updated] 2024 Approved  Pinnacle Fix in Digital Dimensions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-essential-list-of-religious-ringing-sounds/"><u>[Updated] In 2024, The Essential List of Religious Ringing Sounds</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-zte-nubia-z60-ultra-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on ZTE Nubia Z60 Ultra Devices | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-pictureweaver-2021-seamless-photo-video-mix/"><u>[Updated] In 2024, PictureWeaver 2021  Seamless Photo-Video Mix</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-infinix-note-30-5g-lock-screen-password-by-drfone-android/"><u>How To Change Infinix Note 30 5G Lock Screen Password?</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-unleashing-true-potential-in-speech-interpretation-through-google/"><u>In 2024, Unleashing True Potential in Speech Interpretation Through Google</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-visionaryzoom-7-x-perfect-photo-amplification/"><u>[New] In 2024, VisionaryZoom 7-X  Perfect Photo Amplification</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-create-memes-for-free-with-the-meme-maker-tools/"><u>In 2024, Create Memes for Free with the Meme Maker Tools</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-top-secret-instagram-stories-viewer-apps/"><u>[New] In 2024, Top Secret Instagram Stories Viewer Apps</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-close-look-at-t-series-revenue-from-online-channels/"><u>2024 Approved  A Close Look at T-Series Revenue From Online Channels</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-top-10-desktop-and-phone-zoom-replacements/"><u>[Updated] Top 10 Desktop & Phone Zoom Replacements</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-a-closer-look-at-high-end-vr-walking-machines/"><u>[Updated] 2024 Approved  A Closer Look at High-End VR Walking Machines</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/sneak-peek-into-facebooks-off-activity-tracking-is-it-safe/"><u>Sneak Peek Into Facebook's Off-Activity Tracking – Is It Safe?</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Complete SRT File Maker's Handbook\""
-date: 2024-07-09T22:04:05.509Z
-updated: 2024-07-10T22:04:05.509Z
+date: 2024-07-13T21:14:20.136Z
+updated: 2024-07-14T21:14:20.136Z
 tags: 
   - screen-recording
   - ai video
@@ -108,6 +108,9 @@ Step4 Repeat step 2&3 for the remaining subtitle contents.
 
 See what an SRT subtitle looks like below;
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![an example of an srt subtitle on mac](https://images.wondershare.com/filmora/article-images/2022/07/how-to-create-srt-file-for-video-on-mac-1.jpg)
 
 Step5 Review and edit the subtitle.
@@ -142,6 +145,9 @@ Step2 Start the Filmora program and import the SRT file that you're looking to e
 
 Step3 Drag-n-drop the .srt file into the Timeline. Then right-click on it and select ‘Advanced Edit’ from the pop-up list.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![drag and drop srt file into timeline](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-srt-for-videos-2.jpg)
 
 Step4 Now, edit the SRT file as per requirements. The following editing operations you can perform with Filmora include;
@@ -247,6 +253,9 @@ Step4 Repeat step 2&3 for the remaining subtitle contents.
 
 See what an SRT subtitle looks like below;
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![an example of an srt subtitle on mac](https://images.wondershare.com/filmora/article-images/2022/07/how-to-create-srt-file-for-video-on-mac-1.jpg)
 
 Step5 Review and edit the subtitle.
@@ -281,6 +290,9 @@ Step2 Start the Filmora program and import the SRT file that you're looking to e
 
 Step3 Drag-n-drop the .srt file into the Timeline. Then right-click on it and select ‘Advanced Edit’ from the pop-up list.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![drag and drop srt file into timeline](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-srt-for-videos-2.jpg)
 
 Step4 Now, edit the SRT file as per requirements. The following editing operations you can perform with Filmora include;
@@ -327,3 +339,63 @@ You can create SRT on Windows using Notepad or on Mac using TextEdit. However, t
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-reverse-video-order-on-your-ios-gadget/"><u>2024 Approved  Reverse Video Order on Your iOS Gadget</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-phantasm-captures-action-tech-diary/"><u>2024 Approved  Phantasm Captures  Action Tech Diary</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-ultimate-list-of-no-cost-vectors-and-design-portals-online/"><u>2024 Approved  Ultimate List of No-Cost Vectors and Design Portals Online</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/from-instagram-video-to-mp3-sound/"><u>From Instagram Video to Mp3 Sound</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-exploring-advanced-techniques-making-a-difference-with-your-slow-motion-images-on-instagram/"><u>[Updated] Exploring Advanced Techniques  Making a Difference with Your Slow Motion Images on Instagram</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-harmonizing-in-tiktoks-duo-videos/"><u>[Updated] 2024 Approved  Harmonizing in TikTok's Duo Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-whats-new-in-big-sur-necessary-specs-and-features/"><u>2024 Approved  What's New in Big Sur  Necessary Specs and Features</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-windows-10-sound-engineers-manual/"><u>2024 Approved  The Windows 10 Sound Engineer's Manual</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-bundle-6-powerful-apps-to-remove-signature-borders/"><u>In 2024, The Ultimate Bundle – 6 Powerful Apps to Remove Signature Borders</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-samsung-galaxy-s24plus-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in Samsung Galaxy S24+ for Streaming | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-prime-selection-8-best-free-mobile-mp3-downloaders/"><u>2024 Approved  Prime Selection - 8 Best Free Mobile MP3 Downloaders</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-power-of-precision-in-slug-line-writing-techniques/"><u>2024 Approved  The Power of Precision in Slug Line Writing Techniques</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-perfectly-positioned-cards-youtube-embedding-techniques/"><u>In 2024, Perfectly Positioned Cards  YouTube Embedding Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-ultimate-path-to-flawless-video-subtitles-via-internet-services/"><u>2024 Approved  The Ultimate Path to Flawless Video Subtitles via Internet Services</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-trailblazers-in-the-world-of-virtual-reality/"><u>2024 Approved  Trailblazers in the World of Virtual Reality</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unlocking-pexels-image-arsenal-with-ease/"><u>2024 Approved  Unlocking Pexels' Image Arsenal with Ease</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-from-samsung-galaxy-a05-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Samsung Galaxy A05 FRP Bypass</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-preserving-chronological-integrity-in-visuals/"><u>2024 Approved  Preserving Chronological Integrity in Visuals</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-ultimate-selection-of-cost-free-excellent-video-player-software-on-pc-and-mobile/"><u>2024 Approved  Ultimate Selection of Cost-Free, Excellent Video Player Software on PC and Mobile</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-visual-illusions-distorted-text-methods/"><u>2024 Approved  Visual Illusions  Distorted Text Methods</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-traversing-through-windows-movie-makers-version-landscape/"><u>2024 Approved  Traversing Through Windows Movie Maker's Version Landscape</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-essential-guide-to-playstation-45-audio-tweaks/"><u>2024 Approved  The Essential Guide to PlayStation 4/5 Audio Tweaks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-orchestrating-peak-canon-temporal-scenes/"><u>2024 Approved  Orchestrating Peak Canon Temporal Scenes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-ringtone-vox-transcription-device-iphone/"><u>2024 Approved  Ringtone VOX Transcription Device (iPhone)</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-ultimate-encyclopedia-to-youtube-thumbnail-mastery/"><u>In 2024, The Ultimate Encyclopedia to YouTube Thumbnail Mastery</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/expert-guide-to-shooting-awe-inspiring-igtv-content-on-mobile-and-dslrs/"><u>Expert Guide to Shooting Awe-Inspiring IGTV Content on Mobile & DSLRs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-perfecting-the-audio-element-in-instagram-storytelling/"><u>2024 Approved  Perfecting the Audio Element in Instagram Storytelling</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-initiating-your-adventure-in-av1/"><u>2024 Approved  Initiating Your Adventure in AV1</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-starks-serenade-where-to-find-your-game-of-thrones-ringtones/"><u>2024 Approved  Stark's Serenade  Where to Find Your Game of Thrones Ringtones</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-pictures-from-find-x7-by-fonelab-android-recover-pictures/"><u>How to Rescue Lost Pictures from Find X7?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-experts-playbook-for-transforming-srt-into-diverse-formats/"><u>2024 Approved  The Expert's Playbook for Transforming SRT Into Diverse Formats</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-revive-your-bricked-samsung-galaxy-a24-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Samsung Galaxy A24 in Minutes | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-solo-sound-setback-fix-it-now/"><u>2024 Approved  Solo Sound Setback  Fix It Now</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-uniting-digital-and-physical-worlds/"><u>2024 Approved  Uniting Digital and Physical Worlds</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-explore-12-prime-flip-screen-cameras-revolutionizing-vlogs/"><u>[New] 2024 Approved  Explore 12 Prime Flip Screen Cameras Revolutionizing Vlogs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-thrill-in-the-cold-olympic-showcase-snowboarders-at-peak-performance/"><u>2024 Approved  Thrill in the Cold  Olympic Showcase - Snowboarders at Peak Performance</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-refining-reality-close-up-creations-in-minecraft/"><u>2024 Approved  Refining Reality  Close-Up Creations in Minecraft</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-efficient-techniques-for-capturing-macos-content/"><u>[Updated] 2024 Approved  Efficient Techniques for Capturing macOS Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-charting-success-with-youtube-income-streams/"><u>[New] 2024 Approved  Charting Success with YouTube Income Streams</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-top-5-omnidirectional-recording-gadgets/"><u>2024 Approved  Top 5 Omnidirectional Recording Gadgets</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/5-rapid-methods-to-upgrade-your-indoor-film-project-for-2024/"><u>5 Rapid Methods to Upgrade Your Indoor Film Project for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-screen-protectors-that-enhance-vr-filming/"><u>2024 Approved  Screen Protectors That Enhance VR Filming</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-metaverse-top-picks-friends-first-games/"><u>[New] Metaverse Top Picks  Friends-First Games</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/a-scholarly-treatise-on-directed-user-engagement/"><u>A Scholarly Treatise on Directed User Engagement</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-transforming-traditional-markets-with-virtual-engineering/"><u>[Updated] In 2024, Transforming Traditional Markets with Virtual Engineering</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/the-social-media-face-off-is-the-future-of-sharing-with-likes-not-tiktok-for-2024/"><u>The Social Media Face-Off  Is the Future of Sharing with Likes, Not TikTok for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-strategies-to-integrate-b-roll-footage-seamlessly/"><u>2024 Approved  Strategies to Integrate B-Roll Footage Seamlessly</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-techniques-for-restarting-disrupted-live-feeds-fb/"><u>2024 Approved  Techniques for Restarting Disrupted Live Feeds (FB)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unlocking-vsco-photo-editing-tips-and-tricks/"><u>2024 Approved  Unlocking VSCO  Photo Editing Tips & Tricks</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Vivo V30 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unveiling-podcasts-peak-listening-times/"><u>2024 Approved  Unveiling Podcasts  Peak Listening Times</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-unlock-fb-seo-potential-with-keyword-rich-strategies/"><u>[New] 2024 Approved  Unlock FB SEO Potential with Keyword-Rich Strategies</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/the-premier-list-masterful-mp3-shredders-for-2024/"><u>The Premier List Masterful MP3 Shredders for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-apple-iphone-11-pro-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-ios/"><u>How to Change Your Apple iPhone 11 Pro Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/a-comprehensive-guide-to-professional-level-video-editing-on-windows-11-for-2024/"><u>A Comprehensive Guide to Professional-Level Video Editing on Windows 11 for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-streamline-video-content-delivery-a-curated-list-of-players/"><u>2024 Approved  Streamline Video Content Delivery  A Curated List of Players</u></a></li>
+</ul></div>

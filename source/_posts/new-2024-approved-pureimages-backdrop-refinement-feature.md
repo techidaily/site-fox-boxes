@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  PureImage's Backdrop Refinement Feature\""
-date: 2024-06-17T14:15:29.896Z
-updated: 2024-06-18T14:15:29.896Z
+date: 2024-07-13T20:39:58.557Z
+updated: 2024-07-14T20:39:58.557Z
 tags: 
   - screen-recording
   - ai video
@@ -26,14 +26,20 @@ No matter you are a professional content creator or a newbie, we'll be discussin
 
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to Erase a White Background in Affinity Designer
 
 To erase a white background in Affinity Designer, do these steps:
 
-Step1 In the first step, install the [Affinity Designer](https://affinity.serif.com/en-us/designer/)software and launch it on your computer. Go to **"File" > "Open"** and head to the location of your image with a white background on your drive to import it.
+Step1 In the first step, install the [Affinity Designer](https://affinity.serif.com/en-us/designer/) software and launch it on your computer. Go to **"File" > "Open"** and head to the location of your image with a white background on your drive to import it.
 
 Now access the **Pixel Persona** section in the left corner of the software screen by clicking the **colored boxes** icon.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![accessing the pixel persona in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-pixel-persona-in-affinity-designer.png)
 
 Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and disable **"Lock."** Now right-click on your layer again, and select **"Rasterize"** to enable editing of specific parts of the image.
@@ -50,6 +56,9 @@ Step4 Next, zoom in on your subject. Press & hold the ALT key on your keyboard, 
 
 Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** menu. A red mask will be applied to your subject, giving you an idea of how your image will look once you remove the background. Zoom in and if any details are excluded, paint them over. Once you are satisfied, click **"Apply"** to save your changes.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
 
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
@@ -89,7 +98,7 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
 
-Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
+Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by [Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
@@ -119,11 +128,14 @@ And if you have any interests in finding free images to expand your resource, yo
 
 Hopefully, this article and video can help you create ideal images!
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Best Alternative of Affinity Photo
 
 Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
 
-Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
+Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by [Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
@@ -176,3 +188,40 @@ Hopefully, this article and video can help you create ideal images!
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-vida-reimagined-editing-revolution-unveiled/"><u>2024 Approved  Vida Reimagined  Editing Revolution Unveiled</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/explore-the-best-iphone-vr-games-today-for-2024/"><u>Explore the Best iPhone VR Games Today for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-vivo-t2x-5g-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Vivo T2x 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/capturing-purity-best-sound-for-podcasts/"><u>Capturing Purity  Best Sound for Podcasts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-macbook-air-vs-pro-evaluating-the-m1-advantage/"><u>[New] In 2024, MacBook Air Vs. Pro  Evaluating the M1 Advantage</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-stream-control-duo-deciding-between-xsplit-and-obs-tech/"><u>In 2024, Stream Control Duo  Deciding Between XSplit and OBS Tech</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-content-discovery-the-tubebuddy-way/"><u>In 2024, Elevate Content Discovery  The TubeBuddy Way</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-insiders-guide-to-the-vr-lexicon-essentials/"><u>[New] In 2024, Insider's Guide to the VR Lexicon Essentials</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-top-picks-8-superior-5k-computer-monitors/"><u>In 2024, Top Picks  8 Superior 5K Computer Monitors</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-networked-narrative-recorder/"><u>[Updated] In 2024, Networked Narrative Recorder</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-make-a-memorable-mark-with-your-own-thumbnails/"><u>[New] Make a Memorable Mark with Your Own Thumbnails</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-interactive-slides-with-youtube-videos/"><u>2024 Approved  Interactive Slides with YouTube Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-enhancing-media-workflow-the-rise-of-magix-vpx/"><u>In 2024, Enhancing Media Workflow  The Rise of Magix VPX</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/laugh-labs-free-comedy-creation-for-creative-souls/"><u>Laugh Labs  Free Comedy Creation for Creative Souls</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-harness-the-power-of-dual-screen-on-apple-devices-via-safari/"><u>2024 Approved  Harness the Power of Dual Screen on Apple Devices via Safari</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-deciphering-hand-tracking-methodologies/"><u>In 2024, Deciphering Hand Tracking Methodologies</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-cutting-edge-tools-for-instagrams-most-trendy-reels/"><u>[Updated] Cutting-Edge Tools for Instagram's Most Trendy Reels</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-best-zero-fee-technique-for-pixel-perfection/"><u>[New] 2024 Approved  Best Zero-Fee Technique for Pixel Perfection</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-ultimate-backdrop-choices-for-streamers/"><u>[New] 2024 Approved  Ultimate Backdrop Choices for Streamers</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/2024-approved-guide-adopting-lumetri-color-presets-in-effective-color-grading/"><u>2024 Approved Guide Adopting Lumetri Color Presets in Effective Color Grading</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-explore-the-best-kept-secrets-ios-10-best-no-cost-collages-and-edits/"><u>[New] 2024 Approved  Explore the Best-Kept Secrets  IOS' 10 Best, No-Cost Collages & Edits</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-how-to-record-screen-with-ultra-screen-recorder/"><u>In 2024, How to Record Screen With Ultra Screen Recorder</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-jubilant-join-and-disconnect-protocols/"><u>[New] In 2024, Jubilant Join & Disconnect Protocols</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-effortless-youtube-income-computations/"><u>[New] In 2024, Effortless YouTube Income Computations</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-restoring-iphone-xs-trust-reviving-biometric-lock/"><u>2024 Approved  Restoring iPhone X's Trust  Reviving Biometric Lock</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-exclusive-catalog-budget-friendly-image-treasuries-online/"><u>In 2024, Exclusive Catalog  Budget-Friendly Image Treasuries Online</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-exploring-exceptional-background-melodies-for-video-content-creation/"><u>New In 2024, Exploring Exceptional Background Melodies for Video Content Creation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-pioneering-the-future-of-aerial-film-craftsmanship/"><u>[New] In 2024, Pioneering the Future of Aerial Film Craftsmanship</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-discovering-innovation-in-tiktok-a-complete-backdrop-transformation-handbook/"><u>[New] Discovering Innovation in TikTok  A Complete Backdrop Transformation Handbook</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/2024-approved-best-online-video-preview-creation-tools/"><u>2024 Approved Best Online Video Preview Creation Tools</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-the-ultimate-list-10-best-free-online-subtitle-creators/"><u>New The Ultimate List 10 Best Free Online Subtitle Creators</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/aerial-capture-face-off-dji-mavic-2-vs-hero6-black-for-2024/"><u>Aerial Capture Face-Off  DJi Mavic 2 vs Hero6 Black for 2024</u></a></li>
+</ul></div>

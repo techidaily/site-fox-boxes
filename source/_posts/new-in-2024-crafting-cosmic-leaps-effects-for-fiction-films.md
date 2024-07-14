@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Crafting Cosmic Leaps  Effects for Fiction Films\""
-date: 2024-06-17T14:21:28.503Z
-updated: 2024-06-18T14:21:28.503Z
+date: 2024-07-13T20:46:29.013Z
+updated: 2024-07-14T20:46:29.013Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,9 @@ thumbnail: https://thmb.techidaily.com/6d6cac7e56858e74f7b2bccf55f62023ebda6695c
 
 Always been curious about using time travel devices but have found no solution? This article lets you know the whole process of how you can activate a time travelling teleportation device using clever filming and editing in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Before filming and editing a video, get to know about the time-travel teleportation device.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1\. What Is a Time Travel Teleportation Device?
 
 Teleportation is usually estimated as the travelling between two points which carries unlimited time to complete. It's always considered impossible to make time travel devices and use them in real life.
@@ -158,6 +161,9 @@ After marking the daytime clip, drag and drop the clip of the second round (i.e.
 
 Find the spot where the subject steps over in the nighttime clip, and select the clip. Then mark it as marker three. This marker is shown when the character changes the transition.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![marker 3 on the nighttime clip](https://images.wondershare.com/filmora/article-images/2023/04/marker-3-on-the-nighttime-clip.jpg)
 
 After marking the points on the clips, then you have to align and adjust the clips!
@@ -214,6 +220,9 @@ To show the energy pack between two time-travel clips, you have to add the effec
 
 **Note:** After dropping the effect, ensure that it starts simultaneously when the nighttime clip appears on the screen.
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![after adding the elemental energy effect](https://images.wondershare.com/filmora/article-images/2023/04/after-adding-the-elemental-energy-effect.jpg)
 
 * Resize the effect according to the clip for a better look.
@@ -266,6 +275,9 @@ Create for you and add different effects and experiment with new features. You w
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2\. Filming Prerequisites for Time Travelling Effects
 
 To create shots, we have to do two processing rounds. In the first round, we will film a shot for daytime activity. While in the next round, we will shoot a video for nighttime activity. Get straight into the filming mode and create according to your script.
@@ -523,3 +535,54 @@ Create for you and add different effects and experiment with new features. You w
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-cinematic-upgrade-gopro-hero5-black-vs-hero4-silver-edition/"><u>[Updated] 2024 Approved  Cinematic Upgrade  GoPro Hero5 Black vs Hero4 Silver Edition</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-efficient-video-editing-with-timestamps-and-on-screen-text/"><u>[Updated] In 2024, Efficient Video Editing with Timestamps & On-Screen Text</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-livestream-audiovideo-creators-hub/"><u>[New] 2024 Approved  LiveStream Audio/Video Creators Hub</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unraveling-youtube-subtitles-srt-a-triad-of-steps/"><u>[New] Unraveling YouTube Subtitles (SRT)  A Triad of Steps</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-universalaccess-tv-diverse-channels-with-a-local-twist/"><u>[New] 2024 Approved  UniversalAccess TV  Diverse Channels with a Local Twist</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-step-by-step-guide-to-efficient-telegram-web-use/"><u>[Updated] 2024 Approved  Step-By-Step Guide to Efficient Telegram Web Use</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-calculating-costs-in-youtube-advertising-campaigns-for-2024/"><u>[New] Calculating Costs in YouTube Advertising Campaigns for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-navigating-kinemasters-features-expert-tips-and-best-online-rivals/"><u>[New] Navigating KineMaster's Features  Expert Tips & Best Online Rivals</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-refining-online-discussions-in-google-meet-for-2024/"><u>[Updated] Refining Online Discussions in Google Meet for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-premium-microphone-selection-for-your-podcast/"><u>[Updated] In 2024, The Premium Microphone Selection for Your Podcast</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-proven-marketing-spells-20-must-use-terms/"><u>[Updated] In 2024, Proven Marketing Spells  20 Must-Use Terms</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-navigating-through-the-premier-10-image-stock-websites-for-2024/"><u>[Updated] Navigating Through the Premier 10 Image Stock Websites for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-elite-groups-finest-pro-grade-videography-tools-for-2024/"><u>[New] Elite Group's Finest Pro-Grade Videography Tools for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-video-marketing-boost-with-free-intro-creations-for-2024/"><u>[New] Video Marketing Boost with Free Intro Creations for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/innovating-education-with-virtual-immersion/"><u>Innovating Education with Virtual Immersion</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-tutorial-triumphant-skyrocketing-your-youtube-presence-for-2024/"><u>[New] Tutorial Triumphant  Skyrocketing Your YouTube Presence for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-premium-mark-extraction-tiktok-identity-eraser-guide/"><u>[New] In 2024, Premium Mark Extraction  TikTok Identity Eraser Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-high-definition-horizons-with-sony-unraveling-xperia-xz/"><u>[New] High-Definition Horizons with Sony - Unraveling Xperia XZ</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-deep-dives-closer-scans-and-enhanced-gameplay-on-roblox-for-2024/"><u>[Updated] Deep Dives  Closer Scans and Enhanced Gameplay on Roblox for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-when-to-start-the-podcast-journey/"><u>[New] In 2024, When to Start the Podcast Journey</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-audiences-choice-top-8-best-for-uhd-blu-ray/"><u>[Updated] 2024 Approved  Audience's Choice  Top 8 Best for UHD Blu-Ray</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/spicing-up-videos-with-youtube-music-linking-techniques/"><u>Spicing Up Videos with YouTube Music Linking Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-superior-suggestions-elite-iphone-ringtones-developers/"><u>[New] 2024 Approved  Superior Suggestions  Elite iPhone Ringtones Developers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-ultimate-guide-to-thriving-amidst-the-world-of-podcasts/"><u>The Ultimate Guide to Thriving Amidst the World of Podcasts</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-can-i-unlock-my-apple-iphone-se-after-forgetting-my-pin-code-drfone-by-drfone-ios/"><u>In 2024, How Can I Unlock My Apple iPhone SE After Forgetting my PIN Code? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unleashing-creativity-in-drone-video-post-production/"><u>[New] Unleashing Creativity in Drone Video Post-Production</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-conquering-subreddit-mastering-the-art-of-public-discussion-for-2024/"><u>[New] Conquering Subreddit  Mastering the Art of Public Discussion for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-optimal-vision-selections-of-best-4k-dslrs-in-action/"><u>[New] In 2024, Optimal Vision  Selections of Best 4K DSLRs in Action</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-capturing-the-moment-the-ultimate-guide-to-screen-recording-with-obs-for-2024/"><u>[Updated] Capturing the Moment  The Ultimate Guide to Screen Recording with OBS for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-masterpieces-unleashed-a-comprehensive-look-at-the-bestiary-of-8-iphone-drawing-apps/"><u>[Updated] Masterpieces Unleashed  A Comprehensive Look at the Bestiary of 8 iPhone Drawing Apps</u></a></li>
+<li><a href="https://howto.techidaily.com/my-videos-arent-playing-on-sony-xperia-1-v-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Sony Xperia 1 V – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-creating-content-from-home-macbook-cam-guide/"><u>In 2024, Creating Content From Home  MacBook Cam Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-luts-explained-enhancing-images-through-color-grading/"><u>[New] In 2024, LUTs Explained  Enhancing Images Through Color Grading</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-nubia-red-magic-8s-pro-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Nubia Red Magic 8S Pro to New Android? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-pinterest-videos-top-5-no-pay-extractors-online/"><u>[New] Pinterest Videos  Top 5 No-Pay Extractors Online</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/mastering-shapes-and-lines-essential-software-to-know-today-for-2024/"><u>Mastering Shapes and Lines  Essential Software to Know Today for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-dynamic-duo-image-taker-plus-melody-recorders/"><u>[Updated] In 2024, Dynamic Duo  Image Taker + Melody Recorders</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-slow-fade-to-action/"><u>[New] In 2024, Slow Fade to Action</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-quick-convert-guide-transforming-gifs-into-telegram-and-whatsapp-emojis-for-2024/"><u>[Updated] The Quick-Convert Guide  Transforming Gifs Into Telegram and WhatsApp Emojis for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-18-steps-to-make-your-instagram-unboxing-content-stand-out/"><u>[Updated] 18 Steps to Make Your Instagram Unboxing Content Stand Out</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-your-easy-routine-for-viewing-well-regarded-and-favorited-comments-for-2024/"><u>[Updated] Your Easy Routine for Viewing Well-Regarded and Favorited Comments for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-navigating-iphones-most-popular-watermarking-software-solutions/"><u>[New] 2024 Approved  Navigating iPhone's Most Popular Watermarking Software Solutions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-ultimate-rankings-leading-gopro-case-models/"><u>The Ultimate Rankings  Leading GoPro Case Models</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-do-you-want-to-know-how-to-edit-a-time-lapse-video-on-iphone-interesting-ideas-and-some-tips-and-pointers-for-shooting-a-professional-time-lapse-video-f/"><u>New Do You Want to Know How to Edit a Time Lapse Video on iPhone, Interesting Ideas, and some Tips and Pointers for Shooting a Professional Time Lapse Video? Find Out Everything in This Guide</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-expert-advice-livestream-without-the-price-tag-for-2024/"><u>[Updated] Expert Advice  Livestream Without the Price Tag for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-the-ultimate-list-of-dji-phantom-4-supplements/"><u>[Updated] 2024 Approved  The Ultimate List of DJI Phantom 4 Supplements</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-hot-yt-videos-best-music-dance-and-responses-23/"><u>In 2024, Hot YT Videos  Best Music Dance & Responses '23</u></a></li>
+</ul></div>

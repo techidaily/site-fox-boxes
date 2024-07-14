@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unveiling the Secret  Seeing Popular YouTube Reactions\""
-date: 2024-07-09T22:03:03.713Z
-updated: 2024-07-10T22:03:03.713Z
+date: 2024-07-13T21:13:27.016Z
+updated: 2024-07-14T21:13:27.016Z
 tags: 
   - screen-recording
   - ai video
@@ -63,6 +63,9 @@ Given how many students have smartphones, video is an excellent medium for conne
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 ## How to See Liked Comments on YouTube?
@@ -99,10 +102,16 @@ To see videos/comments you liked or disliked, please follow these steps as conti
 
 Step4 In the **Google My Activity** tab, click **Other activity**.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![other activity youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/other-activity-youtube-comments.jpg)
 
 Step5 Scroll down and find **Comment Likes and Dislikes on YouTube** section. Click **View Comment Likes and Dislikes**.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ![your comment likes and dislikes](https://images.wondershare.com/filmora/article-images/2022/11/your-comment-likes-and-dislikes.jpg)
 
 Now you will see the videos you liked or disliked and also the comments you liked or disliked, including the date when you liked or disliked the video/comment.
@@ -115,6 +124,9 @@ This article tells you that you can't see who liked or disliked a comment, but y
 
 In this image, the following comments only got likes and no dislikes. That is why there are just written numbers on the like button and on the dislike button there are none.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ## How to Respond to Comments
 
 Don't ignore someone who has questioned you or written you a heartfelt note. Keep the conversation (and engagement) going by responding to comments.
@@ -284,3 +296,76 @@ Additionally, video creators can manually highlight commenters to mark them for 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-ultimate-hd-experience-1-blu-ray-players-list/"><u>[New] Ultimate HD Experience  #1 Blu-Ray Players List</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-tying-iphone-videos-in-seamless-bundles-for-2024/"><u>[Updated] Tying IPhone Videos in Seamless Bundles for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-no-cost-no-problem-here-are-the-10-best-for-discord-voice-captures/"><u>In 2024, No Cost, No Problem? Here Are the 10 Best for Discord Voice Captures</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-sky-high-quality-with-your-iphone-camera-essential-tips-top-8/"><u>2024 Approved  Sky-High Quality with Your iPhone Camera  Essential Tips (Top 8)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-iphone-and-android-edition-compile-the-most-useful-top-8-edits-tools/"><u>[New] In 2024, IPhone and Android Edition  Compile the Most Useful Top 8 Edits Tools</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-pinnacle-vr-devices-the-essential-list/"><u>In 2024, Pinnacle VR Devices  The Essential List</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-mastering-the-art-of-fb-instream-ad-configurations-a-step-by-step-approach-for-2024/"><u>[New] Mastering the Art of FB Instream Ad Configurations  A Step-by-Step Approach for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-sony-xperia-5-v-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Sony Xperia 5 V Without Power Button | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-dial-down-blur-top-10-web-tools-for-pristine-photos/"><u>[New] 2024 Approved  Dial Down Blur  Top 10 Web Tools for Pristine Photos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-speeding-up-projects-without-compromising-quality-for-2024/"><u>[New] Speeding Up Projects Without Compromising Quality for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-celebrating-tiktoks-top-15-literary-gems/"><u>[New] 2024 Approved  Celebrating TikTok’s Top 15 Literary Gems</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-unlocking-the-mystery-of-facebooks-hidden-activities/"><u>[New] In 2024, Unlocking the Mystery of Facebook's Hidden Activities</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-eternal-methodology-for-instantaneous-tiktok-linking/"><u>The Eternal Methodology for Instantaneous TikTok Linking</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-skys-the-limit-with-husqvarnas-x4-drone-for-2024/"><u>The Sky's the Limit with Husqvarna's X4 Drone for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-vlog-basics-must-haves-for-first-timers/"><u>[New] Vlog Basics  Must-Haves for First-Timers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-upload-tunes-with-images-digitally/"><u>[New] 2024 Approved  Upload Tunes with Images Digitally</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-advanced-techniques-for-embedding-srt-into-mp4-files-for-2024/"><u>[Updated] Advanced Techniques for Embedding SRT Into MP4 Files for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Vivo S18e | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-transformative-typography-in-after-effects/"><u>In 2024, Transformative Typography in After Effects</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-journey-through-ipodverse-mastering-iphones-podcast-downloads-for-2024/"><u>[New] Journey Through iPodverse  Mastering iPhone's Podcast Downloads for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-secrets-to-selecting-the-best-online-game-coverage-for-2024/"><u>[New] Secrets to Selecting the Best Online Game Coverage for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/best-3-xiaomi-redmi-k70e-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Xiaomi Redmi K70E Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-cutting-edge-editing-advanced-strategies-for-using-the-background-erase-feature/"><u>[Updated] 2024 Approved  Cutting Edge Editing  Advanced Strategies for Using the Background Erase Feature</u></a></li>
+<li><a href="https://extra-information.techidaily.com/workout-anthems-the-best-exercise-tracks-in-listening-history/"><u>Workout Anthems  The Best Exercise Tracks in Listening History</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/hacky-yet-effective-face-blurring-on-piscart-for-2024/"><u>Hacky Yet Effective Face-Blurring on PiscArt for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-combine-audio-streams-into-powerpoint-flow/"><u>[New] Combine Audio Streams Into PowerPoint Flow</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-joke-geniuses-at-your-service-free-of-charges/"><u>In 2024, Joke Geniuses at Your Service  Free of Charges</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-maximize-engagement-with-integrated-youtube-playlist-features/"><u>[New] Maximize Engagement with Integrated YouTube Playlist Features</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-navigating-the-world-of-zoom-audio-to-text-tools/"><u>[New] Navigating the World of Zoom Audio to Text Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-easily-pulling-picture-moments-from-videos-for-windows-photos/"><u>[Updated] 2024 Approved  Easily Pulling Picture Moments From Videos for Windows Photos</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-avoiding-pitfalls-in-low-light-portrait-photography/"><u>[Updated] 2024 Approved  Avoiding Pitfalls in Low-Light Portrait Photography</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-calculating-total-vids-for-high-capacity-hardware-64128gb/"><u>[Updated] Calculating Total Vids for High-Capacity Hardware (64/128GB)</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-the-real-number-of-youtube-views-you-need-to-make-a-living-for-2024/"><u>[New] The Real Number of YouTube Views You Need to Make a Living for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-effective-techniques-to-archive-vimeo-content/"><u>[New] 2024 Approved  Effective Techniques to Archive Vimeo Content</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-dynamic-typography-adding-layers-to-your-illustration/"><u>[New] In 2024, Dynamic Typography  Adding Layers to Your Illustration</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-infinix-note-30i-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Infinix Note 30i via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-analyzing-androids-best-editor-is-pickup-at-the-peak-of-performance/"><u>In 2024, Analyzing Android's Best Editor  Is PickUp at the Peak of Performance?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-top-10-cheapbudget-friendly-action-cameras/"><u>[Updated] 2024 Approved  Top 10 Cheap/Budget Friendly Action Cameras</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-exploring-virtual-landscapes-with-android-vr360/"><u>[New] Exploring Virtual Landscapes with Android (VR/360)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-high-resolution-passport-portraits-download-for-free-and-print-your-document/"><u>[Updated] 2024 Approved  High-Resolution Passport Portraits - Download for FREE & Print Your Document</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/trendsetting-tactic-tech-savvy-mac-access-via-watch/"><u>Trendsetting Tactic  Tech-Savvy Mac Access via Watch</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-complete-iphone-audio-downloading-manual/"><u>2024 Approved  The Complete iPhone Audio Downloading Manual</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-streamlining-audio-addition-in-creative-cloud-suite/"><u>[Updated] 2024 Approved  Streamlining Audio Addition in Creative Cloud Suite</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-10-step-plan-thriving-in-social-media-management/"><u>[Updated] The Ultimate 10-Step Plan  Thriving in Social Media Management</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-top-30-original-pfp-suggestions-for-tiktok-success/"><u>[New] 2024 Approved  Top 30 Original PFP Suggestions for TikTok Success</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-innovative-windows-media-cutting-tools/"><u>In 2024, Innovative Windows Media Cutting Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turko-korean-linguistic-bridge-examination/"><u>Turko-Korean Linguistic Bridge Examination</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-blending-beats-with-brushstrokes-online/"><u>[Updated] Blending Beats with Brushstrokes Online</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-how-to-curate-christian-chimes-for-devotion/"><u>[New] How to Curate Christian Chimes for Devotion</u></a></li>
+<li><a href="https://extra-information.techidaily.com/sculpting-images-selecting-the-right-aspect-ratio/"><u>Sculpting Images  Selecting the Right Aspect Ratio</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-harmonizing-scores-with-cinematic-vision-in-film-trailers-for-2024/"><u>[New] Harmonizing Scores with Cinematic Vision in Film Trailers for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/enjoying-the-journey-discovering-pexels-treasures/"><u>Enjoying the Journey  Discovering Pexels' Treasures</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-discreet-methods-to-evade-educational-media/"><u>[New] Discreet Methods to Evade Educational Media</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-steps-for-efficiently-storing-whatsapp-audio-transcripts/"><u>[New] Steps for Efficiently Storing WhatsApp Audio Transcripts</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-vivo-x-flip-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Vivo X Flip</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-stream-video-freely-on-any-os-no-cost-video-player/"><u>[New] In 2024, Stream Video Freely on Any OS  No-Cost VIDEO Player</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-fcpx-pr/"><u>Updated In 2024, FCPX Pr</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-transforming-traditional-markets-with-virtual-engineering/"><u>[Updated] 2024 Approved  Transforming Traditional Markets with Virtual Engineering</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/aerial-shots-quality-test-mi-drone-4k-edition/"><u>Aerial Shots Quality Test - Mi Drone 4K Edition</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-contacts-on-galaxy-z-flip-5-without-backup-by-fonelab-android-recover-contacts/"><u>The way to recover deleted contacts on Galaxy Z Flip 5 without backup.</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unbeatable-prices-for-top-6-action-cams-under-100-for-2024/"><u>[New] Unbeatable Prices for Top 6 Action Cams Under $100 for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-acclaimed-melody-hub-for-android-devices/"><u>In 2024, Acclaimed Melody Hub for Android Devices</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unattached-audio-puzzle-resolution-guide-for-2024/"><u>Unattached Audio Puzzle  Resolution Guide for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-top-5-free-screen-recorders-on-windows-11-2023-update/"><u>[New] Top 5 Free Screen Recorders on Windows 11-2023 Update</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-rev-up-with-these-top-10-srt-power-up-tools-for-pc-and-mac/"><u>2024 Approved  Rev Up with These Top 10 SRT Power-Up Tools for PC and Mac</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-revolutionizing-note-taking-the-power-of-mematic/"><u>[New] 2024 Approved  Revolutionizing Note-Taking  The Power of Mematic</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-the-complete-voice-memo-primer-tips-and-tricks/"><u>[New] 2024 Approved  The Complete Voice Memo Primer  Tips & Tricks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-effective-youtube-banners-pros-and-cons-to-avoid-for-2024/"><u>[Updated] Effective YouTube Banners  Pros and Cons to Avoid for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-2024-approved-easy-video-reframing-best-editor-software-and-apps/"><u>New 2024 Approved Easy Video Reframing Best Editor Software and Apps</u></a></li>
+</ul></div>

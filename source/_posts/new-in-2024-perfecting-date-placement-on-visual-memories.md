@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Perfecting Date Placement on Visual Memories"
-date: 2024-06-17T13:46:27.586Z
-updated: 2024-06-18T13:46:27.586Z
+date: 2024-07-13T20:08:30.736Z
+updated: 2024-07-14T20:08:30.736Z
 tags: 
   - screen-recording
   - ai video
@@ -57,7 +57,7 @@ Step2Install the app after downloading.
 
 Step3Add data/timestamps to both new and old pictures.
 
-You can download Timestamp for [Android](https://play.google.com/store/apps/details?id=com.jeyluta.timestampcamerafree&gl=US) and [iPhone](https://apps.apple.com/us/app/timestamp-it-photo-stamper/id327756085)here.
+You can download Timestamp for [Android](https://play.google.com/store/apps/details?id=com.jeyluta.timestampcamerafree&gl=US) and [iPhone](https://apps.apple.com/us/app/timestamp-it-photo-stamper/id327756085) here.
 
 ## Part 2\. Edit Photos and Add Date Stamps on The Phone
 
@@ -135,7 +135,7 @@ The Adobe Photoshop Lightroom is a cloud-based product where you can upload and 
 * Batch editing
 * Healing Brushes
 
-You can download the app on [android](https://play.google.com/store/apps/details?id=com.adobe.lrmobile&gl=US)and [iPhone](https://apps.apple.com/us/app/lightroom-photo-video-editor/id878783582) for free.
+You can download the app on [android](https://play.google.com/store/apps/details?id=com.adobe.lrmobile&gl=US) and [iPhone](https://apps.apple.com/us/app/lightroom-photo-video-editor/id878783582) for free.
 
 ### **VSCO**
 
@@ -289,9 +289,9 @@ PIXLR is another great online platform that can be used to **edit pictures onlin
 
 Hopefully, these steps will be helpful if you ever want to **add a date** or **edit your photos on your phone** or computer. Hence, next time you take a picture, consider doing some editing and adding a date stamp using these steps.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 * [Use the inbuilt photo on Mac to edit the photo.](#part3-1)
 * [Use inbuilt photo app on mac to add date stamps](#part3-2)
@@ -319,7 +319,7 @@ Step2Install the app after downloading.
 
 Step3Add data/timestamps to both new and old pictures.
 
-You can download Timestamp for [Android](https://play.google.com/store/apps/details?id=com.jeyluta.timestampcamerafree&gl=US) and [iPhone](https://apps.apple.com/us/app/timestamp-it-photo-stamper/id327756085)here.
+You can download Timestamp for [Android](https://play.google.com/store/apps/details?id=com.jeyluta.timestampcamerafree&gl=US) and [iPhone](https://apps.apple.com/us/app/timestamp-it-photo-stamper/id327756085) here.
 
 ## Part 2\. Edit Photos and Add Date Stamps on The Phone
 
@@ -329,6 +329,9 @@ But what if you miss an important date? How would you plan for this? Well, now y
 
 You can do this in two ways: With an **inbuilt photo editor** or an **external photo editor**. Let's take a look at both.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Use the inbuilt photo app on Android and iPhone to add date stamps
 
 Most phone makers do not usually have the option to superimpose a timestamp on their taken photos. However, some phones offer it.
@@ -397,7 +400,7 @@ The Adobe Photoshop Lightroom is a cloud-based product where you can upload and 
 * Batch editing
 * Healing Brushes
 
-You can download the app on [android](https://play.google.com/store/apps/details?id=com.adobe.lrmobile&gl=US)and [iPhone](https://apps.apple.com/us/app/lightroom-photo-video-editor/id878783582) for free.
+You can download the app on [android](https://play.google.com/store/apps/details?id=com.adobe.lrmobile&gl=US) and [iPhone](https://apps.apple.com/us/app/lightroom-photo-video-editor/id878783582) for free.
 
 ### **VSCO**
 
@@ -464,6 +467,9 @@ Step4Proceed to add date and time into the text area manually.
 
 Step5When ready, drag and slide the date to the area of the image where you wish to stamp it.
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![place the date and time](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-11.jpg)
 
 Step6Finally, select File>Save to add your date to the picture.
@@ -484,10 +490,16 @@ Step1Launching the Photos app will **add a date to a photo** when using a window
 
 Step2Select Edit & Create > Edit with Paint 3D in the upper right corner of the screen.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![select edit create](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-13.jpg)
 
 Step3Go to the screen's top and click Text.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![click on text](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-14.jpg)
 
 Step4To create a text box, click and drag.
@@ -551,9 +563,9 @@ PIXLR is another great online platform that can be used to **edit pictures onlin
 
 Hopefully, these steps will be helpful if you ever want to **add a date** or **edit your photos on your phone** or computer. Hence, next time you take a picture, consider doing some editing and adding a date stamp using these steps.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -578,3 +590,48 @@ Hopefully, these steps will be helpful if you ever want to **add a date** or **e
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-top-zeoid-startups-revealed-in-panzoids/"><u>In 2024, Top Zeoid Startups Revealed in Panzoids</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-flash-frame-filmmakers-plan/"><u>[New] 2024 Approved  Flash Frame Filmmaker's Plan</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Oppo Reno 8T? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-step-by-step-guide-to-360-videos-with-ios/"><u>[New] Step-by-Step Guide to 360 Videos with iOS</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-a-2023-survival-guide-seeking-fb-videos-on-every-tab-for-2024/"><u>[New] A 2023 Survival Guide  Seeking FB Videos on Every Tab for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-tips-for-obtaining-pristine-images-at-no-cost-for-2024/"><u>Top Tips for Obtaining Pristine Images at No Cost for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-how-to-reduce-audio-noise-with-the-right-tools-offlineonline/"><u>Updated In 2024, How To Reduce Audio Noise With The Right Tools (Offline/Online)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-sonic-sculpture-how-to-mold-soundscapes-with-cost-free-effect-tools/"><u>[New] 2024 Approved  Sonic Sculpture  How to Mold Soundscapes with Cost-Free Effect Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/creating-dynamic-photo-effects-in-illustrator-for-2024/"><u>Creating Dynamic Photo Effects in Illustrator for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-hardware-basics-preparing-for-big-sur-os/"><u>In 2024, Hardware Basics  Preparing for Big Sur OS</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-top-6-online-communities-catering-to-the-commercial-world/"><u>In 2024, Top 6 Online Communities Catering to the Commercial World</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-chorus-of-services-integrating-your-musical-library/"><u>In 2024, Chorus of Services  Integrating Your Musical Library</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-straightforward-route-scrolling-through-popular-youtube-feedbacks-for-2024/"><u>[Updated] The Straightforward Route  Scrolling Through Popular YouTube Feedbacks for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/enhance-dark-photos-with-iphone-skills-for-2024/"><u>Enhance Dark Photos with iPhone Skills for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-nokia-g22-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Nokia G22 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-escape-the-frown-mastery-in-dodging-facebook-restrictions/"><u>[New] In 2024, Escape the Frown  Mastery in Dodging Facebook Restrictions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-revel-in-the-wonders-of-asmrs-positive-effects-for-2024/"><u>[Updated] Revel in the Wonders of ASMR's Positive Effects for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-digital-dreamscapes-compared-metaverse-vs-omniverse-in-the-limelight/"><u>[New] In 2024, Digital Dreamscapes Compared  Metaverse Vs. Omniverse in the Limelight</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-watermark-wisdom-for-every-photographers-toolkit/"><u>2024 Approved  Watermark Wisdom for Every Photographer's Toolkit</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-value-capture-budget-cam-essentials/"><u>[Updated] In 2024, Value Capture  Budget Cam Essentials</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-secrets-to-effortless-iphone-photo-sorting-and-synchronizing-with-icloud/"><u>2024 Approved  The Secrets to Effortless iPhone Photo Sorting & Synchronizing with iCloud</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-enshrouded-eagles-encounter-with-beaming-bearing/"><u>[New] 2024 Approved  Enshrouded Eagle's Encounter with Beaming Bearing</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-a-damaged-video-file-of-yuva-3-pro-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair a Damaged video file of Yuva 3 Pro using Video Repair Utility on Windows?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-aerial-titans-clash-dji-and-gopros-quest/"><u>In 2024, Aerial Titans Clash  DJI and GoPro's Quest</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-master-the-art-of-editing-story-remix-and-windows-photos-synergy/"><u>[Updated] Master the Art of Editing  Story Remix & Windows Photos Synergy</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-earnings-enlightenment-joshi-and-youtube-success-stories/"><u>In 2024, Earnings Enlightenment  Joshi and YouTube Success Stories</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-insta-trends-staying-ahead-with-innovative-video-content/"><u>2024 Approved  Insta-Trends  Staying Ahead with Innovative Video Content</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-dive-deep-into-detail-advanced-zooming-tips-for-videoleap/"><u>[New] Dive Deep Into Detail  Advanced Zooming Tips for VideoLeap</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-essential-strategies-for-finding-fabulous-and-free-images-on-pexels/"><u>[New] In 2024, Essential Strategies for Finding Fabulous and Free Images on Pexels</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-revolutionary-reddit-techniques-for-aspiring-digital-wizards/"><u>[New] Revolutionary Reddit Techniques for Aspiring Digital Wizards</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/3dr-navigating-the-single-user-realm-of-3d-tech-for-2024/"><u>'3DR'  Navigating the Single User Realm of 3D Tech for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/everything-you-need-to-know-about-unlocked-apple-iphone-14-plus-drfone-by-drfone-ios/"><u>Everything You Need To Know About Unlocked Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-visual-symphony-choosing-background-music/"><u>In 2024, Visual Symphony  Choosing Background Music</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-how-to-download-final-cut-pro-for-free/"><u>2024 Approved  How to Download Final Cut Pro for Free?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/professional-video-editing-does-m1-macbook-air-hold-up-for-2024/"><u>Professional Video Editing  Does M1 MacBook Air Hold Up for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-mastering-video-content-conversion-xml-ssa-and-ttml-to-srt-guide/"><u>[New] Mastering Video Content Conversion  XML, SSA & TTML to SRT Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-full-picture-editpro-suite-review-of-2023/"><u>[Updated] The Full Picture  EditPro Suite Review of 2023</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-cutting-edge-video-creation-the-ultimate-windows-list/"><u>2024 Approved  Cutting-Edge Video Creation  The Ultimate Windows List</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-avoiding-ambiguity-clear-dating-of-digital-pics-for-2024/"><u>[New] Avoiding Ambiguity  Clear Dating of Digital Pics for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-top-pick-prodigious-insta-hlv-pages-creators/"><u>[Updated] In 2024, Top Pick  Prodigious Insta HLV Pages Creators</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-ultimate-guide-to-cloud-storage-pricing-comparisons/"><u>[New] The Ultimate Guide to Cloud Storage Pricing Comparisons</u></a></li>
+</ul></div>

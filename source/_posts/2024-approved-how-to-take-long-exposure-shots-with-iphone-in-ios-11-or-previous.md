@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  How to Take Long Exposure Shots with iPhone in iOS 11 or Previous\""
-date: 2024-07-02T12:48:26.016Z
-updated: 2024-07-03T12:48:26.016Z
+date: 2024-07-13T21:06:15.459Z
+updated: 2024-07-14T21:06:15.459Z
 tags: 
   - screen-recording
   - ai video
@@ -30,6 +30,9 @@ thumbnail: https://thmb.techidaily.com/9687aa834ae00807e9d2f77ee77a3ac9fdfd8db29
 
  Previously the preserve of those who could afford to invest in a top of the range SLR, this type of photography is now within reach of many more of us, thanks to improvement in iPhone camera's technology. Want to know how? Read on.
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Take Long Exposure Shots on iPhone
 
 * [Section 1: Users on iOS 11](#part1)
@@ -41,6 +44,9 @@ thumbnail: https://thmb.techidaily.com/9687aa834ae00807e9d2f77ee77a3ac9fdfd8db29
 
  First of all, make sure Live Photos is switched on. Within the camera app, simply tap the circular button in the middle of the top menu bar to turn it on. Once activated, the button will turn yellow and the 'live' notification will be shown on screen.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![take-live-photo-on-iphone](https://images.wondershare.com/filmora/article-images/take-live-photo-on-iphone.jpg)
 
  Image resource: imore
@@ -84,6 +90,9 @@ thumbnail: https://thmb.techidaily.com/9687aa834ae00807e9d2f77ee77a3ac9fdfd8db29
 
 * **Light trails:** Light is everywhere, and if you take your iPhone camera long exposure trick out of the house at night, you'll find some amazing opportunities to shoot. Cars on the highway, Ferris wheels at the fair and even the stars in the sky can become something amazing with a longer exposure.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![long-trails-exposure](https://images.wondershare.com/filmora/article-images/long-trails-exposure.jpg)
 
  Image resource: WallDevil
@@ -102,6 +111,9 @@ thumbnail: https://thmb.techidaily.com/9687aa834ae00807e9d2f77ee77a3ac9fdfd8db29
 
  Play around, try different things and get to know how variations in settings can change the outcome of your shots. Tinkering with exposure length is great fun, and will almost certainly result in some totally Facebook-worthy additions to your gallery.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## To conclude
 
  Using a digital SLR is looking less and less appealing these days, as Apple push the boundaries of what a phone can do ever further. If you're not using a device that supports Live Photos, try a workaround using a specifically developed app so that you can join in the fun too.
@@ -134,3 +146,47 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/updated-techniques-for-swapping-your-images-tone-spectrum-for-2024/"><u>[Updated] Techniques for Swapping Your Image's Tone Spectrum for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-revolutionizing-note-taking-the-power-of-mematic/"><u>[New] 2024 Approved  Revolutionizing Note-Taking  The Power of Mematic</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-sky-high-quality-with-your-iphone-camera-essential-tips-top-8/"><u>2024 Approved  Sky-High Quality with Your iPhone Camera  Essential Tips (Top 8)</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-itel-p55t-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Itel P55T to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/aerial-shots-quality-test-mi-drone-4k-edition/"><u>Aerial Shots Quality Test - Mi Drone 4K Edition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-the-complete-voice-memo-primer-tips-and-tricks/"><u>[New] 2024 Approved  The Complete Voice Memo Primer  Tips & Tricks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-upload-tunes-with-images-digitally/"><u>[New] 2024 Approved  Upload Tunes with Images Digitally</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-google-pixel-8-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-2024-approved-explore-the-top-8-daws-optimized-for-chrome-os-users-in-the-music-industry/"><u>New 2024 Approved Explore the Top 8 DAWs Optimized for Chrome OS Users in the Music Industry</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-joke-geniuses-at-your-service-free-of-charges/"><u>In 2024, Joke Geniuses at Your Service  Free of Charges</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-overcoming-the-2023-facebook-security-breach/"><u>[Updated] Overcoming the 2023 Facebook Security Breach</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-harmonizing-scores-with-cinematic-vision-in-film-trailers-for-2024/"><u>[New] Harmonizing Scores with Cinematic Vision in Film Trailers for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/hit-the-jackpot-of-humor-craft-top-tier-youtube-reaction-videos-3-techniques-for-2024/"><u>Hit the Jackpot of Humor – Craft Top-Tier YouTube Reaction Videos (3 Techniques) for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-acclaimed-melody-hub-for-android-devices/"><u>In 2024, Acclaimed Melody Hub for Android Devices</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-motivational-life-vlogs-for-fan-engagement-for-2024/"><u>Crafting Motivational Life Vlogs for Fan Engagement for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-how-to-curate-christian-chimes-for-devotion/"><u>[New] How to Curate Christian Chimes for Devotion</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-revamping-your-digital-identity-the-best-google-meet-voice-modification-solutions/"><u>Updated In 2024, Revamping Your Digital Identity The Best Google Meet Voice Modification Solutions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-complete-iphone-audio-downloading-manual/"><u>2024 Approved  The Complete iPhone Audio Downloading Manual</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-xiaomi-13t-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Xiaomi 13T Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-nokia-c300-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Nokia C300 to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/step-up-your-social-game-apply-tiktoks-best-to-instagram-reels/"><u>Step Up Your Social Game  Apply TikTok's Best to Instagram Reels</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-dial-down-blur-top-10-web-tools-for-pristine-photos/"><u>[New] 2024 Approved  Dial Down Blur  Top 10 Web Tools for Pristine Photos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-secure-again-combating-2023s-facebook-vulnerability/"><u>[Updated] 2024 Approved  Secure Again  Combating 2023'S Facebook Vulnerability</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-analyzing-androids-best-editor-is-pickup-at-the-peak-of-performance/"><u>In 2024, Analyzing Android's Best Editor  Is PickUp at the Peak of Performance?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-stream-video-freely-on-any-os-no-cost-video-player/"><u>[New] In 2024, Stream Video Freely on Any OS  No-Cost VIDEO Player</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/hacky-yet-effective-face-blurring-on-piscart-for-2024/"><u>Hacky Yet Effective Face-Blurring on PiscArt for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-tying-iphone-videos-in-seamless-bundles-for-2024/"><u>[Updated] Tying IPhone Videos in Seamless Bundles for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-ultimate-blueprint-to-thriving-in-spotify-ads/"><u>The Ultimate Blueprint to Thriving in Spotify Ads</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-discreet-methods-to-evade-educational-media/"><u>[New] Discreet Methods to Evade Educational Media</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-iphone-and-android-edition-compile-the-most-useful-top-8-edits-tools/"><u>[New] In 2024, IPhone and Android Edition  Compile the Most Useful Top 8 Edits Tools</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-premier-recorder-clean-and-clear-android-edition/"><u>[New] Premier Recorder  Clean and Clear Android Edition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-unlocking-the-mystery-of-facebooks-hidden-activities/"><u>[New] In 2024, Unlocking the Mystery of Facebook's Hidden Activities</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-strategic-spending-to-skyrocket-your-video-views/"><u>[Updated] In 2024, Strategic Spending to Skyrocket Your Video Views</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-a-complete-rundown-top-10-digital-drawing-software-on-chrome/"><u>[New] A Complete Rundown  Top 10 Digital Drawing Software on Chrome</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-combine-audio-streams-into-powerpoint-flow/"><u>[New] Combine Audio Streams Into PowerPoint Flow</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-essential-compilation-top-6-mac-compatible-recorder-software-for-2024/"><u>[New] Essential Compilation  Top 6 Mac-Compatible Recorder Software for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-seamless-listening-the-ipodcast-guidebook/"><u>[Updated] Seamless Listening  The iPodcast Guidebook</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-exploring-virtual-landscapes-with-android-vr360/"><u>[New] Exploring Virtual Landscapes with Android (VR/360)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-transform-your-content-the-science-of-instagram-video-loops/"><u>2024 Approved  Transform Your Content  The Science of Instagram Video Loops</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-complete-guide-to-tecno-camon-30-pro-5g-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Tecno Camon 30 Pro 5G FRP Bypass Everything You Need to Know</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  30+ Best No-Spend Templates for After Effects Wizards\""
-date: 2024-06-17T14:32:57.420Z
-updated: 2024-06-18T14:32:57.420Z
+date: 2024-07-13T20:59:58.329Z
+updated: 2024-07-14T20:59:58.329Z
 tags: 
   - screen-recording
   - ai video
@@ -63,6 +63,9 @@ This is another minimalistic title template that can be useful for just any vide
 
 ![black white ae title tempalte](https://images.wondershare.com/filmora/article-images/2022/07/black-white-ae-title-tempalte.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. Cyber Brush Titles After Effects Template
 
 This title template is a combination of cyberpunk designs and brush effects to create some of the most unique video titles you will ever see. Because it is so colorful, this title may not be ideal for most projects, but each of the 10 different titles that you will find in this bundle is fully customizable and comes with its unique typography and animations. These titles are ideal for YouTube or Instagram clips whose main aim is to generate engagement.
@@ -85,6 +88,9 @@ The complete opposite of the previous title template, the Masonry Title Template
 
 This is an After Effects title template bundle that comes with different types of glitching animations. It is an ideal title to choose for a creative video project, although it may also be useful if your video is dramatic or meant to capture attention. All the templates in the bundle are fully customizable; you can change the color, text, and animation at will.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![glitch ae title tempalte](https://images.wondershare.com/filmora/article-images/2022/07/glitch-ae-title-tempalte.jpg)
 
 ### 9\. Cinematic After Effects Title Template
@@ -187,6 +193,9 @@ If your video has a futuristic theme, the Future Action After Effects Title Temp
 
 ![feature action ae title tempalte](https://images.wondershare.com/filmora/article-images/2022/07/feature-action-ae-title-tempalte.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Arrive- After Effects Title Template
 
 This is a relatively simple, but very effective title template that can be used for a variety of videos. Its minimalistic effect makes it an ideal solution for a wide range of genres and it is fully customizable, meaning that you can change the colors and text as needed.
@@ -283,6 +292,9 @@ You can then close the animation loop by designing an exit animation. Here’s h
 
 Step1 Select all the layers that you have created so far and then go to “Layers > Pre-compose.”
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![create on exit animation ae](https://images.wondershare.com/filmora/article-images/2022/07/create-on-exit-animation-ae.jpg)
 
 Step2 Move the playhead to about 3 seconds and then click on “Edit” and select “Split Layer.” Delete the top Split Layer.”
@@ -340,3 +352,59 @@ Step4 You can then use the “Effects Window” to change the color as desired.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-a-dual-method-approach-for-instagram-reel-downloads/"><u>[Updated] In 2024, A Dual Method Approach for Instagram Reel Downloads</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/a-novices-approach-to-acquiring-picture-frames-for-2024/"><u>A Novice's Approach to Acquiring Picture Frames for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-whats-new-in-big-sur-necessary-specs-and-features/"><u>2024 Approved  What's New in Big Sur  Necessary Specs and Features</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-virtuary-a-beginners-vocabulary-primer/"><u>2024 Approved  Virtuary  A Beginner’s Vocabulary Primer</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-reverse-video-order-on-your-ios-gadget/"><u>2024 Approved  Reverse Video Order on Your iOS Gadget</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-avoiding-unwanted-image-ripples/"><u>[New] Avoiding Unwanted Image Ripples</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-cut-costs-and-boost-creativity-8-online-spots-offering-free-eco-backdrops/"><u>[New] In 2024, Cut Costs and Boost Creativity  8 Online Spots Offering Free Eco-Backdrops</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-refining-reality-close-up-creations-in-minecraft/"><u>2024 Approved  Refining Reality  Close-Up Creations in Minecraft</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-top-10-strategies-for-accessing-nfl-games-online/"><u>2024 Approved  Top 10 Strategies for Accessing NFL Games Online</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unveiling-secrets-top-strategies-for-advanced-srt-tweaks-on-apple/"><u>2024 Approved  Unveiling Secrets  Top Strategies for Advanced SRT Tweaks on Apple</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-cutting-edge-screenshotters-for-videos/"><u>[New] 2024 Approved  Cutting-Edge Screenshotters for Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-ultimate-guide-elevate-your-gaming-experience-with-voice-customization-in-free-fire/"><u>2024 Approved  The Ultimate Guide  Elevate Your Gaming Experience with Voice Customization in Free Fire</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-trailblazers-in-the-world-of-virtual-reality/"><u>2024 Approved  Trailblazers in the World of Virtual Reality</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-practical-steps-for-smooth-recording-of-remote-workshops-on-windowsapple-systems/"><u>[New] 2024 Approved  Practical Steps for Smooth Recording of Remote Workshops on Windows/Apple Systems</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-gps-location-on-xiaomi-14-pro-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Xiaomi 14 Pro Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-ultimate-list-of-no-cost-vectors-and-design-portals-online/"><u>2024 Approved  Ultimate List of No-Cost Vectors and Design Portals Online</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-ultimate-selection-of-cost-free-excellent-video-player-software-on-pc-and-mobile/"><u>2024 Approved  Ultimate Selection of Cost-Free, Excellent Video Player Software on PC and Mobile</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-tiktoks-best-practices-for-stellar-edits/"><u>2024 Approved  TikTok's Best Practices for Stellar Edits</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-thrill-in-the-cold-olympic-showcase-snowboarders-at-peak-performance/"><u>2024 Approved  Thrill in the Cold  Olympic Showcase - Snowboarders at Peak Performance</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-windows-11-how-to-switch-on-its-built-in-hdr-capability/"><u>2024 Approved  Windows 11  How to Switch On Its Built-In HDR Capability</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-one-frame-at-a-time-how-to-extract-images-from-windows-10-movie-files/"><u>2024 Approved  One Frame at a Time  How To Extract Images From Windows 10 Movie Files</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-strategies-to-integrate-b-roll-footage-seamlessly/"><u>2024 Approved  Strategies to Integrate B-Roll Footage Seamlessly</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-snapshot-to-sequence-live-photo-to-video-journey/"><u>2024 Approved  Snapshot to Sequence  Live Photo to Video Journey</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unique-content-creation-the-ultimate-guide-to-6-video-types/"><u>2024 Approved  Unique Content Creation  The Ultimate Guide to 6 Video Types</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/elevating-earnings-the-essentials-of-vimeo-revenue-model/"><u>Elevating Earnings  The Essentials of Vimeo Revenue Model</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-delving-into-discord-nitro-high-quality-features-and-how-to-obtain-them-for-2024/"><u>[New] Delving Into Discord Nitro - High-Quality Features & How to Obtain Them for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-honor-magic-6-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Honor Magic 6?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-experts-playbook-for-transforming-srt-into-diverse-formats/"><u>2024 Approved  The Expert's Playbook for Transforming SRT Into Diverse Formats</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-realme-gt-3-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Realme GT 3 for Parents | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-ringtone-vox-transcription-device-iphone/"><u>2024 Approved  Ringtone VOX Transcription Device (iPhone)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-solo-sound-setback-fix-it-now/"><u>2024 Approved  Solo Sound Setback  Fix It Now</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-preserving-chronological-integrity-in-visuals/"><u>2024 Approved  Preserving Chronological Integrity in Visuals</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-perfecting-the-audio-element-in-instagram-storytelling/"><u>2024 Approved  Perfecting the Audio Element in Instagram Storytelling</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-windows-10-sound-engineers-manual/"><u>2024 Approved  The Windows 10 Sound Engineer's Manual</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/a-comprehensive-guide-to-professional-level-video-editing-on-windows-11-for-2024/"><u>A Comprehensive Guide to Professional-Level Video Editing on Windows 11 for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-phantasm-captures-action-tech-diary/"><u>2024 Approved  Phantasm Captures  Action Tech Diary</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-rise-of-a-new-player-an-introduction-to-triller/"><u>2024 Approved  The Rise of a New Player  An Introduction to Triller</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-starks-serenade-where-to-find-your-game-of-thrones-ringtones/"><u>2024 Approved  Stark's Serenade  Where to Find Your Game of Thrones Ringtones</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/a-scholarly-treatise-on-directed-user-engagement/"><u>A Scholarly Treatise on Directed User Engagement</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-the-art-of-vertical-video-best-practices-for-smartphone-creators/"><u>New 2024 Approved The Art of Vertical Video Best Practices for Smartphone Creators</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-resize-your-videos-in-no-time-a-simple-stress-free-method-for-2024/"><u>Updated Resize Your Videos in No Time A Simple, Stress-Free Method for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-essential-guide-to-playstation-45-audio-tweaks/"><u>2024 Approved  The Essential Guide to PlayStation 4/5 Audio Tweaks</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-change-your-apple-id-password-on-your-iphone-14-pro-drfone-by-drfone-ios/"><u>How To Change Your Apple ID Password On your iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-lava-storm-5g-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Lava Storm 5G? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-top-camcorders-to-consider-in-depth-analysis/"><u>2024 Approved  The Top Camcorders to Consider – In-Depth Analysis</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-oppo-reno-10-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Oppo Reno 10 5G Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-power-of-precision-in-slug-line-writing-techniques/"><u>2024 Approved  The Power of Precision in Slug Line Writing Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-streamline-video-content-delivery-a-curated-list-of-players/"><u>2024 Approved  Streamline Video Content Delivery  A Curated List of Players</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-uniting-digital-and-physical-worlds/"><u>2024 Approved  Uniting Digital and Physical Worlds</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unveiling-podcasts-peak-listening-times/"><u>2024 Approved  Unveiling Podcasts  Peak Listening Times</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-itel-p40-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Itel P40 | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-screen-protectors-that-enhance-vr-filming/"><u>2024 Approved  Screen Protectors That Enhance VR Filming</u></a></li>
+</ul></div>

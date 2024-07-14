@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Top Scripts Across Eight Film Categories"
-date: 2024-06-17T14:30:08.663Z
-updated: 2024-06-18T14:30:08.663Z
+date: 2024-07-13T20:56:38.617Z
+updated: 2024-07-14T20:56:38.617Z
 tags: 
   - screen-recording
   - ai video
@@ -33,7 +33,7 @@ _Be it a blockbuster movie, an indie gem, a play on The Fringe, or the West End 
 
 ## Part 1\. Why did we pick these films?
 
-When you look at the top-grossing movies at the box office, it's no surprise that they primarily consist of superhero movies made by big studios with big budgets. Black Widow is the[top-grossing film of 2022](https://www.boxofficemojo.com/chart/top%5Flifetime%5Fgross/?area=XWW) so far, with Shang-Chi and The Legend of the Ten Rings a close second. In third place is F9: The Fast Saga, the ninth installment in the overwhelmingly popular Fast and Furious franchise.
+When you look at the top-grossing movies at the box office, it's no surprise that they primarily consist of superhero movies made by big studios with big budgets. Black Widow is the [top-grossing film of 2022](https://www.boxofficemojo.com/chart/top%5Flifetime%5Fgross/?area=XWW) so far, with Shang-Chi and The Legend of the Ten Rings a close second. In third place is F9: The Fast Saga, the ninth installment in the overwhelmingly popular Fast and Furious franchise.
 
 ![reason of picking films](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-1.jpg)
 
@@ -41,6 +41,9 @@ Sure, we'd all love to write one of those big blockbusters, but it's going to ta
 
 As aspiring screenwriters, it is important for us to focus on markets where we can break through. Some genres don't necessarily require a huge budget or an A-list star to be successful, and that's good news. Making a movie is the beginning of the journey to getting hired to write a superhero movie.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2\. Scripts examples from 8 genre
 
 ### Best horror scripts
@@ -289,7 +292,7 @@ Creating video content that can potentially go viral is no longer a complicated 
 
 ## Part 1\. Why did we pick these films?
 
-When you look at the top-grossing movies at the box office, it's no surprise that they primarily consist of superhero movies made by big studios with big budgets. Black Widow is the[top-grossing film of 2022](https://www.boxofficemojo.com/chart/top%5Flifetime%5Fgross/?area=XWW) so far, with Shang-Chi and The Legend of the Ten Rings a close second. In third place is F9: The Fast Saga, the ninth installment in the overwhelmingly popular Fast and Furious franchise.
+When you look at the top-grossing movies at the box office, it's no surprise that they primarily consist of superhero movies made by big studios with big budgets. Black Widow is the [top-grossing film of 2022](https://www.boxofficemojo.com/chart/top%5Flifetime%5Fgross/?area=XWW) so far, with Shang-Chi and The Legend of the Ten Rings a close second. In third place is F9: The Fast Saga, the ninth installment in the overwhelmingly popular Fast and Furious franchise.
 
 ![reason of picking films](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-1.jpg)
 
@@ -315,6 +318,18 @@ The screenplay was written by [**Gary Dauberman**](https://en.wikipedia.org/wiki
 
 **_2\. Halloween_**
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![halloween](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-3.jpg)
 
 **Writer:** John Carpenter and Debra Hill
@@ -375,6 +390,9 @@ Angel, a child fairy, learns a valuable lesson about caring for the sick when sh
 
 ### Best promotional video scripts
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![best promotional video scripts](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-8.jpg)
 
 _**1\. Announcement**_
@@ -439,6 +457,9 @@ Set: _A Park. Daytime in the present. It is a bucolic atmosphere in the middle o
 
 Level of difficulty: _6/10 – conversational, easy lines to remember and that also flow easily_
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![a walk in the park](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-10.jpg)
 
 When Jack meets Esther in the park one day, he swears she looks familiar. Although Esther initially denies that she even knows him, she invites him to sit down and they start talking. Jack tells her a story about a girl he knew a long time ago, a girl he called "Essie", who helped him get over another girl who broke his heart a long time ago. A short five-minute game for seniors - one man and one woman.
@@ -566,3 +587,43 @@ Creating video content that can potentially go viral is no longer a complicated 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-unpacking-magix-video-editor-features/"><u>[New] 2024 Approved  Unpacking MAGIX Video Editor Features</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-gripping-gospels-intros-that-draw-ears/"><u>[Updated] In 2024, Gripping Gospels  Intros That Draw Ears</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-coolest-filmora-elements-for-enthusiastic-creators-for-2024/"><u>[Updated] The Coolest Filmora Elements for Enthusiastic Creators for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/elite-archives-for-3d-graffiti-fonts-for-2024/"><u>Elite Archives for 3D Graffiti Fonts for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-full-rotational-photography-versus-3d-scanning/"><u>[New] 2024 Approved  Full-Rotational Photography versus 3D Scanning</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-image-illumination-the-essential-list-of-frame-enhancing-apps/"><u>In 2024, Image Illumination  The Essential List of Frame-Enhancing Apps</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/navigating-the-best-lipo-cells-for-quality-flight-time-for-2024/"><u>Navigating the Best LiPo Cells for Quality Flight Time for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-core-skills-in-video-and-film-creation/"><u>[New] Core Skills in Video and Film Creation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-quick-insights-5-easy-techniques-for-effective-audio-capture-on-windows-11/"><u>In 2024, Quick Insights  5 Easy Techniques for Effective Audio Capture on Windows 11</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-handheld-smooth-movies-maker/"><u>[New] 2024 Approved  Handheld Smooth Movies Maker</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-unlocking-laughter-in-vr-crafting-metaverse-humor/"><u>[New] 2024 Approved  Unlocking Laughter in VR  Crafting Metaverse Humor</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-expert-tips-for-ios-downloading-podcasts-on-iphone-for-2024/"><u>[New] Expert Tips for iOS  Downloading Podcasts on iPhone for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-mastering-multi-image-compositions-photo-montages-guide/"><u>[Updated] Mastering Multi-Image Compositions  Photo Montages Guide</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-3-simple-ways-to-color-grading-in-adobe-photoshop/"><u>[Updated] 3 Simple Ways to Color Grading in Adobe Photoshop</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/mobile-tools-optimize-and-enhance-audio-faster-for-2024/"><u>Mobile Tools  Optimize and Enhance Audio Faster for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-essential-steps-to-record-films-on-computersmacs-and-phones/"><u>[Updated] In 2024, Essential Steps to Record Films on Computers/Macs & Phones</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-exploring-magix-music-creators-capabilities/"><u>[Updated] In 2024, Exploring Magix Music Creator's Capabilities</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-duration-of-a-standard-resolution-20mb-video/"><u>2024 Approved  Duration of a Standard-Resolution 20MB Video</u></a></li>
+<li><a href="https://techidaily.com/how-to-free-up-apple-iphone-13-pro-max-space-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Free Up Apple iPhone 13 Pro Max Space | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-detailed-guide-to-photo-hue-opposites-technique/"><u>[New] Detailed Guide to Photo Hue Opposites Technique</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-seamless-spinning-and-stitching-an-android-videographers-handbook/"><u>2024 Approved  Seamless Spinning & Stitching  An Android Videographer's Handbook</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-cut-the-hassle-with-macos-easy-to-follow-video-size-adjustment-for-instagram/"><u>[Updated] In 2024, Cut the Hassle with MacOS  Easy-to-Follow Video Size Adjustment for Instagram</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-vivo-y28-5g-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Vivo Y28 5G Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-classic-1980s-visual-elements-in-editing-workflow/"><u>[Updated] In 2024, Classic 1980S Visual Elements in Editing Workflow</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-clarity-champions-top-10-smartphones-with-high-res-4k-cameras/"><u>[Updated] Clarity Champions  Top 10 Smartphones with High-Res 4K Cameras</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/charting-a-path-to-profit-calculating-video-view-requirements/"><u>Charting a Path to Profit  Calculating Video View Requirements</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-top-picks-6-cost-free-tiktok-converters-for-mp3-downloads/"><u>[New] Top Picks  6 Cost-Free TikTok Converters for MP3 Downloads</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-budget-friendly-filmmaking-choose-the-best-6-action-cameras/"><u>[Updated] Budget-Friendly Filmmaking  Choose the Best 6 Action Cameras</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-unleash-full-potential-with-camcapturers-innovations/"><u>[Updated] 2024 Approved  Unleash Full Potential with CamCapturer's Innovations</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-beginning-participating-in-and-organizing-group-video-calls-zoom-for-android-devices/"><u>[Updated] Beginning, Participating in, and Organizing Group Video Calls (Zoom) for Android Devices</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-step-by-step-to-adobe-cloud-success-and-non-adobe-options/"><u>In 2024, Step-by-Step to Adobe Cloud Success & Non-Adobe Options</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-focus-on-the-details-with-videoleaps-zooming-feature/"><u>In 2024, Focus on the Details with Videoleap's Zooming Feature</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-expert-tips-to-sharpen-video-calls-with-zoom-in-teams/"><u>[New] 2024 Approved  Expert Tips to Sharpen Video Calls with ZOOM in Teams</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-essential-blueprint-for-melding-linktree-into-tiktok-profiles/"><u>2024 Approved  The Essential Blueprint for Melding Linktree Into TikTok Profiles</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-elevate-audio-quality-in-podcasts-using-garageband/"><u>2024 Approved  Elevate Audio Quality in Podcasts Using GarageBand</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-navigating-nocturnal-images-on-iphones/"><u>[Updated] Navigating Nocturnal Images on iPhones</u></a></li>
+</ul></div>

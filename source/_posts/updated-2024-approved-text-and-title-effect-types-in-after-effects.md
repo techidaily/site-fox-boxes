@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Text and Title Effect Types in After Effects\""
-date: 2024-06-17T13:25:13.706Z
-updated: 2024-06-18T13:25:13.706Z
+date: 2024-07-13T19:45:42.417Z
+updated: 2024-07-14T19:45:42.417Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,9 @@ Generally, when you type a text in After Effects, by default, it comes out to be
 
 After Effects has “Enable per-character 3D” property to all Z axis to applicable properties so that you can get the desired effect. You can go to properties like rotation or position to find Z axis that you can modify and get the perfect 3D text.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Rotation and Anchor Point
 
 Rotation is one of the most commonly used parameters in text animations. There are unlimited variations of text animations and effects that you can create using rotation parameter in After Effects. The rotation takes place in proportion to the anchor points of the text. When you change the value of Rotation parameter, the actual rotation takes place around the anchor points.
@@ -79,6 +82,9 @@ Keyframe is like stretching two points into multiple points and for every point,
 
 Therefore, keyframes are the building blocks for text animations and you have to use keyframes to create all the different online text effects. You can put the keyframes far apart or close and speed up or slow down the animation.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2\. How to Edit Text Effects in Videos with AE
 
 Now that you know the different animation parameters and text effect types, it is time to combine the parameters and animate the text. First of all, you should create a text layer with the desired source text After Effects. Then you can select a text effect preset and apply it to the text layer. Thereafter, you can animate the text by editing the different parameters and properties we have mentioned along with keyframes. Here are the steps to add and edit text effects in videos with AE.
@@ -211,6 +217,9 @@ Step1 Install Wondershare Filmora on your computer and launch the application. C
 
 Step2 Drag and drop the video clip onto timeline. Go to Titles option and you will see different categories of text effects on the left panel. Select any one of text effect templates and drop onto the timeline above the background video.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![select background for text filmora](https://images.wondershare.com/filmora/article-images/2022/09/select-background-for-text-filmora.jpg)
 
 Step3 Double-click on the text layer on the timeline to edit the text preset. You can select any available text style as well as adjust parameters from font and settings sections.
@@ -219,6 +228,9 @@ Step3 Double-click on the text layer on the timeline to edit the text preset. Yo
 
 Step4 Go to Animation section and click on Advanced button. Change different parameters under Customize section such as Blue, Opacity, Shadow, and much more. You can create keyframes on the timeline like AE and edit parameters as per your preference.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add animation text in filmora](https://images.wondershare.com/filmora/article-images/2022/09/add-animation-text-in-filmora.jpg)
 
 ## Part 4\. Related FAQs of Title Effects in After Effects
@@ -258,3 +270,42 @@ Motion title is a dynamic text effect template available in After Effects throug
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-evolved-sony-bdp-s6700-unveiled/"><u>[New] In 2024, The Evolved Sony BDP-S6700 Unveiled</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-top-10-smartphone-vr-gadgets-uncovered/"><u>In 2024, Top 10 Smartphone VR Gadgets Uncovered</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-easymp3-transcriber-free-mp3-to-text-converter-for-everyday-use-available-in-videojot-pro-suite/"><u>New 2024 Approved EasyMP3 Transcriber Free MP3-to-Text Converter for Everyday Use - Available in VideoJot Pro Suite</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-excellence-in-dialogue-maker-land/"><u>[New] Excellence in Dialogue Maker Land</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/cutting-edge-emoji-makers-revolutionizing-discord-for-2024/"><u>Cutting-Edge Emoji Makers Revolutionizing Discord for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-vlogging-basics-top-uncomplicated-projects/"><u>In 2024, Vlogging Basics  Top Uncomplicated Projects</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-lost-photos-during-transfer-from-iphone-6s-plus-to-pc-or-mac-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Recover Lost Photos during Transfer from iPhone 6s Plus to PC or Mac | Stellar</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-light-up-your-videos-top-rated-brightening-apps-for-2024/"><u>Updated Light Up Your Videos Top-Rated Brightening Apps for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/tutorial-extracting-audio-from-vimeo-video/"><u>Tutorial  Extracting Audio From Vimeo Video</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-pushing-boundaries-with-hps-next-gen-4k-display-envy-27/"><u>In 2024, Pushing Boundaries with HP's Next Gen 4K Display, Envy 27</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-learn-how-to-change-number-on-tiktok-with-working-methods/"><u>2024 Approved  Learn How to Change Number on TikTok with Working Methods</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/best-quality-steadicam-equipment-for-drone-filmmaking/"><u>Best-Quality Steadicam Equipment for Drone Filmmaking</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-analyzing-investment-for-video-promotion/"><u>[New] 2024 Approved  Analyzing Investment for Video Promotion</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-new-frontiers-unpacking-windows-10-improvements/"><u>[New] 2024 Approved  New Frontiers  Unpacking Windows 10 Improvements</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/breaking-ground-in-editing-an-examination-of-the-vida-app-for-2024/"><u>Breaking Ground in Editing  An Examination of the Vida App for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-keeping-your-gopro-fogless-for-perfection/"><u>[New] In 2024, Keeping Your GoPro Fogless for Perfection</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-transcending-boundaries-the-vr-evolutionary-journey-for-2024/"><u>[Updated] Transcending Boundaries  The VR Evolutionary Journey for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-instant-srt-to-txt-efficient-conversion-methods-revealed/"><u>[New] In 2024, Instant SRT to TXT  Efficient Conversion Methods Revealed</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-the-logo-journey-key-steps-in-crafting-iconic-covers/"><u>In 2024, The Logo Journey  Key Steps in Crafting Iconic Covers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/complete-kinetic-review-2023-for-2024/"><u>Complete Kinetic Review 2023 for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-eliminating-audacitys-unwanted-sounds-for-2024/"><u>[Updated] Eliminating Audacity's Unwanted Sounds for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/elite-picks-advanced-webcam-stands/"><u>Elite Picks  Advanced Webcam Stands</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-totv-multimedia-player-wmp-alternative/"><u>In 2024, TOTV Multimedia Player  WMP Alternative</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-generate-funny-image-for-giphy/"><u>[New] In 2024, Generate Funny Image for Giphy</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/evaluating-cost-effectiveness-in-youtube-promotions-for-2024/"><u>Evaluating Cost Effectiveness in YouTube Promotions for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/comprehensible-list-best-games-music-found-online-for-2024/"><u>Comprehensible List  Best Games’ Music Found Online for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-discover-11-leading-streamers-audio-recorders/"><u>[Updated] Discover 11 Leading Streamers' Audio Recorders</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-top-lenses-for-animation-photography/"><u>[Updated] Top Lenses for Animation Photography</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-maximizing-b-roll-creative-uses-and-integration/"><u>2024 Approved  Maximizing B-Roll  Creative Uses and Integration</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/crafting-seamless-audiovisual-mixes-in-audacity-for-2024/"><u>Crafting Seamless Audiovisual Mixes in Audacity for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-expert-picks-for-superior-steadicams-in-aerial-cinema/"><u>[New] Expert Picks for Superior Steadicams in Aerial Cinema</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-hilarityhatcher-create-comedy-with-a-click/"><u>In 2024, HilarityHatcher  Create Comedy with a Click</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/flip-spin-and-rotate-top-10-free-video-editing-software-for-2024/"><u>Flip, Spin, and Rotate Top 10 Free Video Editing Software for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-increase-viewership-quickly-smart-streaming-across-platforms-like-youtube-and-twitch/"><u>[New] Increase Viewership Quickly  Smart Streaming Across Platforms Like Youtube and Twitch</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-crafting-dynamic-duo-videos-on-macos-sierra/"><u>In 2024, Crafting Dynamic Duo Videos on macOS Sierra</u></a></li>
+</ul></div>

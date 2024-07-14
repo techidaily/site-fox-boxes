@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Playback Issues  Resolving Video Not Showing Sony A6400\""
-date: 2024-06-17T13:39:35.777Z
-updated: 2024-06-18T13:39:35.777Z
+date: 2024-07-13T20:01:10.929Z
+updated: 2024-07-14T20:01:10.929Z
 tags: 
   - screen-recording
   - ai video
@@ -216,6 +216,9 @@ Among the top-quality camcorders in the market, Sony is one of the leading optio
 
 You can also include editing features like transitions, special video effects, etc. The various features available on Filmora allow you to enhance the value of your video file.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![cannot-see-video-sony-a6400-](https://images.wondershare.com/filmora/article-images/2022/05/cannot-see-video-sony-a6400-8.jpg)
 
 * **Step 6:** Once you’re done editing the video, select the ‘export’ tab, allowing you to save your video to a new location. You can also change your video’s bit rate, resolution, and frame rate.
@@ -247,6 +250,9 @@ Now that you know the top reasons you can’t see videos on Sony A6400, you migh
 
 **Ensure the Video Format is Supported**
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![cannot-see-video-sony-a6400-](https://images.wondershare.com/filmora/article-images/2022/05/cannot-see-video-sony-a6400-3.jpg)
 
 Although this reason isn’t as popular as the rest, there are times when the Sony A6400 records videos in a format that’s not supported by your system. When this happens, it could be why you can’t see videos on Sony A6400\. Most of the video formats supported by Mac and Windows include AVI, MOV, FLV, MP4, etc.
@@ -376,6 +382,9 @@ If the videos are hidden, you might not be able to see the videos when you conne
 * Open the SD Card storage and try to locate the videos if they’re still not visible.
 * Navigate to the view section from the navigation bar, and from the show/hide option, click the ‘view hidden items’ option.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![cannot-see-video-sony-a6400-](https://images.wondershare.com/filmora/article-images/2022/05/cannot-see-video-sony-a6400-5.jpg)
 
 * This would make all hidden videos show up, and you can open any of the videos you want.
@@ -416,6 +425,9 @@ Among the top-quality camcorders in the market, Sony is one of the leading optio
 
 * **Step 5:** Start to customize your Sony A6400 video as you prefer; you can split the video into smaller clips, edit the audio track or add a new one to the video.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![cannot-see-video-sony-a6400-](https://images.wondershare.com/filmora/article-images/2022/05/cannot-see-video-sony-a6400-7.jpg)
 
 You can also include editing features like transitions, special video effects, etc. The various features available on Filmora allow you to enhance the value of your video file.
@@ -453,3 +465,41 @@ Knowing why you can’t see videos on Sony A6400 is essential because it allows 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-seamless-transition-into-the-world-of-zoom-meetings-for-your-android-device/"><u>[New] 2024 Approved  Seamless Transition Into the World of Zoom Meetings for Your Android Device</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/free-window-recording-guide-3-easy-steps-for-2024/"><u>Free Window Recording Guide – 3 Easy Steps for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Lenovo ThinkPhone | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-audio-craftsmanship-weaving-voiceovers-into-visual-tapestries/"><u>[New] 2024 Approved  Audio Craftsmanship  Weaving Voiceovers Into Visual Tapestries</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-in-depth-look-at-frozen-delight-recording-software/"><u>[New] In 2024, In-Depth Look at Frozen Delight Recording Software</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/from-fast-to-slow-how-to-use-vlcs-slow-motion-feature-like-a-pro/"><u>From Fast to Slow How to Use VLCs Slow Motion Feature Like a Pro</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-your-asmr-journey-essential-mic-choices-to-explore/"><u>[New] Your ASMR Journey  Essential Mic Choices to Explore</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/time-saving-strategies-for-srt-to-text-file-changes/"><u>Time-Saving Strategies for SRT to Text File Changes</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-best-vr-cycling-experiences-awaiting-you/"><u>In 2024, Best VR Cycling Experiences Awaiting You</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-seamless-audio-edits-with-garageband-features/"><u>In 2024, Seamless Audio Edits with GarageBand Features</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/daily-digest-downloader/"><u>Daily Digest Downloader</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-leading-mp4-companies-to-watch/"><u>In 2024, Leading MP4 Companies to Watch</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/picture-perfect-prose-exploring-apps-for-image-text-edits/"><u>Picture Perfect Prose  Exploring Apps for Image Text Edits</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-tecno-spark-10-4g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Tecno Spark 10 4G to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-advanced-photo-manipulation-focus-on-content-not-backdrop/"><u>[New] Advanced Photo Manipulation  Focus on Content, Not Backdrop</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-essential-guide-to-20-free-hassle-free-storage-options-with-max-limit/"><u>[New] In 2024, Essential Guide to 20 Free, Hassle-Free Storage Options with Max Limit</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-mastering-underwater-video-action-cameras-reviewed-and-rated/"><u>[New] Mastering Underwater Video  Action Cameras Reviewed & Rated</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-fb-slideshow-101-a-beginners-guide/"><u>2024 Approved  FB Slideshow 101  A Beginner's Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-essentials-of-cinematic-dialogue-design/"><u>[New] In 2024, Essentials of Cinematic Dialogue Design</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/2024-approved-the-ultimate-3gp-video-editor-cutting-and-trimming-made-simple/"><u>2024 Approved The Ultimate 3GP Video Editor Cutting and Trimming Made Simple</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-moviemaker-masterwin8/"><u>[New] 2024 Approved  MovieMaker MasterWin8</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-best-radio-drama-scripts/"><u>[New] Best Radio Drama Scripts</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-peak-procurement-of-lecture-captures/"><u>2024 Approved  Peak Procurement of Lecture Captures</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-substituting-periscope-6-premium-video-apps-for-iphones-and-ipads/"><u>In 2024, Substituting Periscope  6 Premium Video Apps for iPhones & iPads</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-art-of-humor-in-gif-form-mastering-the-most-important-8-creation-methods/"><u>The Art of Humor in GIF Form  Mastering the Most Important 8 Creation Methods</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-deconstructing-the-features-of-djis-quadcopter-model-3/"><u>[New] 2024 Approved  Deconstructing the Features of DJI's Quadcopter Model 3</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unleash-potential-understanding-and-altering-account-numbers/"><u>[New] Unleash Potential  Understanding and Altering Account Numbers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-rapid-transition-from-srt-to-subc-with-simple-steps/"><u>[New] 2024 Approved  Rapid Transition From SRT to SUBC with Simple Steps</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/secret-whatsapp-techniques-for-maximum-impact/"><u>Secret WhatsApp Techniques for Maximum Impact</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-stepwise-strategy-editing-multi-snap-chats-with-ease-for-2024/"><u>[Updated] Stepwise Strategy  Editing Multi-Snap Chats with Ease for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-pixel-perfect-memes-with-kinemaster/"><u>[New] 2024 Approved  Pixel Perfect Memes with KineMaster</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-effortless-tiktok-age-verification-process/"><u>[New] Effortless TikTok Age Verification Process</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-convert-avi-videos-into-high-impact-gifs-using-filmora-for-windowsmacos/"><u>[New] Convert AVI Videos Into High Impact GIFs Using Filmora for Windows/MacOS</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-real-time-skype-monitoring-with-live-obs-integration/"><u>[New] Real-Time Skype Monitoring with Live OBS Integration</u></a></li>
+</ul></div>

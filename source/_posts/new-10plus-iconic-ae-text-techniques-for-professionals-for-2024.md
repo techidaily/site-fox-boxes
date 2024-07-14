@@ -1,7 +1,7 @@
 ---
 title: "[New] 10+ Iconic AE Text Techniques for Professionals for 2024"
-date: 2024-06-17T13:51:17.142Z
-updated: 2024-06-18T13:51:17.142Z
+date: 2024-07-13T20:13:49.257Z
+updated: 2024-07-14T20:13:49.257Z
 tags: 
   - screen-recording
   - ai video
@@ -85,6 +85,9 @@ Now that you know the different animation parameters and text effect types, it i
 
 Step1 Go to Tool panel, click on Type tool. Click on Composition panel and type in your text. Go to Characters and Paragraph section and adjust the text style parameters.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![text style parameters after effects](https://images.wondershare.com/filmora/article-images/2022/09/text-style-parameters-after-effects.jpg)
 
 Step2 Go to Effects and Presets panel, search for the desired text effect preset that you want to apply on your text. Drag and drop the selected preset on the text layer and you will see your text getting transformed instantly.
@@ -149,12 +152,18 @@ After Effects has “Enable per-character 3D” property to all Z axis to applic
 
 Rotation is one of the most commonly used parameters in text animations. There are unlimited variations of text animations and effects that you can create using rotation parameter in After Effects. The rotation takes place in proportion to the anchor points of the text. When you change the value of Rotation parameter, the actual rotation takes place around the anchor points.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Scale and Position
 
 If you want to zoom in and zoom out animation for your text or title, you can use the Scale property in After Effects. You can use keyframes and for each keyframe, you can adjust the scale value and create an illustration of zooming in and out very easily.
 
 There are different variations of zoom in and out effect that you can try on your text and title to make animation creative and visually appealing. On the other hand, position refers to the location of the text on the video frame depending on X, Y, and Z axis values.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. Blur and Opacity
 
 You must have seen the text animation where the blurry text comes into focus and this can be achieved using Blur parameter. Many people confused Blur with Opacity but blur refers to out of focus while opacity can be understood by fade in and fade out effect. You can adjust the horizontal and vertical blur amount separately and you can come up with stunning text animations by changing Blur value.
@@ -197,6 +206,9 @@ Step3 Go to Timeline and click on the text layer to expand it. Click on Animate 
 
 Apart from the animate option and its parameters, there are several parameters such as transform that you can adjust to edit the text effect as per your preference.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3\. AE Alternative to Edit Text Effects in Video
 
 If you are not comfortable with After Effects and you are looking for a better alternative to AE to add and edit text effects in videos, we recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Filmora has a super intuitive user interface and hence, it is easy to operate than After Effects. Besides, there are more text effects and animations available in Filmora as compared to AE. Editing text effects is super easy as well. Here are the steps to edit text effects in videos with Filmora.
@@ -258,3 +270,48 @@ Motion title is a dynamic text effect template available in After Effects throug
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-revolutionizing-video-speed-in-social-networks/"><u>[New] In 2024, Revolutionizing Video Speed in Social Networks</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-propel-your-youtube-content-faster-render-and-efficient-upload-processes/"><u>2024 Approved  Propel Your YouTube Content  Faster Render & Efficient Upload Processes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/best-budget-friendly-hd-cameras-for-adrenaline-junkies/"><u>Best Budget-Friendly HD Cameras for Adrenaline Junkies</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-nighttime-storyscapes-in-moving-pictures/"><u>[New] 2024 Approved  Nighttime Storyscapes in Moving Pictures</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-endless-video-recording-program/"><u>[Updated] Endless Video Recording Program</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-how-to-find-facebook-recently-watched-videos-for-2024/"><u>[New] How to Find Facebook Recently Watched Videos for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/m1-advantages-in-high-quality-video-production-workstations/"><u>M1 Advantages in High-Quality Video Production Workstations</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-what-makes-magix-video-pro-x-stand-out/"><u>2024 Approved  What Makes Magix Video Pro X Stand Out?</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-whats-hot-on-the-app-store-top-iphone-apps-and-trends-for-2024/"><u>Updated Whats Hot on the App Store Top iPhone Apps and Trends for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-investigating-whether-photostabilizer-transforms-image-quality/"><u>In 2024, Investigating Whether PhotoStabilizer Transforms Image Quality</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/nvidia-malfunction-cured-display-resolved/"><u>Nvidia Malfunction Cured - Display Resolved</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-the-ice-with-these-beginner-video-gadgets-for-2024/"><u>Break the Ice with These Beginner Video Gadgets for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-advanced-tips-for-sending-fb-videos-via-whatsapp-for-2024/"><u>[Updated] Advanced Tips for Sending FB Videos via WhatsApp for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-elevating-social-media-interaction-via-fb-story-links/"><u>[Updated] In 2024, Elevating Social Media Interaction via FB Story Links</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unraveling-chroma-key-mystery-for-everyone-starting-off-with-green-screen/"><u>2024 Approved  Unraveling Chroma Key Mystery  For Everyone Starting Off with Green Screen</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-the-fascinating-world-of-stock-pictures-and-meme-lore/"><u>In 2024, The Fascinating World of Stock Pictures & Meme Lore</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-your-portal-to-pristine-tiktok-downloads-free-and-simple/"><u>[New] 2024 Approved  Your Portal to Pristine TikTok Downloads - Free & Simple</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-prime-5-podcast-options-for-your-iphone-experience/"><u>[New] In 2024, Prime 5 Podcast Options for Your iPhone Experience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-honored-advisors-elite-iphone-audio-experts/"><u>[New] Honored Advisors  Elite iPhone Audio Experts</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mending-a-singular-audio-unit-for-2024/"><u>Mending a Singular Audio Unit for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-exploring-options-when-facebook-takes-down-my-content/"><u>[Updated] 2024 Approved  Exploring Options When Facebook Takes Down My Content</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-drone-guide-for-beginners-facts-you-cant-afford-to-miss/"><u>[New] Drone Guide for Beginners  Facts You Can't Afford to Miss</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-have-you-ever-wondered-how-to-add-camera-shake-to-video-in-adobe-after-effects-let-us-share-with-you-some-tips-and-tricks-on-how-to-do-just-/"><u>Updated In 2024, Have You Ever Wondered How to Add Camera Shake to Video in Adobe After Effects? Let Us Share with You some Tips and Tricks on How to Do Just That</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-honor-magic-5-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Honor Magic 5 FRP Locks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-delving-into-quantum-hdr-a-complete-overview-for-2024/"><u>[New] Delving Into Quantum HDR  A Complete Overview for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-in-depth-walkthrough-for-proficient-use-of-green-screen-in-kinemaster/"><u>[New] In 2024, In-Depth Walkthrough for Proficient Use of Green Screen in Kinemaster</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-ceased-shorts-missing-on-youtube-screen/"><u>[New] In 2024, Ceased  Shorts Missing on YouTube Screen</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-visual-perfection-through-quantum-hdr-techniques/"><u>[New] 2024 Approved  Visual Perfection Through Quantum HDR Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-enhance-your-screenshot-experience-apple-and-androids-best-sticker-add-ons/"><u>[New] In 2024, Enhance Your Screenshot Experience  Apple & Android's Best Sticker Add-Ons</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unveiling-the-future-of-marketing/"><u>2024 Approved  Unveiling the Future of Marketing</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-photos-from-oppo-f23-5g-by-fonelab-android-recover-photos/"><u>Undelete lost photos from Oppo F23 5G.</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/the-role-and-relevance-of-pfp-in-tiktok-culture-for-2024/"><u>The Role and Relevance of PFP in TikTok Culture for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/action-like-never-before-review-the-t5-eye-action-camera/"><u>Action Like Never Before  Review the T5 Eye Action Camera</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-enthralling-type-mobility-setups/"><u>[New] Enthralling Type Mobility Setups</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-maximize-reach-in-telegram-a-marketers-playbook/"><u>[New] 2024 Approved  Maximize Reach in Telegram  A Marketer's Playbook</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/innovative-question-collection-for-lively-podcast-discussions-for-2024/"><u>Innovative Question Collection for Lively Podcast Discussions for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/elite-imagery-journey-maker-kit-for-2024/"><u>Elite Imagery Journey Maker Kit for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/streamlined-signal-synchronizer-for-podcasters-for-2024/"><u>Streamlined Signal Synchronizer  For Podcasters for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/file-funneling-transfer-techniques-for-your-computer-for-2024/"><u>File Funneling  Transfer Techniques for Your Computer for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-a-critical-look-at-the-latest-camera-recording-systems/"><u>[Updated] 2024 Approved  A Critical Look at the Latest Camera Recording Systems</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/in-2024-the-ultimate-list-of-16-free-avi-video-rotation-tools-for-any-platform/"><u>In 2024, The Ultimate List of 16 Free AVI Video Rotation Tools for Any Platform</u></a></li>
+</ul></div>

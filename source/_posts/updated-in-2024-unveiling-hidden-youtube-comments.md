@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Unveiling Hidden YouTube Comments"
-date: 2024-07-02T12:44:19.230Z
-updated: 2024-07-03T12:44:19.230Z
+date: 2024-07-13T20:35:58.305Z
+updated: 2024-07-14T20:35:58.305Z
 tags: 
   - screen-recording
   - ai video
@@ -99,6 +99,9 @@ To see videos/comments you liked or disliked, please follow these steps as conti
 
 Step4 In the **Google My Activity** tab, click **Other activity**.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![other activity youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/other-activity-youtube-comments.jpg)
 
 Step5 Scroll down and find **Comment Likes and Dislikes on YouTube** section. Click **View Comment Likes and Dislikes**.
@@ -111,6 +114,9 @@ Now you will see the videos you liked or disliked and also the comments you like
 
 This article tells you that you can't see who liked or disliked a comment, but you can see how many likes or dislikes a comment got. Then go to any video you want, scroll down to the comment section, and see how many likes or dislikes a comment received.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![likes comment received](https://images.wondershare.com/filmora/article-images/2022/11/likes-comment-received.jpg)
 
 In this image, the following comments only got likes and no dislikes. That is why there are just written numbers on the like button and on the dislike button there are none.
@@ -205,6 +211,9 @@ Step5 Scroll down and find **Comment Likes and Dislikes on YouTube** section. Cl
 
 Now you will see the videos you liked or disliked and also the comments you liked or disliked, including the date when you liked or disliked the video/comment.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![date likes videos youtube](https://images.wondershare.com/filmora/article-images/2022/11/date-likes-videos-youtube.jpg)
 
 This article tells you that you can't see who liked or disliked a comment, but you can see how many likes or dislikes a comment got. Then go to any video you want, scroll down to the comment section, and see how many likes or dislikes a comment received.
@@ -213,6 +222,9 @@ This article tells you that you can't see who liked or disliked a comment, but y
 
 In this image, the following comments only got likes and no dislikes. That is why there are just written numbers on the like button and on the dislike button there are none.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Respond to Comments
 
 Don't ignore someone who has questioned you or written you a heartfelt note. Keep the conversation (and engagement) going by responding to comments.
@@ -280,3 +292,64 @@ Additionally, video creators can manually highlight commenters to mark them for 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-best-ranked-cost-free-video-playing-software-for-pc-users-worldwide/"><u>2024 Approved  The Best-Ranked, Cost-Free Video Playing Software for PC Users Worldwide</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/a-step-by-step-manual-for-capturing-vr-playthroughs-for-2024/"><u>A Step-by-Step Manual for Capturing VR Playthroughs for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-conquering-the-fan-base-youtubes-pathway-to-more-followers-for-2024/"><u>[Updated] Conquering the Fan Base  YouTube's Pathway to More Followers for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-exclusive-top-8-gear-in-the-vr-sphere/"><u>[New] Exclusive Top 8 Gear in the VR Sphere</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-dimming-down-beats-a-tutorial-for-premiere-pro-editors/"><u>In 2024, Dimming Down Beats  A Tutorial for Premiere Pro Editors</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/constructing-a-premium-video-editing-pc-from-the-ground-up/"><u>Constructing a Premium Video Editing PC From the Ground Up</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-learn-the-process-of-capturing-your-watched-youtube-content-without-spending/"><u>In 2024, Learn the Process of Capturing Your Watched YouTube Content Without Spending</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-google-pixel-7a-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Google Pixel 7a Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-ultimate-reddit-winners-a-collection-of-best-posts/"><u>2024 Approved  Ultimate Reddit Winners  A Collection of Best Posts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/brand-storytelling-through-the-eyes-of-customer-voices-for-2024/"><u>Brand Storytelling Through the Eyes of Customer Voices for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-mastering-the-craft-of-professional-gopro-cinematography/"><u>[Updated] 2024 Approved  Mastering the Craft of Professional Gopro Cinematography</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-ultimate-checklist-for-a-premium-4k-lens-buy/"><u>[New] The Ultimate Checklist for a Premium 4K Lens Buy</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-dive-deep-into-obs-advanced-techniques-for-game-capture-for-2024/"><u>[Updated] Dive Deep Into OBS  Advanced Techniques for Game Capture for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-laptop-and-mobile-entrance-into-online-gatherings-google-meet/"><u>[Updated] 2024 Approved  Laptop & Mobile  Entrance Into Online Gatherings (Google Meet)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/effortless-viewing-automatic-playback-of-youtube-videos-on-social-media-for-2024/"><u>Effortless Viewing  Automatic Playback of YouTube Videos on Social Media for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-mastering-snapchat-share-tweets-via-video/"><u>[Updated] 2024 Approved  Mastering Snapchat  Share Tweets via Video</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-breaking-down-whatsapps-voice-call-features/"><u>In 2024, Breaking Down WhatsApp's Voice Call Features</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-elevate-your-social-media-reach-fb-ad-mastery-techniques/"><u>In 2024, Elevate Your Social Media Reach  FB Ad Mastery Techniques</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/from-screen-to-speakers-secrets-to-successful-video-sharing-for-2024/"><u>From Screen To Speakers  Secrets to Successful Video Sharing for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/moonbeam-methods-crafting-perfect-night-photography-for-2024/"><u>Moonbeam Methods  Crafting Perfect Night Photography for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-listenleaders-vision-beyond-dacast/"><u>2024 Approved  ListenLeaders  Vision Beyond DaCast</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-beating-buffering-bars-in-twitch-broadcasts-today-for-2024/"><u>[Updated] Beating Buffering Bars in Twitch Broadcasts Today for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-art-and-science-of-capturing-stunning-gopro-time-lapse/"><u>[New] The Art & Science of Capturing Stunning GoPro Time Lapse</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-your-easy-passport-photo-maker-top-quality-for-desktoponline-use-for-2024/"><u>[New] Your Easy Passport Photo Maker - Top Quality for Desktop/Online Use for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-all-inclusive-360-panorama-viewer/"><u>[Updated] All-Inclusive 360 Panorama Viewer</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/detailed-steps-for-creating-professional-hdr-images-for-2024/"><u>Detailed Steps for Creating Professional HDR Images for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-step-by-step-how-to-download-and-personalize-whatsapp-ringtone-on-mobile-for-2024/"><u>[New] Step-By-Step  How to Download and Personalize WhatsApp Ringtone on Mobile for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-vivo-x90s-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Vivo X90S?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-master-the-sphere-ultimate-guide-to-live-broadcast-cameras/"><u>In 2024, Master the Sphere  Ultimate Guide to Live Broadcast Cameras</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/premier-vr-manipulators-to-try-now-for-2024/"><u>Premier VR Manipulators to Try Now for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-dive-into-ios-downloads-an-experts-guide-to-podcast-acquisition/"><u>[New] 2024 Approved  Dive Into iOS Downloads  An Expert's Guide to Podcast Acquisition</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-10-innovative-ar-teaching-examples-to-tell-you-what-is-ar-in-teaching/"><u>Updated 10 Innovative AR Teaching Examples to Tell You What Is AR in Teaching</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/achieving-pristine-audio-quality-utilizing-the-ideal-tools-to-suppress-unwanted-noise/"><u>Achieving Pristine Audio Quality Utilizing the Ideal Tools to Suppress Unwanted Noise</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-elevating-viewers-to-patrons-a-vloggers-guide-to-income/"><u>[New] 2024 Approved  Elevating Viewers to Patrons  A Vlogger's Guide to Income</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-homemade-video-making-top-5-efficient-methods-you-must-know/"><u>[Updated] In 2024, Homemade Video Making  Top 5 Efficient Methods You Must Know</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-oculus-game-collection-top-8-popular-picks/"><u>[Updated] Oculus Game Collection  Top 8 Popular Picks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-elevate-your-engagement-with-strategic-youtube-titles/"><u>[New] In 2024, Elevate Your Engagement with Strategic YouTube Titles</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-a-beginners-strategy-boosting-business-via-telegram-marketing-for-2024/"><u>[New] A Beginner’s Strategy  Boosting Business via Telegram Marketing for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-chilly-competition-unveiling-highlights-of-2022s-snowboard-cross-showdown/"><u>[Updated] In 2024, Chilly Competition  Unveiling Highlights of 2022'S Snowboard Cross Showdown</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-hdri-advantages-over-sdr-for-enhanced-video-quality/"><u>[Updated] 2024 Approved  HDRI Advantages Over SDR for Enhanced Video Quality</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-samsung-galaxy-a15-5g-support-mov-videos-by-aiseesoft-video-converter-play-mov-on-android/"><u>Does Samsung Galaxy A15 5G support MOV videos ?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-personalized-and-no-cost-ending-music-samples-available-for-2024/"><u>[Updated] Personalized & No-Cost Ending Music Samples Available for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-masterful-media-management-dynamic-video-scaling-on-mac/"><u>[Updated] 2024 Approved  Masterful Media Management  Dynamic Video Scaling on Mac</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-sony-a6400-video-failure-what-to-do-next/"><u>[Updated] Sony A6400 Video Failure  What To Do Next?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-high-performance-windows-editing-tools-roundup-reviewed/"><u>[New] 2024 Approved  High Performance Windows Editing Tools Roundup Reviewed</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-essential-ios-video-recorders-reviewed-for-2024/"><u>[Updated] Essential iOS Video Recorders Reviewed for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-elevate-your-video-projects-with-top-tier-srt-edits-on-macos/"><u>2024 Approved  Elevate Your Video Projects with Top-Tier SRT Edits on macOS</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-prime-directors-cut-trailers/"><u>[New] In 2024, Prime Director's Cut Trailers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/effortless-image-incorrante-on-instagram-for-2024/"><u>Effortless Image Incorrante on Instagram for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-easy-pathway-to-fish-chatter-alteration-within-win-environment/"><u>[Updated] 2024 Approved  Easy Pathway to Fish Chatter Alteration Within Win Environment</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-synthetic-adventures-starts-here-top-vr-tools-10-for-2024/"><u>[New] Synthetic Adventures Starts Here  Top VR Tools (10) for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-close-encounters-experiencing-roblox-at-greater-detail-for-2024/"><u>[Updated] Close Encounters  Experiencing Roblox At Greater Detail for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-augmenting-realities-for-better-outcomes-for-2024/"><u>[Updated] Augmenting Realities for Better Outcomes for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/backpack-essentials-for-filming-tours/"><u>Backpack Essentials for Filming Tours</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/elite-crews-essential-sierra-video-editors-for-2024/"><u>Elite Crews  Essential Sierra Video Editors for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-perfect-flying-companions-the-top-kids-drones/"><u>[Updated] Perfect Flying Companions  The Top Kids' Drones</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/preparing-for-peak-vr-performance/"><u>Preparing For Peak VR Performance</u></a></li>
+</ul></div>

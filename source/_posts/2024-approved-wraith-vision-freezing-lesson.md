@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Wraith Vision Freezing Lesson\""
-date: 2024-07-09T22:54:00.288Z
-updated: 2024-07-10T22:54:00.288Z
+date: 2024-07-13T21:23:11.512Z
+updated: 2024-07-14T21:23:11.512Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,9 @@ It is important to pick something that will move slowly or that you can control 
 
 The camera will then capture the movement in slow motion, allowing you to see the beauty of the movement that would otherwise be missed.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![shoot video with phantom camera](https://images.wondershare.com/filmora/article-images/2022/11/shoot-video-with-phantom-camera.jpg)
 
 ### Why do we need a phantom slow-motion camera?
@@ -55,6 +58,9 @@ Phantom cameras are the newest type of camera on the market that can capture slo
 
 One of the most popular ways to use a phantom slow-motion camera is to capture beautiful slow-motion footage of nature. This can be done by setting up the camera in a location where there is a lot of natural movement. The camera will then capture the movement in slow motion, allowing you to see the beauty of the movement that would otherwise be missed.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to create a time-lapse video on a phantom slow-motion camera
 
 A phantom slow-motion camera is a special type of camera that can be used to create time-lapse videos. Time-lapse videos are created by taking a series of photos or videos over a while and then playing them back at a faster speed. This gives the appearance of time moving faster or slower than it is. To create a time-lapse video using a phantom slow-motion camera, you will need the following:
@@ -102,6 +108,9 @@ You can easily install Filmora for free, after installing click on it three opti
 
 After creating a new project, there is an option to add media you can your the video which you want to edit.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add media to library on filmora](https://images.wondershare.com/filmora/article-images/2022/11/add-media-to-library-on-filmora.jpg)
 
 ##### Step3 Drop the media to timeline
@@ -211,6 +220,9 @@ After creating a new project, there is an option to add media you can your the v
 
 Drag and drop your videos on the timeline to start the editing. Once you placed your videos on timelines put the video header at the front.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ![drag media into timeline filmora](https://images.wondershare.com/filmora/article-images/2022/11/drag-media-into-timeline-filmora.jpg)
 
 ##### Step4 Add titles, effects, and transitions to your video
@@ -258,3 +270,57 @@ As filmmakers and video lovers, we have come up with some solid examples of time
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/updated-symphony-for-statuses-whatsapps-melodic-feature/"><u>[Updated] Symphony for Statuses  WhatsApp's Melodic Feature</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-keeping-your-gopro-fogless-for-perfection/"><u>[New] In 2024, Keeping Your GoPro Fogless for Perfection</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/taking-your-aerial-game-to-new-heights-with-dji-spark-reviewed-for-2024/"><u>Taking Your Aerial Game to New Heights with DJI Spark Reviewed for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-oppo-k11-5g-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Oppo K11 5G Devices | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-discover-your-future-with-window-11s-innovative-creations/"><u>[Updated] In 2024, Discover Your Future with Window 11'S Innovative Creations</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-discovering-new-dimensions-making-video-from-photographic-slices-with-pixiz/"><u>[Updated] In 2024, Discovering New Dimensions  Making Video From Photographic Slices with Pixiz</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-trends-and-techniques-for-skyrocketing-youtube-views-for-2024/"><u>[Updated] Trends and Techniques for Skyrocketing YouTube Views for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-new-frontiers-unpacking-windows-10-improvements/"><u>[New] 2024 Approved  New Frontiers  Unpacking Windows 10 Improvements</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-smart-shoppers-guide-to-affordable-cloud-space-for-2024/"><u>[Updated] The Smart Shopper's Guide to Affordable Cloud Space for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-stop-screen-blackouts-with-obs-game-recordings/"><u>In 2024, Stop Screen Blackouts with OBS Game Recordings</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-evolved-sony-bdp-s6700-unveiled/"><u>[New] In 2024, The Evolved Sony BDP-S6700 Unveiled</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-vlogging-basics-top-uncomplicated-projects/"><u>In 2024, Vlogging Basics  Top Uncomplicated Projects</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-from-monochrome-to-multicolor-learning-about-the-art-of-green-screens/"><u>[Updated] 2024 Approved  From Monochrome to Multicolor  Learning About the Art of Green Screens</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-seeking-access-to-all-mutually-shared-media-in-chats/"><u>[Updated] Seeking Access to All Mutually-Shared Media in Chats</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-unlocking-the-art-of-flawless-instantaneous-iphone-podcast-downloads/"><u>[New] In 2024, Unlocking the Art of Flawless, Instantaneous iPhone Podcast Downloads</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-tips-and-tricks-for-apple-id-locked-issue-on-apple-iphone-15-by-drfone-ios/"><u>In 2024, Tips and Tricks for Apple ID Locked Issue On Apple iPhone 15</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-cutting-edge-techniques-for-social-dominance/"><u>[Updated] In 2024, Cutting-Edge Techniques for Social Dominance</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/reviving-rarities-your-guide-to-scanning-and-storing-age-old-photos/"><u>Reviving Rarities  Your Guide to Scanning and Storing Age-Old Photos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-illustrator-wizards-guide-to-3d-text/"><u>[Updated] The Illustrator Wizard's Guide to 3D Text</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-monetization-changes-500-subscribers-now-eligible/"><u>2024 Approved  YouTube Monetization Changes  500 Subscribers Now Eligible</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-ultimate-camera-review-can-gopros-hero-beat-sonys-dslr-action-for-2024/"><u>[New] Ultimate Camera Review  Can GoPro's Hero Beat Sony's DSLR Action for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-13-best-ways-to-make-money-on-reddit-no-experience-needed-for-2024/"><u>[Updated] 13 Best Ways to Make Money on Reddit - No Experience Needed for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-ultimate-free-stopwatches-without-a-price-tag-for-2024/"><u>[Updated] Ultimate Free Stopwatches Without a Price Tag for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-analyzing-investment-for-video-promotion/"><u>[New] 2024 Approved  Analyzing Investment for Video Promotion</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-upgrading-zoom-video-fidelity-a-comprehensive-guide/"><u>[New] In 2024, Upgrading Zoom Video Fidelity  A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-embark-on-a-wanderlust-adventure-becoming-a-professional-travel-vlogger-for-2024/"><u>[Updated] Embark on a Wanderlust Adventure  Becoming A Professional Travel Vlogger for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-transformative-tips-to-take-your-lunapic-skills-up-for-2024/"><u>[New] Transformative Tips to Take Your LunaPic Skills Up for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-generate-funny-image-for-giphy/"><u>[New] In 2024, Generate Funny Image for Giphy</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-building-captivating-online-media-summaries/"><u>[New] Building Captivating Online Media Summaries</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-examining-the-limitations-of-immersive-tech/"><u>[Updated] In 2024, Examining the Limitations of Immersive Tech</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-quintessential-5-filters-for-depth-video/"><u>[Updated] 2024 Approved  Quintessential 5 Filters for Depth Video</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-track-wolfs-mournful-lamentation-sound/"><u>New In 2024, Track Wolfs Mournful Lamentation Sound</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-expert-picks-for-superior-steadicams-in-aerial-cinema/"><u>[New] Expert Picks for Superior Steadicams in Aerial Cinema</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-transforming-raw-footage-expert-pc-editing-tips-for-youtube-creators/"><u>[New] Transforming Raw Footage  Expert PC Editing Tips for YouTube Creators</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-instant-srt-to-txt-efficient-conversion-methods-revealed/"><u>[New] In 2024, Instant SRT to TXT  Efficient Conversion Methods Revealed</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-tecno-pop-8-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Tecno Pop 8 to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-exploring-the-capabilities-of-adobe-audition-for-professional-audio-editing-for-2024/"><u>New Exploring the Capabilities of Adobe Audition for Professional Audio Editing for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-beyond-the-boundaries-limitations-in-vr/"><u>[Updated] In 2024, Beyond the Boundaries  Limitations in VR</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-unleash-your-creativity-top-10-free-mp4-video-editors/"><u>Updated In 2024, Unleash Your Creativity Top 10 Free MP4 Video Editors</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-excellence-in-dialogue-maker-land/"><u>[New] Excellence in Dialogue Maker Land</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/asy-efficient-and-essential-top-23-tools-to-downgrade-youtube-audios/"><u>[New] Easy, Efficient, and Essential  Top 23 Tools to Downgrade YouTube Audios</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/2024-approved-cutting-the-waves-a-review-of-best-free-and-paid-linux-audio-editors/"><u>2024 Approved Cutting the Waves A Review of Best Free & Paid Linux Audio Editors</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-5-key-strategies-to-correct-iphone-hdri-premiere-pro-edition/"><u>[Updated] 5 Key Strategies to Correct iPhone HDRI  Premiere Pro Edition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/premium-free-template-pack-top-titles-for-ae-dreamers/"><u>Premium FREE Template Pack  Top Titles for AE Dreamers</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-vertical-video-editing-in-the-cloud-best-web-based-options/"><u>Updated Vertical Video Editing in the Cloud Best Web-Based Options</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-audiences-favorites-top-10-mobility-friendly-players-for-2024/"><u>[Updated] Audience's Favorites  Top 10 Mobility-Friendly Players for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-halovision-highlights-critique/"><u>[Updated] 2024 Approved  HaloVision Highlights Critique</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unmasking-the-secrets-of-samsungs-image-manipulation-tech-for-2024/"><u>[New] Unmasking the Secrets of Samsung's Image Manipulation Tech for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-make-every-frame-count-a-list-of-the-hottest-50-video-reducing-apps-for-your-phone-for-2024/"><u>[New] Make Every Frame Count  A List of the Hottest 50 Video-Reducing Apps for Your Phone for 2024</u></a></li>
+</ul></div>

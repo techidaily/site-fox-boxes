@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] AE Text Styles  The Ultimate Selection\""
-date: 2024-06-17T13:36:46.087Z
-updated: 2024-06-18T13:36:46.087Z
+date: 2024-07-13T19:58:06.289Z
+updated: 2024-07-14T19:58:06.289Z
 tags: 
   - screen-recording
   - ai video
@@ -68,8 +68,14 @@ If the regular stroke feature is not enough, you have tapered stroke preset that
 
 This is a simple but highly effective text preset that gets the serious attention of the viewers. When you apply the effect, the text turns white to red with fade in effect and viewers are most likely to read the displayed text. There is no keyframe but you change the color as well as the fade-in time.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![stranger things text preset](https://images.wondershare.com/filmora/article-images/2022/09/stranger-things-text-preset.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 6\. Text Styles Preset
 
 You get 16 amazing text styles that you can use on your texts and titles to make them look different and refreshing. Thereafter, you can apply any animation you want to amplify the visual appeal. Starting from fiery and neon styles to different variations of 3D effects, these presets bring the fun and the color elements to your text.
@@ -94,6 +100,9 @@ If you want to keep the text animations simple but you want it to be different t
 
 ![universial text aniamtion preset](https://images.wondershare.com/filmora/article-images/2022/09/universial-text-aniamtion-preset.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 10\. Text Animation Lower Third
 
 Lower thirds are an essential part of the modern videos where you are introducing concepts and giving out information. Starting from title introductions to displaying headlines and quotes, you will get the perfect text presents in this dynamic pack to satisfy your requirements perfectly. You can customize several parameters to get the text effects as per your video project.
@@ -120,9 +129,9 @@ Step3Click on the text layer to expand it and you will see different parameters 
 
 It is a fact that many find After Effects difficult to get used to as the user interface is not that friendly. If you are looking for the best alternative to After Effects, we recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). The user interface is super intuitive and anyone without prior experience can create text effects for any video instantly. There are different categories of text effects and animations available to satisfy the requirements of video creators. Here are the steps to add After Effects and Premiere Pro text presets using Filmora.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 Step1Install Wondershare Filmora and launch the application. Click on New Project option and drop your video clip for the background inside Project Media folder.
 
@@ -144,9 +153,9 @@ Step4Double-click on the text layer and edit the text. Place the text layer on t
 
 If you decide to use Adobe After Effects to add text effects to your video, we have listed the best text presets you should have in your possession. We have also stated how to add text effects to video in After Effects. We recommend Wondershare Filmora as the best video editor to add different types of text effects and animations to your video.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 * [Part 3\. Alternative Way to Create Text Effects for Video](#part3)
 
@@ -158,6 +167,9 @@ There are unlimited text presets available on After Effects and for a beginner, 
 
 The glitch text effects are extremely common in today's videos as they instantly draw the attention of the viewers and offer a retro feel. In this text presents, you get 30 different glitch text effect animations that you can use for titles as well as in-body texts. You get to choose from 32 glitch maps for creative and refreshing text effects for your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![glitch text effects preset](https://images.wondershare.com/filmora/article-images/2022/09/glitch-text-effects-preset.jpg)
 
 ### 2\. Motion Type Text Animation Preset
@@ -234,9 +246,9 @@ Step3Click on the text layer to expand it and you will see different parameters 
 
 It is a fact that many find After Effects difficult to get used to as the user interface is not that friendly. If you are looking for the best alternative to After Effects, we recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). The user interface is super intuitive and anyone without prior experience can create text effects for any video instantly. There are different categories of text effects and animations available to satisfy the requirements of video creators. Here are the steps to add After Effects and Premiere Pro text presets using Filmora.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 Step1Install Wondershare Filmora and launch the application. Click on New Project option and drop your video clip for the background inside Project Media folder.
 
@@ -258,9 +270,9 @@ Step4Double-click on the text layer and edit the text. Place the text layer on t
 
 If you decide to use Adobe After Effects to add text effects to your video, we have listed the best text presets you should have in your possession. We have also stated how to add text effects to video in After Effects. We recommend Wondershare Filmora as the best video editor to add different types of text effects and animations to your video.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -285,3 +297,51 @@ If you decide to use Adobe After Effects to add text effects to your video, we h
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-harness-the-power-of-animoji-on-your-iphone-x/"><u>2024 Approved  Harness the Power of Animoji on Your iPhone X</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-instagrams-role-in-distributing-your-podcast-episodes/"><u>2024 Approved  Instagram's Role in Distributing Your Podcast Episodes</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-zen-of-broadcasting-perfecting-zooms-techniques-for-youtube/"><u>[Updated] The Zen of Broadcasting  Perfecting Zoom's Techniques for YouTube</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-prosperity-startups-the-13-least-experience-demanding-reddit-techniques/"><u>2024 Approved  Prosperity Startups  The 13 Least Experience-Demanding Reddit Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-elite-unmanned-aerial-vehicles-up-for-grabs/"><u>2024 Approved  Elite Unmanned Aerial Vehicles Up for Grabs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-efficient-srt-to-sub-conversion-strategies/"><u>2024 Approved  Efficient SRT to SUB Conversion Strategies</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-kinemaster-edition-creating-polished-transitions-in-filmmaking/"><u>2024 Approved  Kinemaster Edition  Creating Polished Transitions in Filmmaking</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-essential-skills-for-assembling-tiktoks/"><u>[New] Essential Skills for Assembling TikToks</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/free-titles-for-final-cut-pro-for-2024/"><u>Free Titles For Final Cut Pro for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/2024-approved-incorporating-audio-into-new-and-enhanced-mkv-files/"><u>2024 Approved Incorporating Audio Into New and Enhanced MKV Files</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-ios-tips-transforming-images-from-jpgpng-to-pdf-format/"><u>2024 Approved  IOS Tips  Transforming Images From JPG/PNG to PDF Format</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-pioneering-6-networks-supporting-business-development-for-2024/"><u>[Updated] Pioneering 6 Networks Supporting Business Development for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/2024-approved-maximizing-quality-and-efficiency-with-compressor-in-final-cut-pro-x/"><u>2024 Approved Maximizing Quality and Efficiency with Compressor in Final Cut Pro X</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-detailed-guide-to-enhancing-your-digital-art-with-picsart/"><u>2024 Approved  Detailed Guide to Enhancing Your Digital Art with PicsArt</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-top-3-budget-friendly-methods-to-transcribe-sound-into-words-detailed-processes-2023/"><u>Updated 2024 Approved Top 3 Budget-Friendly Methods to Transcribe Sound Into Words Detailed Processes - 2023</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-set-the-atmosphere-musical-statuses/"><u>In 2024, Set the Atmosphere  Musical Statuses</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-lullabies-of-relaxation-prime-asmr-talents/"><u>2024 Approved  Lullabies of Relaxation  Prime ASMR Talents</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-exploring-the-core-of-m1-apples-innovation/"><u>2024 Approved  Exploring the Core of M1  Apple's Innovation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-inspire-business-identity-utilize-free-logo-templates-and-modify-endlessly/"><u>2024 Approved  Inspire Business Identity  Utilize Free Logo Templates & Modify Endlessly</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-maximizing-video-quality-in-zoom-conferences/"><u>2024 Approved  Maximizing Video Quality in Zoom Conferences</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-macs-choice-of-capture-an-in-depth-look-at-premium-software/"><u>[Updated] In 2024, Mac's Choice of Capture  An In-Depth Look at Premium Software</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-xiaomi-redmi-note-12-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-dji-drone-prospectus-phantom-3-edition/"><u>2024 Approved  DJI Drone Prospectus  Phantom 3 Edition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-explore-the-leading-microphones-in-podcasting/"><u>2024 Approved  Explore the Leading Microphones in Podcasting</u></a></li>
+<li><a href="https://extra-information.techidaily.com/speedy-sound-apps-phones-best-friends/"><u>Speedy Sound Apps  Phones' Best Friends</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Motorola Razr 40? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-decoding-apples-leap-comparing-m1-pro-and-m1-max-capabilities/"><u>[New] 2024 Approved  Decoding Apple's Leap  Comparing M1 Pro & M1 Max Capabilities</u></a></li>
+<li><a href="https://techidaily.com/different-methods-for-resetting-oppo-find-n3-flip-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Oppo Find N3 Flip Phones with Screen Locked and Not | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-elite-5-background-swap-apps-compatible-with-iphones-x-7-8/"><u>2024 Approved  Elite 5 Background Swap Apps Compatible with iPhones (X, 7, 8)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-capturing-magic-in-motion-a-guide-to-hero5-timelapses/"><u>2024 Approved  Capturing Magic in Motion  A Guide to Hero5 Timelapses</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-high-octane-recordings-top-7-camcorder-picks/"><u>2024 Approved  High-Octane Recordings  Top 7 Camcorder Picks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-incorporating-seconds-and-minutes-on-youtube-clips/"><u>2024 Approved  Incorporating Seconds and Minutes on YouTube Clips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-boost-channels-to-partner-status-in-under-90-days-start-now/"><u>In 2024, Boost Channels to Partner Status in Under 90 Days, Start Now!</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-high-performance-in-fb-video-streaming/"><u>2024 Approved  High Performance in FB Video Streaming</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-camera-confusion-no-video-display-issue/"><u>2024 Approved  Camera Confusion  No Video Display Issue</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-detailed-guide-to-mastering-recordings-with-audacity/"><u>2024 Approved  Detailed Guide to Mastering Recordings with Audacity</u></a></li>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-honor-magic-5-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Honor Magic 5 Lite? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/boost-engagement-with-top-tips-for-captivating-unboxing-videos-for-2024/"><u>Boost Engagement with Top Tips for Captivating Unboxing Videos for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-streamlined-steps-to-share-videos-on-twitter-and-tumblr/"><u>In 2024, Streamlined Steps to Share Videos on Twitter & Tumblr</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-mastering-srt-a-thorough-exploration-of-its-essence/"><u>2024 Approved  Mastering SRT  A Thorough Exploration of Its Essence</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-cutting-edge-subtitling-solutions-the-ultimate-top-10-list-online/"><u>2024 Approved  Cutting-Edge Subtitling Solutions  The Ultimate Top 10 List (Online)</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-document-the-drive-on-your-galaxy-screen/"><u>2024 Approved  Document the Drive on Your Galaxy Screen</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-ace-the-art-of-youtube-reactions-3-innovative-approaches-unveiled/"><u>2024 Approved  Ace the Art of YouTube Reactions - 3 Innovative Approaches Unveiled</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-mastering-choice-optimal-free-srt-translation-services/"><u>2024 Approved  Mastering Choice  Optimal Free SRT Translation Services</u></a></li>
+</ul></div>

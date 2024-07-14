@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Secret WhatsApp Techniques for Maximum Impact\""
-date: 2024-06-17T13:52:44.191Z
-updated: 2024-06-18T13:52:44.191Z
+date: 2024-07-13T20:15:25.621Z
+updated: 2024-07-14T20:15:25.621Z
 tags: 
   - screen-recording
   - ai video
@@ -40,12 +40,18 @@ You can do a lot of things with your WhatsApp fonts, appearance, and texts that 
 
 Yes, you can bold your text. Just add a star (\*) symbol before and after your text. Don’t use space between the \* and the letter.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Whatsapp Text Tricks Bold](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-bold.jpg)
 
 #### 2.Italic
 
 Just like the bold, you can also italicize your fonts by simply inserting Underscore Symbol (\_text\_) at the starting and end of your sentence.
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Whatsapp Text Tricks Italic](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-italic.jpg)
 
 #### 3.Strikethrough
@@ -96,6 +102,9 @@ There are plenty of things you can do with one word. It can be bold, italic, mon
 
 While typing a WhatsApp message if you need to cross-check certain areas with someone else, and don’t want to copy the text or overwrite your clipboard, you can directly share the text without copy-pasting or taking screenshots. This WhatsApp Typing Trick is in the same native setting strip mentioned earlier, which you can access by tapping and holding the text section you want to share, which will open the formatting strip. Once it opens then click on the 3 dots, which will turn the strip into a panel, in the panel you will find what you are looking for. The coolest part is that you can share the text not only in WhatsApp but multiple other apps like Zoom, Skype, Email… even Bluetooth!
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Whatsapp Typing Trick](https://images.wondershare.com/filmora/article-images/whatsapp-typing-trick.png)
 
 ## What are the Hidden Features of WhatsApp?
@@ -138,6 +147,9 @@ Sometimes you just need to hush your WhatsApp for just a while. Perhaps you have
 
 Not every message thread is important, and many people have the habit of deleting messages just to feel organized. WhatsApp brings some zero-effort minimalism for you with this new feature available for Android users. Update your app and visit the contact’s page in WhatsApp and you will be able to see the “Disappearing Messages” option. If you enable this, your chats with the particular contact will be deleted automatically on their own.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Whatsapp Auto Delete Messages](https://images.wondershare.com/filmora/article-images/whatsapp-auto-delete-messages.png)
 
 #### 8.Mute Stories that You Don’t Want to See
@@ -164,7 +176,7 @@ Some of the best WhatsApp video editing tricks are coming up, wherein you can ad
 
 #### 1.Download & Edit WhatsApp Video from A Contact’s Status
 
-There are no download options for photos and videos for WhatsApp Statuses, yet you can have it on your PC, iPhone, and Android device and surprise a loved one by editing the videos they did not send you personally. To do this, you can go to File Manager >> Settings >> Turn on Show Hidden Files; after doing this go back to Internal Storage >> WhatsApp >> Media >> Statuses. Once you have the Video, you can import it to Filmora and use a gamut of video editing tools to create the magic![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+There are no download options for photos and videos for WhatsApp Statuses, yet you can have it on your PC, iPhone, and Android device and surprise a loved one by editing the videos they did not send you personally. To do this, you can go to File Manager >> Settings >> Turn on Show Hidden Files; after doing this go back to Internal Storage >> WhatsApp >> Media >> Statuses. Once you have the Video, you can import it to Filmora and use a gamut of video editing tools to create the magic ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 2.Record Video Calls from PC and Improve Its Quality
 
@@ -206,3 +218,56 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-mastering-the-art-of-fcp-freedom/"><u>In 2024, Mastering the Art of FCP Freedom</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/streamlined-success-top-10-youtube-channels-to-start-your-biz-today-for-2024/"><u>Streamlined Success  Top 10 YouTube Channels to Start Your Biz Today for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-ultimate-shutter-showdown-best-for-slow-motion-videos/"><u>2024 Approved  The Ultimate Shutter Showdown  Best for Slow Motion Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-navigating-your-way-to-the-perfect-4k-lens-purchase/"><u>[New] 2024 Approved  Navigating Your Way to the Perfect 4K Lens Purchase</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-expert-tips-download-youtube-playlists-in-minutes-for-2024/"><u>[New] Expert Tips  Download YouTube Playlists in Minutes for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-lg-bp550s-evolution-a-2023-perspective/"><u>[New] 2024 Approved  LG BP550's Evolution - A 2023 Perspective</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-uncovering-the-mysteries-of-photo-editing-in-canva/"><u>In 2024, Uncovering the Mysteries of Photo Editing in Canva</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/innovative-browsing-strategies-with-picture-in-picture-mode-for-2024/"><u>Innovative Browsing Strategies with Picture-In-Picture Mode for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-pros-guide-crafting-authentic-3d-characters-in-ps/"><u>[New] 2024 Approved  Pro's Guide  Crafting Authentic 3D Characters in PS</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-streamline-creativity-with-1-to-5-mac-editors-for-sierra-users/"><u>[New] 2024 Approved  Streamline Creativity with #1 to #5 Mac Editors for Sierra Users</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-bring-life-to-stills-motion-blur-technique/"><u>In 2024, Bring Life to Stills  Motion Blur Technique</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-expert-advice-proven-strategies-for-capturing-and-storing-sound-with-your-mac/"><u>Updated In 2024, Expert Advice Proven Strategies for Capturing and Storing Sound with Your Mac</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-innovative-methods-for-time-loop-illusions/"><u>[Updated] In 2024, Innovative Methods for Time Loop Illusions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-instagram-image-enhancement-tips/"><u>In 2024, Instagram Image Enhancement Tips</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-starting-with-av1-an-essential-overview/"><u>2024 Approved  Starting with AV1  An Essential Overview</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-unlock-your-phones-potential-with-ios-11-camera-tips-for-2024/"><u>[Updated] Unlock Your Phone's Potential with iOS 11 Camera Tips for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-skyline-spectacle-top-10-websites-for-dynamic-hdr-images/"><u>[New] 2024 Approved  Skyline Spectacle  Top 10 Websites for Dynamic HDR Images</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-full-detailed-manual-on-morphvox-voice-alteration-techniques/"><u>[New] 2024 Approved  Full-Detailed Manual on MorphVOX Voice Alteration Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-efficient-strategies-for-posting-srt-files-to-social-media/"><u>[New] Efficient Strategies for Posting SRT Files to Social Media</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-iphone-se-data-from-ios-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How to Recover iPhone SE Data From iOS iTunes? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-unveiling-premium-free-srt-translation-websites-for-business-use-for-2024/"><u>[Updated] Unveiling Premium Free SRT Translation Websites for Business Use for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-elevating-visuals-with-hyperlapse-cinematography/"><u>[New] Elevating Visuals with Hyperlapse Cinematography</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/kid-tested-wet-weather-videography-gear-for-newbies-for-2024/"><u>Kid-Tested Wet Weather Videography Gear for Newbies for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-high-staking-rituals-player-views/"><u>[Updated] 2024 Approved  HIGH-STAKING RITUALS  Player Views</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-comparing-broadcast-tools-go-with-wirecast-or-obs/"><u>[Updated] Comparing Broadcast Tools  Go With Wirecast or OBS?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-ultimate-mac-dvd-authorization-handbook/"><u>[Updated] The Ultimate Mac DVD Authorization Handbook</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-collaborative-branding-strategies-in-digital-media/"><u>In 2024, Collaborative Branding Strategies in Digital Media</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-step-by-step-for-macos-sierras-system-return-to-el-capitan/"><u>[Updated] In 2024, Step-by-Step for MacOS Sierra's System Return to El Capitan</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-create-unforgettable-videos-top-5-photo-slideshow-makers-revealed/"><u>Updated 2024 Approved Create Unforgettable Videos Top 5 Photo Slideshow Makers Revealed</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-meditative-playlist-top-10-free-tracks-for-serenity/"><u>In 2024, Meditative Playlist  Top 10 Free Tracks for Serenity</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-elite-cinematic-promo-reels/"><u>[Updated] Elite Cinematic Promo Reels</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-chromatic-coherence-helper/"><u>2024 Approved  Chromatic Coherence Helper</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-pixel-humorist-tools-kapwings-meme-mastery/"><u>In 2024, Pixel Humorist Tools  Kapwing’s Meme Mastery</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-branding-beyond-words-eye-catching-podcast-graphics/"><u>2024 Approved  Branding Beyond Words  Eye-Catching Podcast Graphics</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-spectacular-scrutiny-and-variant-solutions/"><u>[Updated] 2024 Approved  Spectacular Scrutiny & Variant Solutions</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/best-apple-iphone-14-pro-and-ipad-screen-mirroring-app-drfone-by-drfone-ios/"><u>Best Apple iPhone 14 Pro & iPad Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/constructing-unique-instagram-story-panels-for-2024/"><u>Constructing Unique Instagram Story Panels for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-3-top-notch-smartphones-excelling-at-video-capture/"><u>[New] 3 Top-Notch Smartphones Excelling at Video Capture</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/elevate-designs-essential-secrets-for-canva-mastery/"><u>Elevate Designs  Essential Secrets for Canva Mastery</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-art-of-crafting-gopro-time-lapses/"><u>2024 Approved  The Art of Crafting GoPro Time-Lapses</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-voice-to-text-review/"><u>[New] 2024 Approved  Voice to Text Review</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-unparalleled-live-tv-experience-with-local-channels/"><u>In 2024, Unparalleled Live TV Experience with Local Channels</u></a></li>
+<li><a href="https://extra-information.techidaily.com/crafting-the-spoken-word-writing-compelling-narratives-for-2024/"><u>Crafting the Spoken Word  Writing Compelling Narratives for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-from-concept-to-completion-review-of-magix-vpx-for-2024/"><u>[Updated] From Concept to Completion  Review of Magix VPX for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-in-2024-how-does-sonys-sandq-feature-help-recording-slow-motion-video/"><u>New In 2024, How Does Sonys S&Q Feature Help Recording Slow-Motion Video</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-a-deep-dive-into-professional-3d-lut-creation/"><u>[Updated] In 2024, A Deep Dive Into Professional 3D LUT Creation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-embrace-audio-freedom-the-revolutionary-pazera-extractor-guide/"><u>2024 Approved  Embrace Audio Freedom  The Revolutionary Pazera Extractor Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-infuse-projects-with-sounds-in-adobe-premiere-pro/"><u>[New] 2024 Approved  Infuse Projects with Sounds in Adobe Premiere Pro</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-cut-the-confusion-learn-quickly-how-to-add-timestamps-in-videos/"><u>[New] Cut the Confusion  Learn Quickly How to Add Timestamps in Videos</u></a></li>
+</ul></div>

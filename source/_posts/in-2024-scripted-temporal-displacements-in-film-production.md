@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Scripted Temporal Displacements in Film Production"
-date: 2024-06-17T13:52:51.127Z
-updated: 2024-06-18T13:52:51.127Z
+date: 2024-07-13T20:15:33.595Z
+updated: 2024-07-14T20:15:33.595Z
 tags: 
   - screen-recording
   - ai video
@@ -80,6 +80,9 @@ In the second round, you have to create a nighttime action indicating that you n
 
 To film a night mode, you need a warmer light, which is used to make shots for the second round. You can also use a light that is under 2700-3000 kelvins because it indicates warm light.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![night time warmer light](https://images.wondershare.com/filmora/article-images/2023/04/night-time-warmer-light.jpg)
 
 You don't need to worry if you don't have enough budget to get this setup. Because plastic binders will make your way easy, and you can create your own at home, as told earlier.
@@ -158,6 +161,9 @@ After marking the daytime clip, drag and drop the clip of the second round (i.e.
 
 Find the spot where the subject steps over in the nighttime clip, and select the clip. Then mark it as marker three. This marker is shown when the character changes the transition.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![marker 3 on the nighttime clip](https://images.wondershare.com/filmora/article-images/2023/04/marker-3-on-the-nighttime-clip.jpg)
 
 After marking the points on the clips, then you have to align and adjust the clips!
@@ -192,6 +198,9 @@ Next, you have to apply the **"Shape Mask"** for smooth movements of the charact
 * Go to the Video Effects section and change the shape mask settings.
 * Tweak the mask settings until the nighttime clip appears on the left and the daytime clip with the character on the right.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![change the shape mask settings](https://images.wondershare.com/filmora/article-images/2023/04/change-the-shape-mask-settings.jpg)
 
 Play the video again and check out the smoothness of the actions. As we have already marked the points, that's why the actions match with each other and give an equivalent look!
@@ -482,6 +491,9 @@ To get the thrilling look, you have to apply the laser effect between the two cl
 * Reposition and adjust it according to the requirements if needed.
 * Extend the laser effect to the end of the scene.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Final Results
 
 Congratulations! You have all done with the time travel teleportation effects and get a bombing video. Check out the results below!
@@ -523,3 +535,49 @@ Create for you and add different effects and experiment with new features. You w
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/how-to-create-a-memorable-podcast-name-from-brainstorming-to-execution-for-2024/"><u>How To Create a Memorable Podcast Name  From Brainstorming to Execution for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-investment-worthy-asmr-sound-for-every-fan/"><u>In 2024, Investment-Worthy ASMR Sound for Every Fan</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-exploring-video-playback-vlc-vs-mx-for-2024/"><u>[Updated] Exploring Video Playback  VLC Vs. MX for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-best-practices-for-secondary-footage-selection-and-use/"><u>[Updated] In 2024, Best Practices for Secondary Footage Selection and Use</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/essential-anime-openers-revisited/"><u>Essential Anime Openers Revisited</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/explore-the-possibilities-with-dual-screen-watching-on-netflix/"><u>Explore the Possibilities with Dual-Screen Watching on Netflix</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-gopro-karma-drone-review/"><u>[Updated] GoPro Karma Drone Review</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-virtual-horizons-the-future-of-filmmaking/"><u>2024 Approved  Virtual Horizons  The Future of Filmmaking</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-gamers-guide-to-elite-streaming-platforms-for-2024/"><u>[Updated] Gamers' Guide to Elite Streaming Platforms for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-core-elements-of-virtual-tale-transmission-for-2024/"><u>[New] Core Elements of Virtual Tale Transmission for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-visualize-humor-use-kapwing-for-making-memes-for-2024/"><u>[Updated] Visualize Humor - Use Kapwing for Making Memes for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-ultimate-tips-adobe-presenter-video-recording/"><u>[Updated] 2024 Approved  Ultimate Tips  Adobe Presenter Video Recording</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-quipquill-memes-and-more-at-your-fingertips/"><u>[New] 2024 Approved  QuipQuill  Memes & More at Your Fingertips</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/androids-leading-image-editing-does-pickup-reign-supreme-in-2024/"><u>Android's Leading Image Editing  Does PickUp Reign Supreme, In 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Infinix Zero 30 5G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Vivo S18 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-smooth-transition-from-skype-to-zoom-for-better-collaboration/"><u>In 2024, Smooth Transition From Skype to Zoom for Better Collaboration</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Intercept Text Messages on Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/essential-tips-for-converting-videos-to-mac-discs-for-2024/"><u>Essential Tips for Converting Videos to Mac Discs for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-dissecting-metaverse-and-omniverse-dynamics-for-2024/"><u>[New] Dissecting Metaverse & Omniverse Dynamics for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-premium-photographic-holding-websites/"><u>[New] 2024 Approved  Premium Photographic Holding Websites</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/ditch-costs-enjoy-free-video-playback-on-pcmac/"><u>Ditch Costs, Enjoy FREE Video Playback on PC/Mac</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-leveraging-zoom-for-high-quality-facebook-live-streams/"><u>In 2024, Leveraging Zoom for High-Quality Facebook LIVE Streams</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-premium-pfr-rate-for-easy-going-footage/"><u>[Updated] Premium PFR Rate for Easy-Going Footage</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-glitch-video-editing-made-easy-best-desktop-and-online-tools-for-windows-and-mac/"><u>New 2024 Approved Glitch Video Editing Made Easy Best Desktop and Online Tools for Windows and Mac</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-30-innovative-ideas-to-supercharge-your-fb-promotions/"><u>[Updated] 30 Innovative Ideas to Supercharge Your FB Promotions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-embracing-the-night-sky-with-iphone-lengthy-exposures/"><u>[Updated] In 2024, Embracing the Night Sky with iPhone Lengthy Exposures</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-5-traps-for-newbies-in-online-advertising-how-to-evade-them/"><u>In 2024, 5 Traps for Newbies in Online Advertising – How to Evade Them</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-pioneering-tech-in-adventure-camera-gear/"><u>[Updated] Pioneering Tech in Adventure Camera Gear</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-master-the-art-of-photo-purity-with-picart/"><u>2024 Approved  Master the Art of Photo Purity with PicArt</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-elevate-your-channel-hit-the-10000-view-mark-fast-for-2024/"><u>[Updated] Elevate Your Channel  Hit the 10,000 View Mark Fast for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-exclusive-video-player-for-high-quality-avi-on-devices/"><u>[Updated] Exclusive Video Player for High-Quality AVI on Devices</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-top-tier-seo-strategies-to-elevate-your-podcast-rankings/"><u>[Updated] Top-Tier SEO Strategies to Elevate Your Podcast Rankings</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-a-curated-collection-of-15-dynamic-news-music-pieces-for-2024/"><u>New A Curated Collection of 15 Dynamic News Music Pieces for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-you-play-mp4-files-on-defy-2-by-aiseesoft-video-converter-play-mp4-on-android/"><u>How do you play MP4 files on Defy 2?</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-top-10-video-editing-software-options-beyond-final-cut-pro-x-for-2024/"><u>Updated Top 10 Video Editing Software Options Beyond Final Cut Pro X for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/drone-applications-in-the-now-and-in-the-near-future/"><u>Drone Applications in the Now & In the Near Future</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-secret-ingredient-to-success-15-activities-that-enhance-learning-while-listening-to-talk-shows/"><u>[Updated] In 2024, The Secret Ingredient to Success  15 Activities that Enhance Learning While Listening to Talk Shows</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-polar-performances-ultimate-beijing-olympics-scoop/"><u>[Updated] Polar Performances  Ultimate Beijing Olympics Scoop</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-master-the-craft-powerdirector-2024-complete-guide-and-reviews/"><u>[Updated] Master the Craft  PowerDirector 2024 Complete Guide & Reviews</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-effortless-editing-the-best-vfx-websites-for-now/"><u>[Updated] In 2024, Effortless Editing  The Best VFX Websites for Now</u></a></li>
+<li><a href="https://change-location.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Vivo Y78t | Dr.fone</u></a></li>
+</ul></div>

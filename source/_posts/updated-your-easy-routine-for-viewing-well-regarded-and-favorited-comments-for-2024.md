@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Your Easy Routine for Viewing Well-Regarded and Favorited Comments for 2024\""
-date: 2024-06-17T13:43:24.695Z
-updated: 2024-06-18T13:43:24.695Z
+date: 2024-07-13T20:05:23.274Z
+updated: 2024-07-14T20:05:23.274Z
 tags: 
   - screen-recording
   - ai video
@@ -93,6 +93,9 @@ Step3 Click the **Comments** section.
 
 Now you will see your comment history, including the date when you commented on a certain video and also the exact comment you posted.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![your youtube comments date](https://images.wondershare.com/filmora/article-images/2022/11/your-youtube-comments-date.jpg)
 
 To see videos/comments you liked or disliked, please follow these steps as continuation:
@@ -111,10 +114,16 @@ Now you will see the videos you liked or disliked and also the comments you like
 
 This article tells you that you can't see who liked or disliked a comment, but you can see how many likes or dislikes a comment got. Then go to any video you want, scroll down to the comment section, and see how many likes or dislikes a comment received.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![likes comment received](https://images.wondershare.com/filmora/article-images/2022/11/likes-comment-received.jpg)
 
 In this image, the following comments only got likes and no dislikes. That is why there are just written numbers on the like button and on the dislike button there are none.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Respond to Comments
 
 Don't ignore someone who has questioned you or written you a heartfelt note. Keep the conversation (and engagement) going by responding to comments.
@@ -155,7 +164,7 @@ When you click over to the comments area after receiving a notification about a 
 
 To put it another way, YouTube flags notable comments for you to ensure that new messages or significant replies aren't lost in the noise. Once you have read or replied to the comment, the highlight will go.
 
-Additionally, video creators can manually highlight commenters to mark them for later responses. To do this, click on the comment's timestamp (found next to the commenter's username). Ta-da![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+Additionally, video creators can manually highlight commenters to mark them for later responses. To do this, click on the comment's timestamp (found next to the commenter's username). Ta-da ![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
@@ -183,6 +192,9 @@ Step1 Click on your Google Account icon and find **Your data in YouTube**.
 
 Step2 Scroll down a little bit and click the **More** button.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![your youtube dashboard more](https://images.wondershare.com/filmora/article-images/2022/11/your-youtube-dashboard-more.jpg)
 
 Step3 Click the **Comments** section.
@@ -253,7 +265,7 @@ When you click over to the comments area after receiving a notification about a 
 
 To put it another way, YouTube flags notable comments for you to ensure that new messages or significant replies aren't lost in the noise. Once you have read or replied to the comment, the highlight will go.
 
-Additionally, video creators can manually highlight commenters to mark them for later responses. To do this, click on the comment's timestamp (found next to the commenter's username). Ta-da![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+Additionally, video creators can manually highlight commenters to mark them for later responses. To do this, click on the comment's timestamp (found next to the commenter's username). Ta-da ![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
@@ -280,3 +292,55 @@ Additionally, video creators can manually highlight commenters to mark them for 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-beyond-zoom-the-intricacies-of-iphone-xs-lens-tech/"><u>2024 Approved  Beyond Zoom  The Intricacies of iPhone X's Lens Tech</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-speed-up-your-social-art-collage-creation-on-the-fly/"><u>[New] Speed-Up Your Social Art  Collage Creation on the Fly</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-innovative-approaches-to-modify-user-numbers-in-tiktok/"><u>2024 Approved  Innovative Approaches to Modify User Numbers in TikTok</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-capture-edit-and-enhance-a-novices-journey-with-lunapic/"><u>2024 Approved  Capture, Edit & Enhance  A Novice's Journey with LunaPic</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-clear-up-creations-leading-emblem-eraser-tools-for-2024/"><u>[New] Clear Up Creations  Leading Emblem Eraser Tools for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-leading-5-display-choices-for-ps5-gamers/"><u>2024 Approved  Leading 5 Display Choices for PS5 Gamers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-cutting-edge-camera-list-best-videography-devices-of-the-year/"><u>2024 Approved  Cutting-Edge Camera List  Best Videography Devices of the Year</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-how-to-make-reels-on-instagram/"><u>2024 Approved  How to Make Reels on Instagram</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-first-rate-6-software-for-visual-text-conversion/"><u>2024 Approved  First-Rate 6 Software for Visual Text Conversion</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-giggle-grid-curated-list-of-uproarious-ringtone-sites/"><u>2024 Approved  Giggle Grid  Curated List of Uproarious Ringtone Sites</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-top-rated-pop-backdrop-tunes-compilation-for-2024/"><u>Updated Top-Rated Pop Backdrop Tunes Compilation for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-capturing-stories-the-best-cinematographic-techniques/"><u>2024 Approved  Capturing Stories  The Best Cinematographic Techniques</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-perfect-shots-a-guide-to-capturing-engaging-youtube-content/"><u>[New] Perfect Shots  A Guide to Capturing Engaging YouTube Content</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-creative-product-launches/"><u>2024 Approved  Creative Product Launches</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/extract-facebook-videos-for-mobile-and-desktop-easy/"><u>Extract Facebook Videos for Mobile & Desktop Easy</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-from-laggard-to-lightning-pick-8-apps-now/"><u>2024 Approved  From Laggard to Lightning  Pick 8 Apps Now</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-decoding-script-annotations-slug-lines-explained/"><u>2024 Approved  Decoding Script Annotations  Slug Lines Explained</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-leading-voice-to-text-programs/"><u>2024 Approved  Leading Voice to Text Programs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-key-platforms-ranking-the-best-6-sites-for-business-interaction/"><u>2024 Approved  Key Platforms  Ranking the Best 6 Sites for Business Interaction</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-pcmac-screencasting-leaders-our-choice-roundup/"><u>2024 Approved  PC/Mac Screencasting Leaders – Our Choice Roundup</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-elevating-titles-in-after-effects-best-practices/"><u>2024 Approved  Elevating Titles in After Effects  Best Practices</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-crafting-quieter-sounds-a-garageband-expertise/"><u>2024 Approved  Crafting Quieter Sounds  A Garageband Expertise</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-free-logo-blueprints-to-refine-and-personalize-your-symbol/"><u>2024 Approved  Free Logo Blueprints to Refine and Personalize Your Symbol</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-elevate-presentations-10-must-have-slide-show-designs-at-no-cost/"><u>2024 Approved  Elevate Presentations  10 Must-Have Slide Show Designs at No Cost</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-the-ultimate-tutorial-sharing-screens-in-discord/"><u>[Updated] The Ultimate Tutorial  Sharing Screens in Discord</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-mastering-the-use-of-m1-max-clip/"><u>2024 Approved  Mastering the Use of M1 Max Clip</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-harnessing-the-power-of-gratuitous-text-animations/"><u>2024 Approved  Harnessing the Power of Gratuitous Text Animations</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-innovative-approach-to-hdr-portraiture-excellence/"><u>2024 Approved  Innovative Approach to HDR Portraiture Excellence</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-create-viral-memes-with-these-10-amazing-apps/"><u>Updated 2024 Approved Create Viral Memes with These 10 Amazing Apps</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Honor V Purse? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-elevating-your-text-with-advanced-3d-effects/"><u>2024 Approved  Elevating Your Text with Advanced 3D Effects</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-free-windows-programs-expertly-record-live-shows/"><u>2024 Approved  Free Windows Programs  Expertly Record Live Shows</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-inside-out-the-100-complete-theta-s-study/"><u>2024 Approved  Inside Out  The 100%% Complete Theta S Study</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/expand-reach-via-dual-platform-streaming-youtube-and-twitch-for-2024/"><u>Expand Reach via Dual-Platform Streaming  YouTube & Twitch for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-monitor-selection-mastery-ultrawide-versus-uhd-4k/"><u>2024 Approved  Monitor Selection Mastery  UltraWide Versus UHD 4K</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-dreamy-dialogues-in-dusk-examining-childrens-video-stories/"><u>2024 Approved  Dreamy Dialogues in Dusk  Examining Children's Video Stories</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-co-marketing-mastery-on-youtube-for-brand-growth/"><u>2024 Approved  Co-Marketing Mastery on YouTube for Brand Growth</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-breaking-down-virtual-reality-jargon/"><u>2024 Approved  Breaking Down Virtual Reality Jargon</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-captivating-books-in-video-form/"><u>2024 Approved  Captivating Books in Video Form</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-consumers-speak-the-vllo-narrative/"><u>2024 Approved  Consumers Speak  The VLLO Narrative</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-how-to-take-long-exposure-shots-with-iphone-in-ios-11-or-previous/"><u>2024 Approved  How to Take Long Exposure Shots with iPhone in iOS 11 or Previous</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-duel-of-the-titans-gopro-hero-5-vs-nikon-km-170/"><u>2024 Approved  Duel of the Titans  GoPro Hero 5 VS Nikon KM-170</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-how-to-record-video-calls-on-facebook-4-methods/"><u>2024 Approved  How to Record Video Calls on Facebook [4 Methods]</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-edgy-escapes-tips-on-avoiding-edgenuity-videos-quickly/"><u>2024 Approved  Edgy Escapes  Tips on Avoiding Edgenuity Videos Quickly</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-top-10-free-youtube-subtitle-extractors-and-downloaders/"><u>[New] Top 10 Free YouTube Subtitle Extractors & Downloaders</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-creating-soft-music-endings-in-adobe-premiere-video-editing/"><u>2024 Approved  Creating Soft Music Endings in Adobe Premiere Video Editing</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-comprehensible-guide-for-novices-crafting-professional-tiktok-edits/"><u>2024 Approved  Comprehensible Guide for Novices  Crafting Professional TikTok Edits</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-extended-review-easy-dynamic-range-explained/"><u>2024 Approved  Extended Review  Easy Dynamic Range Explained</u></a></li>
+</ul></div>

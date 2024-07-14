@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Skyward Gazing  Inside the World of X4 FPV Quads\""
-date: 2024-07-09T22:57:11.444Z
-updated: 2024-07-10T22:57:11.444Z
+date: 2024-07-13T21:23:33.812Z
+updated: 2024-07-14T21:23:33.812Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,9 @@ thumbnail: https://thmb.techidaily.com/74b19b5ea815c7a95f7dc9b836800198030132a31
 [Check at Amazon](https://www.amazon.com/gp/product/B019FHMZD8/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B019FHMZD8&linkId=9d34fd5276ff2e7909e54006b25f45fa
 )
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Pros and Cons
 
  **Pros:**
@@ -112,12 +115,18 @@ thumbnail: https://thmb.techidaily.com/74b19b5ea815c7a95f7dc9b836800198030132a31
 
 #### 6. Brushless Motors
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![hubsan h501s x4 brushless motor](https://images.wondershare.com/filmora/article-images/hubsan-h501s-x4-brushless-motor.jpg)
 
  Here is one interesting thing to know about Hubsan H501S, that is its brushless motor design. This motor is powerful enough with durable design so that users can enjoy uninterrupted flights for longer run.
 
 #### 7. Camera
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ![hubsan h501s x4 brushless camera](https://images.wondershare.com/filmora/article-images/hubsan-h501s-x4-brushless-camera.jpg)
 
  If you are in search of a drone with great camera setup then you will be impressed with Hubsan X4 results. It captures stills with 1080p resolution and live videos need 5.8 GHz frequency from controller and you can view them directly on 4.3” built in screen of controller unit. All photos and videos are directly saved into MicroSD card.
@@ -126,6 +135,9 @@ thumbnail: https://thmb.techidaily.com/74b19b5ea815c7a95f7dc9b836800198030132a31
 
  Wide range of impressive features have been covered in Hubsan H501S X4 review above so that buyers can make best decision about whether it fits their needs or not. Are you a beginner in the drone world? Then you may need to learn few tactics before arranging your first flight. This specially designed drone unit can also be a good choice for gift to someone you really love. Update your opinion so that we can have discussions about what drones are suitable for your general needs. Also, prefer to bookmark our page so that you can easily go through regular updates about drones and their flying tips. Have a great time with your new drone.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -152,3 +164,54 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-a-comprehensive-guide-to-using-chrome-pip-across-devices-for-2024/"><u>[New] A Comprehensive Guide to Using Chrome PIP Across Devices for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-reclaiming-brightness-in-youtube-videos/"><u>[Updated] Reclaiming Brightness in YouTube Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-exploring-uavs-operation-a-guide-to-aerial-robotics/"><u>[Updated] Exploring UAVs' Operation  A Guide to Aerial Robotics</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-compreran-a-deep-dive-into-the-logitech-4k-pro-webcam/"><u>[New] 2024 Approved  Compreran a Deep Dive Into the Logitech 4K Pro Webcam</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-funimate-unlocking-the-secrets-of-easy-downloads/"><u>[New] 2024 Approved  Funimate  Unlocking the Secrets of Easy Downloads</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-cut-mov-videos-for-free-top-6-software-options/"><u>New 2024 Approved Cut MOV Videos for Free Top 6 Software Options</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-motorola-razr-40-ultra-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Motorola Razr 40 Ultra</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-ultimate-guide-to-blending-multiple-exposures-into-a-single-hdr-in-lightroom-for-2024/"><u>The Ultimate Guide to Blending Multiple Exposures Into a Single HDR in Lightroom for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/prime-resources-for-text-style-adjustment-files-for-2024/"><u>Prime Resources for Text Style Adjustment Files for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-10-best-text-effects-for-your-video/"><u>[Updated] In 2024, 10 Best Text Effects for Your Video</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-effortless-itunes-for-podcast-enthusiasts/"><u>[Updated] 2024 Approved  Effortless iTunes for Podcast Enthusiasts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-speedy-tempo-change-software-showcase-mobile-pc/"><u>In 2024, Speedy Tempo Change Software Showcase (Mobile, PC)</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-country-on-app-store-for-apple-iphone-13-pro-max-with-7-methods-drfone-by-drfone-ios/"><u>In 2024, How To Change Country on App Store for Apple iPhone 13 Pro Max With 7 Methods | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-on-apple-iphone-14-plus-or-ipad-by-drfone-ios/"><u>In 2024, How to Bypass Activation Lock on Apple iPhone 14 Plus or iPad?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unleash-creative-potential-with-a-comprehensive-guide-to-ps-background-removal/"><u>[New] Unleash Creative Potential with a Comprehensive Guide to PS Background Removal</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unleashing-video-power-the-galaxy-s8-in-4k/"><u>[Updated] 2024 Approved  Unleashing Video Power  The Galaxy S8 in 4K</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-comparing-instagrams-latest-features-reels-vs-stories/"><u>In 2024, Comparing Instagram's Latest Features  Reels Vs Stories</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-ideal-tactic-fusing-gopro-footage-into-a-unified-360-video-experience/"><u>In 2024, Ideal Tactic  Fusing GoPro Footage Into a Unified 360 Video Experience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/revolutionize-playtime-unveiling-win11s-latest-titles-for-2024/"><u>Revolutionize Playtime  Unveiling Win11's Latest Titles for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-lock-apps-on-honor-x50-gt-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Honor X50 GT to Protect Your Individual Information</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-photopea-guide-to-clean-image-canvases-for-2024/"><u>[New] Photopea Guide to Clean Image Canvases for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-echoes-in-images-selfie-with-your-x-phone/"><u>[New] 2024 Approved  Echoes in Images  Selfie with Your X Phone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-integrating-zoom-into-your-daily-schedule/"><u>2024 Approved  Integrating Zoom Into Your Daily Schedule</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-transforming-youtube-sounds-into-high-quality-wav-files/"><u>In 2024, Transforming YouTube Sounds Into High-Quality WAV Files</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-kinemaster-techniques-and-top-10-online-rivals/"><u>2024 Approved  Mastering KineMaster  Techniques & Top 10 Online Rivals</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/strategies-for-winning-on-spotifys-ad-platform-for-2024/"><u>Strategies for Winning on Spotify's Ad Platform for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-identifying-tech-giants-iphone-x-and-samsungs-face-recognition/"><u>[New] In 2024, Identifying Tech Giants  IPhone X & Samsung's Face Recognition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-a-glimpse-at-the-best-curating-a-list-of-5-exceptional-book-tts/"><u>[Updated] 2024 Approved  A Glimpse at the Best  Curating a List of 5 Exceptional Book TTs</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-ginger-islet-simplified-for-stardew-gamers/"><u>2024 Approved  Ginger Islet Simplified for Stardew Gamers</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/full-guide-to-unlock-your-meizu-by-drfone-android/"><u>Full Guide to Unlock Your Meizu</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-creating-effective-fb-fundraising-posts/"><u>[Updated] 2024 Approved  Creating Effective FB Fundraising Posts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/navigating-the-world-of-videomosaic-androids-8-freepaid-selection-for-2024/"><u>Navigating the World of Videomosaic  Android's #8-Free/Paid Selection for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-easycast-essential-steps-for-beginner-podcast-streamers/"><u>[Updated] EasyCast  Essential Steps for Beginner Podcast Streamers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-androids-lightroom-app-a-complete-evaluation-for-2024/"><u>[New] Android's Lightroom App  A Complete Evaluation for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-visual-virtuosity-mastering-the-craft-of-photographic-enhancement/"><u>[Updated] 2024 Approved  Visual Virtuosity  Mastering the Craft of Photographic Enhancement</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-rise-of-new-titans-against-vlc-for-2024/"><u>The Rise of New Titans Against VLC for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-edit-like-a-pro-10-must-know-tips-for-newbies/"><u>[New] 2024 Approved  Edit Like a Pro  10 Must-Know Tips for Newbies</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/2024-approved-a-guide-to-adopting-lumetri-color-presets-in-effective-color-grading/"><u>2024 Approved A Guide To Adopting Lumetri Color Presets in Effective Color Grading</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-top-notch-assistance-highest-rated-iphone-ringtone-makers/"><u>[New] 2024 Approved  Top-Notch Assistance  Highest Rated iPhone Ringtone Makers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-digital-therapeutics-and-patient-engagement/"><u>[Updated] Digital Therapeutics and Patient Engagement</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-total-circles-capture-systems/"><u>In 2024, Total Circles Capture Systems</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-path-to-precision-audio-starting-with-an-adobe-auditions-fade-in/"><u>[New] The Path to Precision Audio  Starting with an Adobe Audition's Fade In</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-step-by-step-guide-turn-onoff-picture-in-picture-mode-in-youtube-app/"><u>[Updated] 2024 Approved  Step by Step Guide  Turn On/Off Picture In Picture Mode in YouTube App</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/elevate-video-appeal-crafting-unforgettable-thumbnail-images/"><u>Elevate Video Appeal  Crafting Unforgettable Thumbnail Images</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-must-have-top-skins-themes-and-backgrounds-for-laptops/"><u>[Updated] 2024 Approved  Must-Have  Top Skins, Themes & Backgrounds for Laptops</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-classic-stop-motion-animations-ranking-the-best-15/"><u>[New] In 2024, Classic Stop-Motion Animations  Ranking the Best 15</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  No Video Display on Sony A6400 Screen\""
-date: 2024-06-17T14:30:11.408Z
-updated: 2024-06-18T14:30:11.408Z
+date: 2024-07-13T20:56:41.854Z
+updated: 2024-07-14T20:56:41.854Z
 tags: 
   - screen-recording
   - ai video
@@ -58,6 +58,9 @@ This is a common reason why you can’t see the videos on Sony A6400\. Sometimes
 * Right-click on the video, and choose ‘properties.’
 * Click the ‘tools’ category on the new Windows and select the ‘error checking’ feature.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![cannot-see-video-sony-a6400-](https://images.wondershare.com/filmora/article-images/2022/05/cannot-see-video-sony-a6400-4.jpg)
 
 * The next step is automatically clicking the ‘check’ button to repair the camera’s SD card.
@@ -106,10 +109,16 @@ Among the top-quality camcorders in the market, Sony is one of the leading optio
 * **Step 3:** This will promptly redirect you to the editor page; click on the ‘file’ tab and choose ‘import media file.’ You need to have copied the video to your PC before beginning the process. You can also select ‘import from a camcorder’ to import the video directly.
 * **Step 4:** Navigate to the folder where the video is and click on ‘open.’
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ![cannot-see-video-sony-a6400-](https://images.wondershare.com/filmora/article-images/2022/05/cannot-see-video-sony-a6400-6.jpg)
 
 * **Step 5:** Start to customize your Sony A6400 video as you prefer; you can split the video into smaller clips, edit the audio track or add a new one to the video.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![cannot-see-video-sony-a6400-](https://images.wondershare.com/filmora/article-images/2022/05/cannot-see-video-sony-a6400-7.jpg)
 
 You can also include editing features like transitions, special video effects, etc. The various features available on Filmora allow you to enhance the value of your video file.
@@ -424,6 +433,9 @@ You can also include editing features like transitions, special video effects, e
 
 * **Step 6:** Once you’re done editing the video, select the ‘export’ tab, allowing you to save your video to a new location. You can also change your video’s bit rate, resolution, and frame rate.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![cannot-see-video-sony-a6400-](https://images.wondershare.com/filmora/article-images/2022/05/cannot-see-video-sony-a6400-9.jpg)
 
 **Final Thoughts**
@@ -453,3 +465,58 @@ Knowing why you can’t see videos on Sony A6400 is essential because it allows 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-a-step-by-step-guide-to-masterful-editing/"><u>[New] A Step-by-Step Guide to Masterful Editing</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-humorous-hits-lifetime-access-to-memes/"><u>[New] In 2024, Humorous Hits  Lifetime Access to Memes</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Honor 90 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unlocking-spotifys-advertising-opportunities-a-roadmap/"><u>2024 Approved  Unlocking Spotify’s Advertising Opportunities  A Roadmap</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-scour-these-top-12-sites-for-stock-photos-at-zero-cost/"><u>[Updated] Scour These Top 12 Sites for Stock Photos at Zero Cost</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/twirling-titans-olympic-ice-revelations-for-2024/"><u>Twirling Titans  Olympic Ice Revelations for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-androids-premier-3d-visualization-app-for-2024/"><u>[New] Android's Premier 3D Visualization App for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-from-clueless-to-confident-configuring-zoom-made-simple/"><u>[New] 2024 Approved  From Clueless to Confident  Configuring Zoom Made Simple</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-personal-drones-that-track-and-follow-you/"><u>[Updated] Personal Drones that Track and Follow You</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-making-memories-sing-picture-plus-music-videography-for-2024/"><u>[Updated] Making Memories Sing  Picture + Music Videography for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/video-playback-time-estimate-a-20mb-file-size-for-2024/"><u>Video Playback Time Estimate  A 20MB File Size for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-drone-dynamics-a-thorough-gopro-karma-examination/"><u>[New] 2024 Approved  Drone Dynamics  A Thorough GoPro Karma Examination</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/2024-approved-the-visual-effect-how-different-aspect-ratios-alter-your-youtube-videos-appeal/"><u>2024 Approved The Visual Effect How Different Aspect Ratios Alter Your YouTube Videos Appeal</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-download-powerhouse-top-free-quick-vids-extraction-for-pinterest-for-2024/"><u>[Updated] Download Powerhouse  Top Free, Quick Vids Extraction for Pinterest for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-charting-a-path-to-profit-calculating-video-view-requirements/"><u>In 2024, Charting a Path to Profit  Calculating Video View Requirements</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-maximize-your-income-through-strategic-use-of-youtube-shorts/"><u>[Updated] Maximize Your Income Through Strategic Use of YouTube Shorts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-power-play-the-ultimate-guide-to-selecting-lipos-for-uavs-for-2024/"><u>[New] Power Play  The Ultimate Guide to Selecting LiPos for UAVS for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-ranking-top-non-gopro-waterproof-vr-and-action-cameras/"><u>[New] Ranking Top Non-GoPro Waterproof VR and Action Cameras</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-unzipping-subtitles-turning-zip-archives-into-srt-files/"><u>[New] 2024 Approved  Unzipping Subtitles  Turning Zip Archives Into .SRT Files</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-unleash-full-potential-in-yi-4k-recording/"><u>[New] In 2024, Unleash Full Potential in YI 4K Recording</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-proven-strategies-for-premium-picture-acquisition-gratis/"><u>[Updated] Proven Strategies for Premium Picture Acquisition Gratis</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-apple-iphone-13-mini-location-on-viber-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change/Fake Your Apple iPhone 13 mini Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-pushing-boundaries-with-high-speed-cinematography/"><u>[New] In 2024, Pushing Boundaries with High-Speed Cinematography</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-youtube-mastery-screen-recording-unveiled/"><u>[Updated] 2024 Approved  YouTube Mastery  Screen Recording Unveiled</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-precision-meets-creativity-top-accessories-for-yi-4k/"><u>[New] Precision Meets Creativity  Top Accessories for YI 4K</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-exclusive-choice-premium-virtual-reality-experiences-on-google-cardboard/"><u>[New] Exclusive Choice  Premium Virtual Reality Experiences on Google Cardboard</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-from-screenshots-to-art-the-8-best-photo-collage-tools/"><u>[Updated] In 2024, From Screenshots to Art  The 8 Best Photo Collage Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/ditch-costs-enjoy-free-video-playback-on-pcmac-for-2024/"><u>Ditch Costs, Enjoy FREE Video Playback on PC/Mac for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-ephemeral-movie-blueprint/"><u>[New] Ephemeral Movie Blueprint</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-web-funnies-forge/"><u>[Updated] In 2024, Web Funnies Forge</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-pathway-to-perfection-a-pro-guide-to-instagram-photos-for-2024/"><u>[New] The Pathway to Perfection  A Pro Guide to Instagram Photos for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-lava-blaze-curve-5g-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Lava Blaze Curve 5G Activity | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-navigating-the-best-hdr-cameras/"><u>[Updated] Navigating the Best HDR Cameras</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-meme-magic-sprinkle-hilarity-with-simple-steps/"><u>[Updated] Meme Magic  Sprinkle Hilarity with Simple Steps</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-to-poco-c50-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Poco C50 FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-explore-leading-websites-for-text-embellishments/"><u>[New] Explore Leading Websites for Text Embellishments</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Nokia C12 Plus | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-filmoras-top-10-for-seamless-image-transitions/"><u>[New] Filmora's Top 10 for Seamless Image Transitions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-mastering-time-stamps-on-youtube-videos/"><u>[New] In 2024, Mastering Time Stamps on YouTube Videos</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-speech-to-text-for-media/"><u>[New] Speech to Text for Media</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-understanding-consumer-behavior-a-guide-for-market-researchers/"><u>[Updated] In 2024, Understanding Consumer Behavior  A Guide for Market Researchers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/join-the-metaverse-meme-revolution-quick-tips-for-original-creators-for-2024/"><u>Join the Metaverse Meme Revolution - Quick Tips for Original Creators for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-evaluating-hdr-tvs-does-aurora-hit-the-mark-in-2024/"><u>[Updated] Evaluating HDR TVs  Does Aurora Hit the Mark, In 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-ffmpegs-audio-recapture-challenge/"><u>[New] FFmpeg's Audio Recapture Challenge</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-expert-picks-for-drone-pilots-vr-eyewear/"><u>[Updated] In 2024, Expert Picks for Drone Pilots’ VR Eyewear</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-building-impressive-pixelated-photo-combinations/"><u>[New] Building Impressive Pixelated Photo Combinations</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-from-basic-players-to-gamers-paradise-the-kinemaster-android-experience/"><u>[New] In 2024, From Basic Players to Gamers' Paradise  The KineMaster Android Experience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-unlocking-your-channels-potential-the-cost-analysis/"><u>In 2024, Unlocking Your Channel's Potential  The Cost Analysis</u></a></li>
+<li><a href="https://win11.techidaily.com/a-deeper-dive-into-reading-qr-codes-with-windows-os/"><u>A Deeper Dive Into Reading QR Codes with Windows OS</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-a-new-era-of-streaming-leading-voices-of-female-creators/"><u>[New] 2024 Approved  A New Era of Streaming  Leading Voices of Female Creators</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-enhancing-film-aesthetics-with-luts-technology-for-2024/"><u>[New] Enhancing Film Aesthetics with Luts Technology for 2024</u></a></li>
+</ul></div>

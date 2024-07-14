@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Cutting-Edge Collection  No-Cost AE Template Suite for 2024\""
-date: 2024-06-17T13:28:39.446Z
-updated: 2024-06-18T13:28:39.446Z
+date: 2024-07-13T19:49:19.088Z
+updated: 2024-07-14T19:49:19.088Z
 tags: 
   - screen-recording
   - ai video
@@ -109,6 +109,9 @@ Use this method to add a simple animation to your video’s title. This is an id
 
 Step1 Start by creating a new composition and then go to the crosshair icon under the preview window and select “Title/Action Safe.” This enables “Title Safe” which will add a guide to the screen to make sure your titles remain in the correct place.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![line title animation ae](https://images.wondershare.com/filmora/article-images/2022/07/line-title-animation-ae.jpg)
 
 Step2 Click on the Text Tool and type in your title. You can use the “Character Window” on the right to change the font, size, and formatting for the video.
@@ -177,6 +180,9 @@ Step4 You can then use the “Effects Window” to change the color as desired.
 
 </article
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ## Best Free After Effects Title Templates
 
 The following are just some of the best After Effects title templates to choose from;
@@ -239,6 +245,9 @@ This is another great title template that you can choose if you want animations 
 
 If you are looking for a wide variety of choices when it comes to animations, this is a good template bundle to consider. The templates in this bundle have some of the best text effects that we have seen anywhere and there are multiple styles of title scenes to choose from. Each one of the titles is fully customizable and they are ideal for business or professional videos.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![abstract ae title tempalte](https://images.wondershare.com/filmora/article-images/2022/07/abstract-ae-title-tempalte.jpg)
 
 ## How to Edit Video Title in After Effects
@@ -261,6 +270,9 @@ If you would like to add a shape around the title just to make it stand out more
 
 Step1 Select the Rectangle Tool and proceed to draw a shape around the title.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add a shape around title](https://images.wondershare.com/filmora/article-images/2022/07/add-a-shape-around-title.jpg)
 
 Step2 Under “Fill” select “None” and under “Stroke,” set to “Solid Color.”
@@ -340,3 +352,55 @@ Step4 You can then use the “Effects Window” to change the color as desired.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-skydrives-frugal-option-minimal-price-maximum-space-for-2024/"><u>[New] Skydrive's Frugal Option  Minimal Price, Maximum Space for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-mastering-time-stamps-on-youtube-videos/"><u>[Updated] 2024 Approved  Mastering Time Stamps on YouTube Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-2022s-speed-demon-olympic-crossers-greatest-hits/"><u>[Updated] 2024 Approved  2022'S Speed Demon  Olympic Crossers' Greatest Hits</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-sculpting-light-and-shadow-the-photoshop-hdr-way/"><u>[New] 2024 Approved  Sculpting Light and Shadow  The Photoshop HDR Way</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-what-can-tell-you-about-12-best-audio-converter/"><u>New In 2024, What Can Tell You About 12 Best Audio Converter</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-leading-10-in-ultra-hd-top-4k-mirrorless-photo-journals/"><u>2024 Approved  Leading 10 in Ultra-HD  Top 4K Mirrorless Photo Journals</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/mastering-iphoneipad-premium-podcast-recording-tips-for-2024/"><u>Mastering iPhone/iPad  Premium Podcast Recording Tips for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-prodigious-plotlines-in-audio-playwriting/"><u>2024 Approved  Prodigious Plotlines in Audio Playwriting</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-creating-flawless-slow-motion-videos-is-every-content-creators-dream-learn-about-davinci-resolve-slow-motion-video-creation-amongst-other-tools/"><u>In 2024, Creating Flawless Slow-Motion Videos Is Every Content Creators Dream. Learn About DaVinci Resolve Slow-Motion Video Creation, Amongst Other Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-essential-principles-of-animated-visual-content-for-2024/"><u>[New] Essential Principles of Animated Visual Content for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/insiders-guide-to-powerful-win10-habits-for-2024/"><u>Insider's Guide to Powerful Win10 Habits for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-interpreting-distinctions-360-content-and-virtual-reality/"><u>[New] Interpreting Distinctions  360° Content & Virtual Reality</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/top-15-youtube-openings-elevate-your-contents-impact-for-2024/"><u>Top 15 YouTube Openings  Elevate Your Content's Impact for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-get-rid-of-youtube-distractions-ad-blocking-on-chrome-firefox-and-ios/"><u>[Updated] 2024 Approved  Get Rid of YouTube Distractions  Ad-Blocking on Chrome, Firefox & iOS</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-marketing-unveiling-techniques-for-2024/"><u>[New] Marketing Unveiling Techniques for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-innovations-in-mobile-photography-a-look-at-iphone-x/"><u>[New] Innovations in Mobile Photography  A Look at iPhone X</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-which-cameras-rule-the-field-gopro-hero-vs-sony-x1000v-clashes/"><u>[New] Which Cameras Rule the Field? GoPro Hero Vs. Sony X1000V Clashes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-unveiling-premium-displays-the-ultimate-guide-for-xbox-s-series-x/"><u>[New] 2024 Approved  Unveiling Premium Displays  The Ultimate Guide for Xbox S Series X</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-sunshine-strategies-to-lighten-up-android-videos/"><u>[New] 2024 Approved  Sunshine Strategies to Lighten up Android Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-how-to-use-gopro-hero5-black-tips-for-shooting-great-photos-and-videos/"><u>[New] 2024 Approved  How to Use GoPro Hero5 Black  Tips for Shooting Great Photos and Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-top-10-sci-fi-metaverse-movies-take-you-to-a-brand-new-world/"><u>[New] 2024 Approved  Top 10 Sci-Fi Metaverse Movies Take You to a Brand New World</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-stop-automated-youtube-content-rollouts/"><u>[New] Stop Automated YouTube Content Rollouts</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-honor-magic-vs-2-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Honor Magic Vs 2 For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/premium-assessment-of-parrots-second-gen-model-20/"><u>Premium Assessment of Parrot's Second-Gen Model 2.0</u></a></li>
+<li><a href="https://android-frp.techidaily.com/top-5-lava-storm-5g-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Lava Storm 5G Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-instagram-to-tik-tok-integration-strategy-for-2024/"><u>[New] Instagram to Tik Tok Integration Strategy for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-windows-10-new-features-at-a-glance/"><u>[New] Windows 10 New Features at a Glance</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-is-your-apple-iphone-8-plus-in-security-lockout-proper-ways-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Is Your Apple iPhone 8 Plus in Security Lockout? Proper Ways To Unlock | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-swift-steps-to-personalize-your-in-game-sonic-presence-in-pubg/"><u>[New] 2024 Approved  Swift Steps to Personalize Your In-Game Sonic Presence in PUBG</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/maximize-visuals-on-win10-with-hd-6950-updates/"><u>Maximize Visuals on Win10 with HD 6950 Updates</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-mastering-media-with-extraearsound/"><u>[New] Mastering Media with ExtraEarSound</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-unlocked-potential-of-new-windows-11/"><u>The Unlocked Potential of New Windows 11</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-mastering-mp4-music-a-collection-of-streamlined-audio-extraction-procedures-set-for-2024/"><u>New Mastering MP4 Music A Collection of Streamlined Audio Extraction Procedures Set for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-motorola-g24-power-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Motorola G24 Power Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-s-best-game-capture-methods-simple-and-effective/"><u>New 2024 Approved S Best Game Capture Methods Simple and Effective</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-best-10-mind-blowing-video-collage-maker-for-pc-for-2024/"><u>Updated Best 10 Mind-Blowing Video Collage Maker for PC for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-revamped-look-at-sonys-s6500-bdp-for-2024/"><u>[New] Revamped Look at Sony's S6500 BDP for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-reducing-jitter-in-visual-content-creation/"><u>[New] Reducing Jitter in Visual Content Creation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/intro-to-photo-editing-mastering-lunapic-basics-for-2024/"><u>Intro to Photo Editing  Mastering LunaPic Basics for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-boundless-treasure-tales-of-instagram-flair/"><u>[New] Boundless Treasure Tales of Instagram Flair</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-explore-12-prime-flip-screen-cameras-revolutionizing-vlogs-for-2024/"><u>[New] Explore 12 Prime Flip Screen Cameras Revolutionizing Vlogs for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-superior-script-architect-space/"><u>[New] Superior Script Architect Space</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/1719817931438-tidy-up-your-screens-distorted-edges-now/"><u>Tidy Up Your Screen's Distorted Edges Now!</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-15-ways-to-enhance-your-listening-pleasure-with-podcasts/"><u>[Updated] 15 Ways to Enhance Your Listening Pleasure with Podcasts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-dissecting-the-disparities-apples-m1-pro-and-m1-max/"><u>[Updated] 2024 Approved  Dissecting the Disparities  Apple's M1 Pro and M1 Max</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-maximize-reach-the-top-ten-keywords-discovery-platforms-for-youtubers/"><u>In 2024, Maximize Reach  The Top Ten Keywords Discovery Platforms for YouTubers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-video-files-how-many-can-fit-in-128gb-in-2024/"><u>[New] Video Files  How Many Can Fit in 128Gb, In 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-10-easy-youtube-video-ideas-everyone-can-make-it/"><u>[Updated] 2024 Approved  10 Easy YouTube Video Ideas Everyone Can Make It</u></a></li>
+</ul></div>

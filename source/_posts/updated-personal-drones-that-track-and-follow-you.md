@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Personal Drones that Track and Follow You"
-date: 2024-06-17T13:25:26.615Z
-updated: 2024-06-18T13:25:26.615Z
+date: 2024-07-13T19:45:56.537Z
+updated: 2024-07-14T19:45:56.537Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,9 @@ thumbnail: https://thmb.techidaily.com/f00def1c04cb418f21da5c60f199b078da943127e
 
 # Top 10 GPS Drones That Follow You
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -30,6 +33,9 @@ thumbnail: https://thmb.techidaily.com/f00def1c04cb418f21da5c60f199b078da943127e
 
 **Updated:** Now, DJI offers you another choice - [DJI Spark](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Top 10 GPS Drones that Follow You
 
  Click the name of drone to locate the detailed introduction
@@ -47,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/f00def1c04cb418f21da5c60f199b078da943127e
 | [Wingsland S6 Foldable Pocket Selfie Drone](#tab9) | $550    | 4k                                      | 10min       | 120m          |
 | [Hover's Passport](#tab10)                         | $599    | 4k                                      | 10min       | 20m           |
 
-#### 1. [DJI Phantom 3 Standard: ($496)](<https://www.amazon.com/gp/product/B013U0F6EQ/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B013U0F6EQ&linkId=7eb3c6ed8291356e6acb86c74ddca833>)
+#### 1. DJI Phantom 3 Standard: ($496)
 
 [dji phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard.jpg) ](https://www.amazon.com/gp/product/B013U0F6EQ/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B013U0F6EQ&linkId=7eb3c6ed8291356e6acb86c74ddca833)
 
@@ -65,7 +71,7 @@ thumbnail: https://thmb.techidaily.com/f00def1c04cb418f21da5c60f199b078da943127e
 * It offers advanced GPS based tracking and return to home function.
 * Users will be able to record videos up to 2.7K resolution and maximum supported stills of 12MP.
 
-#### 2. [DJI Phantom 4: ($961)](<https://www.amazon.com/gp/product/B01CFXQZD0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01CFXQZD0&linkId=edcac98fb2e38b9359b8299650e268df>)
+#### 2. DJI Phantom 4: ($961)
 
 [dji phantom 4](https://images.wondershare.com/filmora/article-images/dji-phantom-4.jpg) ](https://www.amazon.com/gp/product/B01CFXQZD0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01CFXQZD0&linkId=edcac98fb2e38b9359b8299650e268df)
 
@@ -82,7 +88,7 @@ thumbnail: https://thmb.techidaily.com/f00def1c04cb418f21da5c60f199b078da943127e
 * The live feed HD with FPV capability is great addition.
 * It offers gimbal stabilization for 3 axis.
 
-#### 3. [3DR Solo: ($260)](<https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=6e3a0783ff748b66e7ccc673543bde8f>)
+#### 3. 3DR Solo: ($260)
 
 [3dr solo](https://images.wondershare.com/filmora/article-images/3dr-solo.jpg)](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=6e3a0783ff748b66e7ccc673543bde8f)
 
@@ -99,7 +105,7 @@ thumbnail: https://thmb.techidaily.com/f00def1c04cb418f21da5c60f199b078da943127e
 * The maximum control range goes up to 500 meters and the maximum supported payload goes up to 420 grams.
 * Its battery takes about 1.5 hours for full charging.
 
-#### 4. [Hubsan H501S: ($242.18)](<https://www.amazon.com/gp/product/B01GO1CWZO/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01GO1CWZO&linkId=9b7f51dd8005d28e190aea46a7586d74>)
+#### 4. Hubsan H501S: ($242.18)
 
 [hubsan h501s](https://images.wondershare.com/filmora/article-images/hubsan-h501s.jpg) ](https://www.amazon.com/gp/product/B01GO1CWZO/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01GO1CWZO&linkId=9b7f51dd8005d28e190aea46a7586d74)
 
@@ -116,7 +122,7 @@ thumbnail: https://thmb.techidaily.com/f00def1c04cb418f21da5c60f199b078da943127e
 * Battery unit takes 150 minutes for full charging.
 * It supporst 5.8G wireless type video transmission feature.
 
-#### 5. [AirDog: ($650)](<https://www.amazon.com/gp/product/B0182N945I/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B0182N945I&linkId=dee6179c3a782f1a7b08ccb5794b76ed>)
+#### 5. AirDog: ($650)
 
 [airdog](https://images.wondershare.com/filmora/article-images/airdog.jpg)](https://www.amazon.com/gp/product/B0182N945I/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B0182N945I&linkId=dee6179c3a782f1a7b08ccb5794b76ed)
 
@@ -145,6 +151,9 @@ thumbnail: https://thmb.techidaily.com/f00def1c04cb418f21da5c60f199b078da943127e
 
 #### 7. Yuneec H: ($1299)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![yuneec h](https://images.wondershare.com/filmora/article-images/yuneec-h.jpg)
 
  It's a powerful six motor type drone unit that is designed to serve for impressive videography and photography needs. It comes with many intelligent flight modes, integrated autonomous flight mode, Journey Mode, Point of Interest Mode, Orbit Me, All in One controller and Team Mode.
@@ -158,7 +167,7 @@ thumbnail: https://thmb.techidaily.com/f00def1c04cb418f21da5c60f199b078da943127e
 * 12.4 MP stills.
 * Maximum flying range goes up to 1600 meters.
 
-#### 8. [DJI Mavic: ($999)](<https://www.amazon.com/gp/product/B01LYNH0BD/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01LYNH0BD&linkId=5bc2d865f754465a48d14318e26748b0>)
+#### 8. DJI Mavic: ($999)
 
 [dji mavic](https://images.wondershare.com/filmora/article-images/dji-mavic.jpg) ](https://www.amazon.com/gp/product/B01LYNH0BD/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01LYNH0BD&linkId=5bc2d865f754465a48d14318e26748b0)
 
@@ -174,7 +183,7 @@ thumbnail: https://thmb.techidaily.com/f00def1c04cb418f21da5c60f199b078da943127e
 * Can allow users to enjoy 26 minutes in air.
 * Maximum control range goes up to 7 Km.
 
-#### 9. [Wingsland S6 Foldable Pocket Selfie Drone: ($550)](<https://www.amazon.com/gp/product/B01MU4ND0Z/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01MU4ND0Z&linkId=0cf31fc2afdcdceba4838c11fa155f16>)
+#### 9. Wingsland S6 Foldable Pocket Selfie Drone: ($550)
 
 [wingsland s6 foldable pocket selfie drone](https://images.wondershare.com/filmora/article-images/wingsland-s6-foldable-pocket-selfie-drone.jpg) ](https://www.amazon.com/gp/product/B01MU4ND0Z/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01MU4ND0Z&linkId=0cf31fc2afdcdceba4838c11fa155f16)
 
@@ -200,6 +209,9 @@ thumbnail: https://thmb.techidaily.com/f00def1c04cb418f21da5c60f199b078da943127e
 * Maximum flight time is 10 minutes only.
 * It serves with 20 meter control range.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -226,3 +238,41 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://unlock-android.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-xiaomi-civi-3-disney-100th-anniversary-edition-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Xiaomi Civi 3 Disney 100th Anniversary Edition</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-reaching-a-wider-audience-using-video-translation-in-tamil/"><u>Updated Reaching a Wider Audience Using Video Translation in Tamil</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-easy-ways-to-record-vimeo-videos-for-2024/"><u>[Updated] Easy Ways to Record Vimeo Videos for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-balancing-work-and-leisure-enhancing-podcast-listening/"><u>In 2024, Balancing Work and Leisure  Enhancing Podcast Listening</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-this-years-breakthrough-in-vr-gaming-technology/"><u>[Updated] This Year's Breakthrough in VR Gaming Technology</u></a></li>
+<li><a href="https://win11.techidaily.com/personalizing-your-pc-saving-spotlight-pictures-as-wallpapers/"><u>Personalizing Your PC: Saving Spotlight Pictures as Wallpapers</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-toggle-between-normal-and-pip-views-for-youtube-app-on-ios/"><u>[New] Toggle Between Normal and PIP Views for Youtube App on iOS</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-discovering-premium-free-srt-translation-services-and-how-to-choose/"><u>[Updated] In 2024, Discovering Premium Free SRT Translation Services and How to Choose</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-demystifying-discords-features-and-tools/"><u>[New] In 2024, Demystifying Discord's Features and Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-pro-graphic-rigs-mastering-4k-titles-for-2024/"><u>[Updated] Pro Graphic Rigs  Mastering 4K Titles for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-cut-to-quality-perfecting-videos-with-enhancer-22/"><u>In 2024, Cut to Quality  Perfecting Videos with Enhancer 2.2</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-ultimate-photographic-face-off-legend-sj6-vs-xiaomis-yi-kickstarter/"><u>[Updated] In 2024, Ultimate Photographic Face-Off  Legend SJ6 Vs. Xiaomi's Yi Kickstarter</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-optimal-and-economical-selecting-the-top-free-webm-playback-options/"><u>[Updated] In 2024, Optimal and Economical  Selecting the Top Free WebM Playback Options</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-unlocking-quantum-hdr-your-comprehensive-guide/"><u>[Updated] In 2024, Unlocking Quantum HDR  Your Comprehensive Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-master-the-art-of-iphone-image-rotation-effortless-methods/"><u>In 2024, Master the Art of iPhone Image Rotation - Effortless Methods</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-editing-enhanced-mastering-movies-in-windows-11-environment/"><u>In 2024, Editing Enhanced  Mastering Movies in Windows 11 Environment</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-syncopating-youtube-melodies-with-visuals/"><u>[Updated] Syncopating YouTube Melodies with Visuals</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-revealing-the-future-with-microsofts-hololens-analysis-for-2024/"><u>[Updated] Revealing the Future with Microsoft's HoloLens Analysis for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/guide-on-how-to-erase-iphone-12-data-completely-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>Guide on How To Erase iPhone 12 Data Completely | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/comprehensive-manual-on-morphvox-sound-alteration/"><u>Comprehensive Manual on MorphVOX Sound Alteration</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-heartstrings-harmony-best-music-to-accompany-your-engagement/"><u>[Updated] In 2024, Heartstrings Harmony  Best Music to Accompany Your Engagement</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/te-audience-reach-through-collaborative-youtube-videos/"><u>Elevate Audience Reach Through Collaborative YouTube Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/5-essential-android-image-tweakers/"><u>5 Essential Android Image Tweakers</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-top-gif-to-mp4-converters/"><u>New 2024 Approved Top GIF to MP4 Converters</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-ultrafine-in-action-an-extended-review-of-lgs-4k-display/"><u>2024 Approved  UltraFine in Action  An Extended Review of LG’s 4K Display</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-most-admired-iphone-based-podcast-platforms/"><u>[Updated] In 2024, Most Admired iPhone-Based Podcast Platforms</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-behind-the-scenes-top-picks-of-monitors-and-tvs-for-xbox-series-x-gamers/"><u>In 2024, Behind-the-Scenes  Top Picks of Monitors & TVs for Xbox Series X Gamers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/ascending-with-aerial-artistry-9-top-editors-for-diverse-levels-for-2024/"><u>Ascending with Aerial Artistry  9 Top Editors For Diverse Levels for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-social-media-sensation-top-eight-videos-for-2024/"><u>[Updated] Social Media Sensation  Top Eight Videos for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-cost-effective-camera-guidebook/"><u>2024 Approved  The Cost-Effective Camera Guidebook</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-integrated-mac-system-screenmicrophone-recording/"><u>[Updated] Integrated Mac System  Screen/Microphone Recording</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-mastering-image-enhancement-for-breathtaking-results/"><u>[New] Mastering Image Enhancement for Breathtaking Results</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-12-prominent-samsung-galaxy-s23plus-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Samsung Galaxy S23+ Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-based-on-preferences-you-can-adjust-the-speed-of-youtube-videos-learn-how-to-produce-a-youtube-slow-motion-video-in-this-article-for-2024/"><u>New Based on Preferences, You Can Adjust the Speed of YouTube Videos. Learn How to Produce a YouTube Slow-Motion Video in This Article for 2024</u></a></li>
+</ul></div>
