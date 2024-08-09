@@ -1,0 +1,213 @@
+---
+title: "[New] Transform the Way You View Web Content Using MS Edge's Split Screen Functionality for 2024"
+date: 2024-08-08T14:14:57.788Z
+updated: 2024-08-09T14:14:57.788Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "This Article Describes [New] Transform the Way You View Web Content Using MS Edge's Split Screen Functionality for 2024"
+excerpt: "This Article Describes [New] Transform the Way You View Web Content Using MS Edge's Split Screen Functionality for 2024"
+keywords: "\"Edge Split View,Web Content Splitting,Edge Multitasking,Viewport Dual Screen,Online Content Divide,MS Edge Multi-Browser,Dynamic Web Layouts\""
+thumbnail: https://thmb.techidaily.com/ef372663750da3323ed4b8491ee9b4b175fd85bfcc73dd50c99f11aa454f80c7.jpg
+---
+
+## Transform the Way You View Web Content Using MS Edge's Split Screen Functionality
+
+Picture-in-Picture is an important feature on Windows and Android computers. It allows you to watch videos while they float on the screen of your desktop or smartphone. Microsoft Edge has PIP on Android and all other platforms to enable you to float videos on your screen on mini mode. And you can watch them as you perform other tasks on different apps and programs.
+
+## Part 1\. How to Enable and Disable Picture in Picture in Edge
+
+To exploit the PIP mode on your desktop computer, there are simple steps to follow to achieve this. And once you are in PIP mode, you can turn it off at your convenience.
+
+### Turn on PIP
+
+You can turn on PIP on Microsoft Edge using four different methods.
+
+1. Using PIP Button
+2. By Using Global Media Control
+3. By installing Picture in Picture Extension on Microsoft Edge
+4. Right-click on a playing video
+
+I will discuss two of the methods: Using the PiP Button and Right-click on the Video.
+
+To enable PiP in edge on your desktop computer using the button, there are cheap 5 steps to follow right here.
+
+1. Start Microsoft Edge on your PC and click the **3 dots** in the top right corner
+2. Go to **Settings > Cookies and Site Permissions**
+3. Go to **Picture in Picture Control**
+4. Go to **Show Picture in Picture Control inside Video Frame** and turn on the button.
+5. Resize the floating window to your favorite size and drag it to the position you like on the screen
+
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
+![using the pip button](https://images.wondershare.com/filmora/article-images/2022/07/use-pip-on-microsoft-edge-1.jpg)
+
+And here is a simple step-by-step procedure to follow to turn on PiP on your PC by right-clicking on the video.
+
+1. Start Microsoft Edge on your computer
+2. Visit any site where you want to play your video from
+3. Start the video
+4. Move your mouse over the video and right-click twice on it.
+5. Select Picture in Picture on the new menu so that Edge adds the video as a floating window on your screen.
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![right click on the video](https://images.wondershare.com/filmora/article-images/2022/07/use-pip-on-microsoft-edge-2.jpg)
+
+You can drag and move the floating window around the screen and drop it at any location that you want with your mouse. And you can also resize that video so that it gives you a large space to proceed with other activities.
+
+### Turn off PIP
+
+Even after turning on PiP on your desktop, you can still decide to switch off the PiP button on Microsoft Edge on your computer. And here is how to do it.
+
+1. Launch the Microsoft Edge browser on your computer.
+2. Let it open and click the **Hamburger icon (the 3-Bars icon)** in the top right corner of the App to access the Application Menu.
+3. Go to **Settings>Cookies and Site Permissions**
+4. Go to **Picture in Picture Control.**
+5. Click Switch off for **Show Picture-In-Picture Control inside Video Frame**.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+![click switch off](https://images.wondershare.com/filmora/article-images/2022/07/use-pip-on-microsoft-edge-3.jpg)
+
+Once you follow the steps above, you will be able to manipulate the PIP feature on your computer to use it as you like.
+
+## Part 2\. Useful Add-ons for PiP on Edge
+
+There are simpler ways to access and exploit Picture in Picture on your PC. Some supplement shortcut utilities that can enable you to enjoy this feature with ease are here.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
+### [PIP - Picture in Picture Plus](https://microsoftedge.microsoft.com/addons/detail/pip-picture-in-picture-/gokdpnhaggoioddclnnlpjfnkdinjjcc)
+
+The keyboard shortcut for PiP mode is **Alt + P**. Just click **Alt + P** and you are ready to go. This feature applies to YouTube, Twitter, Facebook, and other platforms.
+
+![pip plus](https://images.wondershare.com/filmora/article-images/2022/07/use-pip-on-microsoft-edge-4.jpg)
+
+You can also achieve this in three simple steps.
+
+1. Start a video on YouTube in your browser
+2. Click on the extension icon
+3. Select Picture in Picture
+
+And you are ready to go.
+
+### [Picture in Picture - PIP View](https://microsoftedge.microsoft.com/addons/detail/picture-in-picture-pip-/ebkloopllebgbjeppnncbekpfcglbcmp?hl=en-US)
+
+PIP View is an add-on in Microsoft Edge that eases up the use of Picture in Picture on your PC. It is based on manifest V3 and performs well for players in an iframe.
+
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![pip view](https://images.wondershare.com/filmora/article-images/2022/07/use-pip-on-microsoft-edge-5.jpg)
+
+PIP View is an extension that is available on all websites with HTML video element. It is a crucial feature on YouTube that helps you save with Picture in Picture mode. On YouTube, it is added just next to the Settings in the app, and it allows you to float your video easily across the screen.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### [Picture-in-Picture Everywhere](https://microsoftedge.microsoft.com/addons/detail/pictureinpicture-everyw/cmnlinjalaieggoebkmamaphjghpafhn?hl=en-US)
+
+This is a feature that enables you to use picture in picture on any site that you love. You can use Picture-in-Picture on your TV and Movies app anytime at any place.
+
+![pip everywhere](https://images.wondershare.com/filmora/article-images/2022/07/use-pip-on-microsoft-edge-6.jpg)
+
+And here is how to do it in only two steps.
+
+1. Open any video file with your TV and Movies app
+2. Click on play in mini mode in the bottom right corner and you with get into picture in picture mode
+
+You can then resize or drag it around to the location you love.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
+## Part 3\. How to enable and disable Picture in Picture in edge on Android
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-ultimate-memory-upgrade-for-sony-a7c/"><u>[New] 2024 Approved  Ultimate Memory Upgrade for Sony A7C</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-all-round-kinetics-examination-2023-for-2024/"><u>[New] All-Round Kinetics Examination 2023 for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-behind-the-scenes-look-at-podcaster-income/"><u>[New] In 2024, Behind-the-Scenes Look at Podcaster Income</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-compreenhensive-review-djis-new-drone-the-inspire-1/"><u>[New] In 2024, Compreenhensive Review  DJI's New Drone, The Inspire 1</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-customize-your-screenscape-google-meets-dynamic-background-switch/"><u>[New] In 2024, Customize Your Screenscape  Google Meet's Dynamic Background Switch</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-leverage-canva-design-top-10-stealthy-methods-revealed/"><u>[New] Leverage Canva Design  Top 10 Stealthy Methods Revealed</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-navigating-the-world-of-elite-hdr-camera-choices/"><u>[New] Navigating the World of Elite HDR Camera Choices</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-screen-capture-essentials-the-finest-zero-cost-apps-for-win-10-users-for-2024/"><u>[New] Screen Capture Essentials  The Finest Zero-Cost Apps for Win 10 Users for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-superlative-frame-storyteller-bundle-for-2024/"><u>[New] Superlative Frame Storyteller Bundle for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-which-gopro-is-better-max-360-or-hero-11/"><u>[New] Which GoPro Is Better, Max 360 or Hero 11?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-how-to-remove-image-background-in-photopea/"><u>[Updated] 2024 Approved  How to Remove Image Background In Photopea</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-refine-your-remote-sessions-zoom-in-effectively/"><u>[Updated] 2024 Approved  Refine Your Remote Sessions  Zoom in Effectively</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-stepwise-guide-to-mastering-zoom-on-modern-windows-11/"><u>[Updated] 2024 Approved  Stepwise Guide to Mastering Zoom on Modern Windows 11</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-ultimate-conversion-manual-from-srt-to-various-formats/"><u>[Updated] 2024 Approved  Ultimate Conversion Manual  From SRT to Various Formats</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-gopros-underwater-journey-essential-tactics-to-make-your-videos-stand-out/"><u>[Updated] In 2024, GoPro’s Underwater Journey  Essential Tactics to Make Your Videos Stand Out</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-installation-guide-for-movie-maker-6-version-6/"><u>[Updated] In 2024, Installation Guide for Movie Maker 6 Version 6</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-pro-tip-unveiling-the-best-10-free-image-vaults/"><u>[Updated] In 2024, Pro Tip  Unveiling the Best 10 Free Image Vaults</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-depth-analysis-of-gradual-audio-lowering-with-lumafusion-for-2024/"><u>[Updated] In-Depth Analysis of Gradual Audio Lowering with Lumafusion for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-masterful-post-placement-to-surge-video-views-for-2024/"><u>[Updated] Masterful Post Placement to Surge Video Views for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-content-delivery-spectrum-vimeo-and-youtube-reviewed/"><u>[Updated] The Content Delivery Spectrum  Vimeo & YouTube Reviewed</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-understanding-the-latest-display-technology-in-huawei-p10/"><u>[Updated] Understanding the Latest Display Technology in Huawei P10</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-expedite-tech-advancement-how-to-embrace-macos-11-big-sur/"><u>2024 Approved  Expedite Tech Advancement  How to Embrace macOS 11 Big Sur</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-game-on-with-premium-screens-for-your-xbox-series-x-console/"><u>2024 Approved  Game on with Premium Screens for Your Xbox Series X Console</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-gopro-vs-sony-battle-royale-for-ultimate-action-cameras/"><u>2024 Approved  GoPro Vs. Sony  Battle Royale for Ultimate Action Cameras</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-connoisseurs-guide-to-whatsapp-mastery/"><u>2024 Approved  The Connoisseur's Guide to WhatsApp Mastery</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/a-comprehensive-guide-to-selecting-chatgpt-as-a-tool-for-improving-mental-wellness/"><u>A Comprehensive Guide to Selecting ChatGPT as a Tool for Improving Mental Wellness</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/best-online-hubs-sky-high-dynamic-range-photography/"><u>Best Online Hubs  Sky High Dynamic Range Photography</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/collaborative-branding-strategies-in-digital-media-for-2024/"><u>Collaborative Branding Strategies in Digital Media for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/epic-assessment-and-alternative-measures/"><u>Epic Assessment & Alternative Measures</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-vivo-x90s-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Vivo X90S? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-clarity-in-cinema-in-depth-review-of-lgs-digital-display-the-4k-monitor-31mu97-b/"><u>In 2024, Clarity in Cinema - In-Depth Review of LG's Digital Display, The 4K Monitor 31MU97-B</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-embracing-authenticity-in-video-marketing-through-clients-words/"><u>In 2024, Embracing Authenticity in Video Marketing Through Clients' Words</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-harness-the-power-of-picture-in-picture-on-chrome-platforms/"><u>In 2024, Harness the Power of Picture In Picture on Chrome Platforms</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-tecno-camon-20-pro-5g-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-mastering-the-art-of-transferring-instagram-footage-to-pcmac/"><u>In 2024, Mastering the Art of Transferring Instagram Footage to PC/Mac</u></a></li>
+<li><a href="https://win-blog.techidaily.com/resolve-your-lost-ark-game-fixing-the-server-connection-error-easily/"><u>Resolve Your Lost Ark Game: Fixing the Server Connection Error Easily</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/seamless-srt-and-mp4-fusion-the-ultimate-guide/"><u>Seamless SRT & MP4 Fusion – The Ultimate Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/sightgraph-assessment-center/"><u>SightGraph Assessment Center</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/skype-tone-searching-made-easy-pick-from-the-4-ace-lists/"><u>Skype Tone Searching Made Easy  Pick From the 4 Ace Lists</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-push-for-regulatory-measures-in-ai-perspectives-from-openais-top-dog/"><u>The Push for Regulatory Measures in AI - Perspectives From OpenAI's Top Dog</u></a></li>
+</ul></div>
