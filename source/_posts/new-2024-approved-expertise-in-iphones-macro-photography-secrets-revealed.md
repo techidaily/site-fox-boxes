@@ -1,0 +1,217 @@
+---
+title: "\"[New] 2024 Approved  Expertise in iPhone's Macro Photography Secrets Revealed\""
+date: 2024-08-23T08:05:27.679Z
+updated: 2024-08-24T08:05:27.679Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes [New] 2024 Approved: Expertise in iPhone's Macro Photography Secrets Revealed\""
+excerpt: "\"This Article Describes [New] 2024 Approved: Expertise in iPhone's Macro Photography Secrets Revealed\""
+keywords: "IPhone Macro Photography Tips,Master iPhone Macro Shots,Explore iPhone Macro Secrets,Unlock iPhone Macro Features,IPhone Macro Photo Enhancement,Discover iPhone Macro Tricks,Pro iPhone Macro Techniques"
+thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e86352ca57ab485a51d50b112ab.png
+---
+
+## Expertise in iPhone's Macro Photography Secrets Revealed
+
+# iPhone Macro and Close-up Photography Tips
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+With busy lives and hectic schedules, it can be easy to miss the small but important details. Sometimes, the smallest of things can be just as inspiring as the biggest, but when did you last stop and really look at what's around? From the tiniest insect to the patterns on a leaf, starting to see things through different eyes can put a whole new spin on the world around us.
+
+![](https://images.wondershare.com/filmora/article-images/close-up-photography-iphone.jpg)
+
+Image source: Impressive Magazine
+
+Macro and close-up photography is a great way to start appreciating the little things in life, and you don't need a fancy camera to get involved either. Armed with nothing more than your standard iPhone, you can start enjoying the fun of macro photography today. Here's what you need to know.
+
+You May Also Like: [How to Take Underwater Photos with your iPhone 7](https://tools.techidaily.com/wondershare/filmora/download/)
+
+You May Also Like: [Resizing a Photo without Losing Quality](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Section 1. What is close-up and macro photography?
+
+Close-up photography and macro photography are all about photographing things in a way that makes them appear larger than they are in real life. It lets us look in detail at the things around us and can be an exciting and dramatic way to shoot images. But is there a difference between close up and macro in photography terms?
+
+There is, so if you're looking to get to grips with this type of photography, you need to understand that:
+
+* **Close up photography** is about putting your iPhone camera physically close to the object you are photographing, but without using any peripherals or special apps.
+* ****Macro photography uses technology to actually increase the size of the image to allow a close-up photo without needing to be so physically close.**
+
+With your iPhone macro photography and close-up shooting are both possible and can bring great results if you know what you're doing. However, for the really professional touch, an investment in a macro lens or specialist app will certainly kick your photography skills into high gear.
+
+## Section 2. iPhone Macro Photography Tips
+
+Taking great photos in macro mode isn't always as easy as it looks. Novice users can become frustrated when images come out dark, blurry or out of focus. Here are some top tips to get your iPhone macro photography just right, and to start building a collection of gorgeous close up images.
+
+#### Tip1\. Find your light
+
+Shooting in the macro range requires decent lighting, so consider when and how you are positioning your images. Early morning and midafternoon are great times of day to plan a shoot, as the soft, natural light is ideal for macro photography. Taking photos in the blazing midday sun can cause overexposure, and your iPhone may struggle to focus too.
+
+![](https://images.wondershare.com/filmora/article-images/close-up-photography-light.jpg)
+
+Image source: Urdu-Mag.com
+
+If you do want to snap some macro images in bright sunlight, try positioning your shadow to create a more indirect lighting of the subject. You can also move your own orientation so that the sun is shining into your shot, rather than behind it.
+
+#### Tip2\. Focus is the key
+
+With any photo, focus is crucial to an awesome result. But when you're creating macro images, this becomes even more critical to the success of your photography. Try using the manual focus setting to give yourself more control over your focus point, and work on fine-tuning your skills to create the perfect image.
+
+![](https://images.wondershare.com/filmora/article-images/close-up-photography-focus.jpg)
+
+Image source: PicMonkey
+
+If you're not ready to go fully manual, you could try using the iPhone's locking feature to lock the focus into place and avoid the photo being ruined by a little wobble on your part. To use this, simply tap and hold the screen at the part of the image you want to be in focus, and you'll see AE/EF Lock appear at the bottom. This means both focus and lighting are fixed until you tap elsewhere on the screen to release it.
+
+#### Tip3\. Keep steady
+
+Keeping still when taking a macro shot is absolutely vital. With your image already enlarged, any wobbles or shakes will cause blur or a loss of focus and spoil your image. In the longer term, you may want to invest in a tripod to steady the phone, but if you're just starting out, you might not be keen just yet.
+
+If you don't own a tripod, you could use a stationary object nearby, such as a wall, rock or gate. You could also bring a beanbag with you, as these allow you to get up close and personal with your subject comfortably, whilst also supporting and steadying your phone for the shot.
+
+#### Tip4\. Don't get too close
+
+Hold your finger close to your face, and you'll find that at a certain distance you can no longer focus on it. The same principle is true for iPhone macro photography; if you get too close your image will start to blur. But how close is too close?
+
+Different iPhone iterations have slightly different lenses, so there will be a bit of trial and error involved to find the perfect distance for your model. Somewhere in the range of two to four inches tends to be about the limit and is more than close enough to allow you to take some stunning close-up photographs.
+
+#### Tip5\. Be simple
+
+When you're shooting macro images with your iPhone, the intention is to make the background somewhat blurry, with only the objects at the front of the image in focus. You might think that this means it doesn't matter what's actually in the background, but in reality, a busy background with mixed colors can still serve to spoil your image.
+
+![](https://images.wondershare.com/filmora/article-images/macro-photography-distance.jpg)
+
+Image source: GCFLearnFree
+
+Make the subject center stage by positioning your composition to give the least cluttered background possible. Use the sky if you can, or experiment with textured backgrounds such as a wall or fence. Think about how far your subject is from the background, as the further away the background is, the more blurry it will become and the greater the contrast of focus on your subject will appear.
+
+#### Tip6\. Composition
+
+If you've researched photography in general, you'll already have heard of the ‘rule of thirds'. This rule is super simple to apply when using an iPhone and is just as relevant in macro photography as it is when shooting landscapes or any other composition.
+
+![](https://images.wondershare.com/filmora/article-images/macro-photography-composition.jpg)
+
+Image source: SmashingHub
+
+The rule states that if the image were divided into thirds horizontally and vertically, the most important objects in the image should be placed at the points where the lines intersect. This is easy on iPhone, as you can switch on the gridlines and instantly see where to place the subject in the photos. When shooting macro images, place your focal point at one of the intersections to give your photo the professional touch.
+
+#### Tip7\. Try different angles
+
+iPhone macro photography is all about looking at the world in a different way. To really accentuate this quality in your work, why not try shooting from a different perspective? Get very low down and shoot your subject from below, with the sky as a background, or snap from directly above to add drama to your images.
+
+![](https://images.wondershare.com/filmora/article-images/macro-photography-angles.jpg)
+
+Image source: Flickr
+
+Look for interesting colors and play with the light. Let the sunshine through the leaves of the plant or find a puddle and play with reflections. Line yourself up with a cityscape or countryside landscape, then place the subject dangling in the foreground. Have fun with angles and discover new ways of looking at your surroundings.
+
+#### Tip8\. Waterdrop trick
+
+If you're yet to invest in a macro lens for your iPhone, water can be your friend, adding a new level of magnification to your image. A small drop of water is a powerful magnifier and applying it carefully to your iPhone lens can make close-up photography even better.
+
+A larger drop that is almost ready to plop off will give magnificent magnification, but you'll have to have a steady hand and fast shutter finger to enjoy the result. Applying a huge droplet will give a dramatic result, softly blurred at the edges and sharply in focus at the center.
+
+Do be careful not to soak your iPhone while you're playing with this trick!
+
+#### Tip9\. Use a macro lens
+
+If you're serious about achieving incredible iPhone macro photography, the very best shots are only possible with a purpose-built macro lens. Simple, clip-on lenses will elevate the results to new heights, letting you take immaculately detailed, super close up shots that look like they were done on an expensive professional camera.
+
+There are a number of iPhone macro lenses out there that will do a great job and won't necessarily cost the earth. The [Olloclip](https://www.olloclip.com/) and [Photojojo](https://photojojo.com/) are both under $100, and let you add the pro touch to every photograph you set up. These are lightweight, easy to fit, and well worth the investment for the keen close up photographer.
+
+#### Conclusion
+
+If you're fed up with the same old shots and want to try something different, delving into the world of macro photography with your iPhone could give you a new lease of life. Whether you dive right in with a purchase of a clip-on lens or simply start looking at the little details in everything around you, close up photography is fun and easy to get into for every iPhone user.
+
+Explore, experiment, and practice, and you'll soon find your own style and be the envy of all your followers.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-building-business-via-beauty-vlogs/"><u>[New] 2024 Approved  Building Business via Beauty Vlogs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-cutting-edge-collage-companions-android-and-iphones-best/"><u>[New] 2024 Approved  Cutting-Edge Collage Companions  Android & iPhone's Best</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-integrating-custom-sounds-into-your-whatsapp-experience/"><u>[New] 2024 Approved  Integrating Custom Sounds Into Your WhatsApp Experience</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-vimeo-flashback-snapshot/"><u>[New] 2024 Approved  Vimeo Flashback Snapshot</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-comparing-future-cloud-bill-predictions/"><u>[New] Comparing Future Cloud Bill Predictions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-cutting-edge-audio-transition-tips-in-premier-for-2024/"><u>[New] Cutting-Edge Audio Transition Tips in Premier for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-harnessing-the-full-potential-of-video-enhancer-22-for-your-work/"><u>[New] Harnessing the Full Potential of Video Enhancer 2.2 for Your Work</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-cinematic-footage-showdown-gopro-and-sj7/"><u>[New] In 2024, Cinematic Footage Showdown  GoPro & SJ7</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-enhancing-clarity-for-tiny-treasures-in-minecraft/"><u>[New] In 2024, Enhancing Clarity for Tiny Treasures in Minecraft</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-fusiontv-services-international-and-home-viewing-unite/"><u>[New] In 2024, FusionTV Services  International & Home Viewing Unite</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-unlocking-obs-potential-incorporating-luts-seamlessly/"><u>[New] In 2024, Unlocking OBS' Potential  Incorporating LUTs Seamlessly</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-sierra-edition-selecting-top-video-editing-software-on-mac/"><u>[New] Sierra Edition  Selecting Top Video Editing Software on Mac</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-strategic-lighting-for-best-iphone-photography-for-2024/"><u>[New] Strategic Lighting for Best iPhone Photography for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-future-of-wagering-vegas-pros-evolution-in-21/"><u>[New] The Future of Wagering  Vegas Pro's Evolution in '21</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-ultimate-zoom-video-enhancement-playbook-for-2024/"><u>[New] The Ultimate Zoom Video Enhancement Playbook for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-ultimate-guide-to-the-top-8-discreet-content-collectors-for-2024/"><u>[New] Ultimate Guide to the Top 8 Discreet Content Collectors for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-understanding-cultural-influences-on-consumer-behavior-in-global-markets-for-2024/"><u>[New] Understanding Cultural Influences on Consumer Behavior in Global Markets for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-crafting-softer-beats-with-ableton/"><u>[Updated] 2024 Approved  Crafting Softer Beats with Ableton</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-mastering-instagrams-podcast-post-and-story-distribution/"><u>[Updated] 2024 Approved  Mastering Instagram's Podcast Post & Story Distribution</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unparalleled-capturing-the-best-camcorders/"><u>[Updated] 2024 Approved  Unparalleled Capturing  The Best Camcorders</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-captivate-audiences-gain-views-boosting-engagement-in-tiktok-unboxing-videos-for-2024/"><u>[Updated] Captivate Audiences, Gain Views  Boosting Engagement in TikTok Unboxing Videos for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-capture-life-in-stunning-form-with-iphones-essential-10-composition-guidelines/"><u>[Updated] Capture Life in Stunning Form with iPhone's Essential 10 Composition Guidelines</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-changing-the-face-of-healthcare-with-vr-for-2024/"><u>[Updated] Changing the Face of Healthcare with VR for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-exploring-new-frontiers-with-vr-game-engines/"><u>[Updated] Exploring New Frontiers with VR Game Engines</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-optimal-hue-refiner-app/"><u>[Updated] In 2024, Optimal Hue Refiner App</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-writers-workshop-for-podcast-creators-examples-included/"><u>[Updated] In 2024, The Writers' Workshop for Podcast Creators (Examples Included)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-uniting-individual-shots-into-a-compelling-image-story/"><u>[Updated] In 2024, Uniting Individual Shots Into a Compelling Image Story</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-unzip-the-scripts-crafting-subtitles-from-compressed-files/"><u>[Updated] In 2024, Unzip the Scripts  Crafting Subtitles From Compressed Files</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-optimize-visual-design-top-10-must-have-type-plugins-for-ae-for-2024/"><u>[Updated] Optimize Visual Design  Top 10 Must-Have Type Plugins for AE for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-professional-video-finishing-touches-device-based-filters-for-2024/"><u>[Updated] Professional Video Finishing Touches  Device-Based Filters for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-simplify-collaboration-with-mematics-cloud-notes/"><u>[Updated] Simplify Collaboration with Mematic’s Cloud Notes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-simplifying-the-complexity-of-digital-enhancements-for-2024/"><u>[Updated] Simplifying the Complexity of Digital Enhancements for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-unveiling-9plus-ingenious-methods-for-online-cricket-viewing-for-2024/"><u>[Updated] Unveiling 9+ Ingenious Methods for Online Cricket Viewing for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-maximizing-audio-capture-essential-techniques-for-facetime/"><u>2024 Approved  Maximizing Audio Capture  Essential Techniques for FaceTime</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-maximizing-socialization-with-ease-xbox-ones-zoom-functionality/"><u>2024 Approved  Maximizing Socialization with Ease  Xbox One's Zoom Functionality</u></a></li>
+<li><a href="https://apple-account.techidaily.com/exploring-the-world-of-grok-artificial-intelligence-with-elon-musk-features-explained-and-pricing-details/"><u>Exploring the World of Grok Artificial Intelligence with Elon Musk - Features Explained & Pricing Details</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/from-raw-footage-to-final-cut-adopting-luts-in-premiere/"><u>From Raw Footage to Final Cut  Adopting LUTs in Premiere</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/getting-started-with-windows-11s-in-built-high-dynamic-range-auto-hdr-for-2024/"><u>Getting Started with Windows 11'S In-Built High Dynamic Range (Auto HDR) for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-nokia-xr21-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Nokia XR21? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Oppo Find N3? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-how-to-design-a-post-that-sparks-wide-scale-interest-in-fb-giving/"><u>In 2024, How to Design a Post That Sparks Wide-Scale Interest in FB Giving</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-reimagine-old-school-vhs-with-modern-computer-techniques/"><u>In 2024, Reimagine Old-School VHS with Modern Computer Techniques</u></a></li>
+<li><a href="https://driver-install.techidaily.com/revamp-auditory-functionality-updating-drivers-in-win11/"><u>Revamp Auditory Functionality – Updating Drivers in Win11</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Tecno Pova 5? | Dr.fone</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-in-2024-master-amazon-live-features-pro-tips-and-future-trends/"><u>Updated In 2024, Master Amazon Live Features, Pro Tips and Future Trends</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/voices-of-authenticity-in-marketing-for-2024/"><u>Voices of Authenticity in Marketing for 2024</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->

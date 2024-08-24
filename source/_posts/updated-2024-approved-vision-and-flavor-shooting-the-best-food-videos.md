@@ -1,0 +1,185 @@
+---
+title: "\"[Updated] 2024 Approved  Vision and Flavor  Shooting the Best Food Videos\""
+date: 2024-08-23T08:06:52.262Z
+updated: 2024-08-24T08:06:52.262Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes [Updated] 2024 Approved: Vision and Flavor: Shooting the Best Food Videos\""
+excerpt: "\"This Article Describes [Updated] 2024 Approved: Vision and Flavor: Shooting the Best Food Videos\""
+keywords: "Best Food Videography,Culinary Shot Selection,Gourmet Film Making,Tasteful Visuals in Cooking,Epicurean Food Cinematography,Savory Sensory Shoots,Delightful Edible Images"
+thumbnail: https://thmb.techidaily.com/5b1555b7146633872fd56d30125d7101353d43d4ee7f4ba1a4a67766b9a7e657.jpg
+---
+
+## Vision and Flavor: Shooting the Best Food Videos
+
+# Food Videography: How to Shoot Food Videos
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+Short recipe videos are currently a popular trend on both YouTube and Instagram. They offer a visual guide to creating delicious menu items that range from delicious entrees to kid-friendly snacks.
+
+If you would like to create some of these food videos yourself, this article will help you shoot the most appealing food videos possible.
+
+## 5 Tips for Shooting Food Videos
+
+#### 1\. Light
+
+Light is one of the most crucial factors for your video. If the lighting is too bright, your food videography will appear washed out. If the lighting is too dark, food will appear shadowed and hard to see. Neither is a good option, because it does not present a very professional product.
+
+The best to use is natural lighting. You want a lot of bright natural light, but not streaming directly through your windows as this creates shadows.
+
+If the kitchen doesn’t work well for you, experiment with other rooms or outside, but be sure to keep furniture and clutter out of your shots.
+
+#### 2\. Audio
+
+Audio is one of the main components that sets [food videography](https://www.justonecookbook.com/visiting-seefood-media-food-videography/) apart from food photography. There are two viable options. You can either set your video to music, which will help set the tone for your frame speed, or you can use a voice over to provide audible descriptions.
+
+![audio](https://images.wondershare.com/filmora/article-images/sync-audio.JPG)
+
+#### 3\. Try to Tell a Story
+
+What seems like an insignificant change can be monumental. When crafting recipe videos, you want to try telling a story.
+
+For example, instead of showing a mixer you could show a mother helping her child to mix the ingredients together. At the end of the clip, you could either show only the food, or you could show a man walking past the window with his dog in tow.
+
+Telling a story will help to pull watchers into your video so they watch through until the end. It’s all about making viewers as invested as possible in a very short time frame.
+
+If you don’t start pulling them in, such as by telling a story, in the first twenty seconds, they probably won’t continue watching.
+
+![food](https://images.wondershare.com/filmora/article-images/food-sell-a-story.JPG)
+
+#### 4\. Video Editing
+
+Once the video is shot, you’ll have to do some post-production work. In other words, you need to edit your video. This is more time consuming than with food photography, because you must edit by frame, place to music, add title frames, and so on.
+
+One major mistake people make with their food videos is the use of too many transitions or cut-scenes, such as fading, zoom outs, etc.
+
+The best way to edit your videos is for quality, with a minimum of 90-97% straight shots – meaning no transitions are used.
+
+#### 5\. Decoration
+
+Some people will choose to shoot their videos using bold, bright colors in their food and setting.
+
+Others may decide that a simple setting – such as a classic wooden table with nothing more than a small flower vase – is more suitable for the dish they are creating.
+
+Both are great choices, but the key is to base your settings off your dish, ensuring the area surrounding the food is complementary and not contrasting.
+
+Videographers may choose to use other techniques to make the final dish pop.
+
+This could include food carving, plating techniques, or even just the use of high-tech equipment which has the potential to capture even the tiniest food fragment in vivid detail.
+
+![decoration food](https://images.wondershare.com/filmora/article-images/food-decoration.JPG)
+
+## Equipment
+
+#### 1\. Smart Phone
+
+One way to shoot food videos is with your smart phone. To do this, use the built-in camera feature set to take video in landscape mode (this looks the best).
+
+Hold very still to prevent shaking, and simply hold the screen for autofocus and exposure prior to beginning your film.
+
+![smart phone](https://images.wondershare.com/filmora/article-images/iphone-7-plus-4k-smartphone.jpg)
+
+#### 2\. Lens
+
+If you are going to shoot with a camera, you need either a mirrorless camera or DSLR. A standard click-and-shoot will not provide a high enough quality of video. Along with a high-quality camera comes the need for a high-quality lens.
+
+The lens you shoot with should be able to zoom in or out on the food. You’ll want to avoid a lens that presents static, or has any nicks, chips, or cuts in the glass.
+
+As for the shooting itself, you can feel free to experiment with lenses that offer unique styles, such as soft or hard
+
+![lens](https://images.wondershare.com/filmora/article-images/fujinon-mk18-55mm-t2.9-lens.jpg)
+
+#### 3\. Tripod
+
+Another thing you’ll want when shooting with a camera is a tripod. A tripod is necessary because it holds the camera steady, as well as allows you to be present in the video if desired.
+
+You can find a cheap tripod at many chain stores to get you started, although you may want to invest in a better one in the future.
+
+![tripod](https://images.wondershare.com/filmora/article-images/gitzo-mountaineer-series-2-carbon-fiber-tripod.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## Conclusion
+
+This basic guide should give you a solid start in creating top-of-the-line food videography for your social media accounts.
+
+If you find your first video isn’t as amazing as you’d thought it would be, remember that it takes time to become a master at something. With practice, you will see the videos shot progressively becoming more professional.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win-pro.png)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac-pro.png)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-piecing-together-a-memorable-trailer-moment/"><u>[New] 2024 Approved  Piecing Together a Memorable Trailer Moment</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-step-into-premium-sound-quality-garageband-edition/"><u>[New] 2024 Approved  Step Into Premium Sound Quality  GarageBand Edition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-the-noobs-manual-to-saving-streaming-radio-lines/"><u>[New] 2024 Approved  The Noob's Manual to Saving Streaming Radio Lines</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-transforming-images-with-dynamic-mosaic-designs/"><u>[New] 2024 Approved  Transforming Images with Dynamic Mosaic Designs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-virtual-frontier-peripherals-the-hottest-10/"><u>[New] 2024 Approved  Virtual Frontier Peripherals  The Hottest 10</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-ig-tik-combined-expertise-for-smooth-integration/"><u>[New] In 2024, IG-Tik Combined Expertise for Smooth Integration</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-parrot-prowess-in-bebop-an-in-depth-critique/"><u>[New] In 2024, Parrot Prowess in Bebop – An In-Depth Critique</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-movavi-video-pro-review-release-for-2024/"><u>[New] Movavi Video Pro Review Release for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-steps-to-decline-autoplayed-and-suggested-podcasts-on-spotify-for-2024/"><u>[New] Steps to Decline Autoplayed and Suggested Podcasts on Spotify for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-seamless-blend-enhancing-your-ae-projects-with-luts/"><u>[New] The Seamless Blend  Enhancing Your AE Projects with LUTs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-your-phones-call-chronicle-iphone-2024/"><u>[New] Your Phone's Call Chronicle - iPhone 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-3d-lut-expertise-in-a-quick-learning-journey/"><u>[Updated] 2024 Approved  3D LUT Expertise in a Quick Learning Journey</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-breaking-the-streak-code-proven-techniques/"><u>[Updated] 2024 Approved  Breaking the Streak Code  Proven Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-learn-to-navigate-two-screens-a-comprehensible-guide-to-floating-window-on-netflix/"><u>[Updated] 2024 Approved  Learn to Navigate Two Screens  A Comprehensible Guide to Floating Window on Netflix</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-chucklechops-witworks-corp-for-2024/"><u>[Updated] ChuckleChops  WitWorks Corp for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-instant-verbal-to-written-conversion-for-nothing/"><u>[Updated] In 2024, Instant Verbal to Written Conversion for Nothing</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-music-to-video-seamless-audio-import-for-inshot-for-2024/"><u>[Updated] Music to Video  Seamless Audio Import for InShot for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-navigating-final-cut-pro-with-ease-an-insiders-guide-for-2024/"><u>[Updated] Navigating Final Cut Pro with Ease  An Insider's Guide for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-vocal-variety-ventures-in-free-fire-play/"><u>[Updated] Vocal Variety Ventures in Free Fire Play</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-stream-control-tactics-10-ways-to-unwind-live-play/"><u>2024 Approved  Stream Control Tactics  10 Ways to Unwind Live Play</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-transfer-tactics-efficiently-getting-data-on-your-computer/"><u>2024 Approved  Transfer Tactics  Efficiently Getting Data On Your Computer</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/boosting-vimeo-content-delivery/"><u>Boosting Vimeo Content Delivery</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/effective-ways-to-fix-checkra1n-error-31-from-iphone-xr-by-drfone-ios/"><u>Effective Ways To Fix Checkra1n Error 31 From iPhone XR</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/giggle-factory-gratis-memo-makers-available-for-2024/"><u>Giggle Factory  Gratis Memo Makers Available for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-14-plus-without-losing-any-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone 14 Plus without Losing Any Data? | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-realme-gt-neo-5-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Realme GT Neo 5 | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/intel-wi-fi-6e-ac-9560-driver-software-download-and-upgrade-guide/"><u>Intel Wi-Fi 6E (AC 9560) Driver Software Download & Upgrade Guide</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/iphones-ultimate-video-capture-list/"><u>IPhone's Ultimate Video Capture List</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-temporal-and-spatial-shifts-in-filmmaking-for-2024/"><u>Mastering Temporal & Spatial Shifts in Filmmaking for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/pocket-sized-top-6-fb-lite-downloaders-for-2024/"><u>Pocket-Sized  Top 6 FB Lite Downloaders for 2024</u></a></li>
+</ul></div>
