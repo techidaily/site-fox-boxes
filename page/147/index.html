@@ -61,6 +61,63 @@
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-duotone-900.woff2" as="font" crossorigin type="font/woff2">
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-thin-100.woff2" as="font" crossorigin type="font/woff2">
 
+    <!-- tailwind.css -->
+    <script src="https://cloudflare-cdn.techidaily.com/js/libs/tailwindcss.v3.4.5.js" crossorigin></script> 
+    <script>
+    try {
+        tailwind.config = {
+          theme: {
+            extend: {
+              spacing: {
+                unit: "38px",
+              },
+              margin: {
+                "spacing-unit": "38px",
+              },
+              maxWidth: {
+                content: "1280px",
+                "has-toc-content": "120%",
+              },
+              zIndex: {
+                1: 1001,
+                2: 1002,
+                3: 1003,
+                4: 1004,
+                5: 1005,
+                6: 1006,
+                7: 1007,
+                8: 1008,
+                9: 1009,
+              },
+              borderRadius: {
+                none: "0px",
+                xsmall: "4px",
+                small: "9px",
+                medium: "14px",
+                large: "18px",
+                xlarge: "24px",
+                xxlarge: "48px",
+              },
+              fontFamily: {
+                chinese: ["sans-serif"],
+                english: ["Satoshi-Variable", "sans-serif"],
+                default: [
+                  "Satoshi-Variable",
+                  "system-ui",
+                  "sans-serif",
+                ],
+              },
+              fontSize: {
+                default: "16px"
+              },
+              lineHeight: {
+                default: "1.5"
+              }
+            }
+          }
+        }        
+    } catch (e) {}
+    </script>   
 
     <!--- Page Info-->
     
@@ -246,7 +303,7 @@
 
     <script id="hexo-configurations">
     window.config = {"hostname":"fox-boxes.techidaily.com","root":"/","language":"en"};
-    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1000px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1200px","pages":"1000px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
+    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1280px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1200px","pages":"1000px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
     window.lang_ago = {"second":"%s seconds ago","minute":"%s minutes ago","hour":"%s hours ago","day":"%s days ago","week":"%s weeks ago","month":"%s months ago","year":"%s years ago"};
     window.data = {"masonry":false};
   </script>
@@ -624,7 +681,7 @@
         <div class="label text-third-text-color text-sm">Categories</div>
     </div>
     <div class="item tag-count-item flex flex-col justify-center items-center w-20">
-        <div class="number text-2xl sm:text-xl text-second-text-color font-semibold">9755</div>
+        <div class="number text-2xl sm:text-xl text-second-text-color font-semibold">10210</div>
         <div class="label text-third-text-color text-sm">Posts</div>
     </div>
 </div>
@@ -665,7 +722,7 @@
         <div class="label text-third-text-color text-sm">Categories</div>
     </div>
     <div class="item tag-count-item flex flex-col justify-center items-center w-20">
-        <div class="number text-2xl sm:text-xl text-second-text-color font-semibold">9755</div>
+        <div class="number text-2xl sm:text-xl text-second-text-color font-semibold">10210</div>
         <div class="label text-third-text-color text-sm">Posts</div>
     </div>
 </div>
@@ -693,21 +750,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/updated-2024-approved-trusted-6-platforms-supporting-biz-success-stories/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/380105e59c8959c0073d444abec887193c4b497adc4a29c490c9f0b91ceeacb3.jpg" alt="&#34;[Updated] 2024 Approved  Trusted 6 Platforms Supporting Biz Success Stories&#34;" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/2024-approved-cinema-crafting-excellence-top-5-camera-skills-to-hone/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/b57bdcbb41c7763c82190be25c28d361f666df5033d9cd0a341320bf7b8e56fa.jpg" alt="2024 Approved Cinema Crafting Excellence Top 5 Camera Skills to Hone" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/updated-2024-approved-trusted-6-platforms-supporting-biz-success-stories/">
-                            &#34;[Updated] 2024 Approved  Trusted 6 Platforms Supporting Biz Success Stories&#34;
+                        <a href="/2024-approved-cinema-crafting-excellence-top-5-camera-skills-to-hone/">
+                            2024 Approved Cinema Crafting Excellence Top 5 Camera Skills to Hone
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>“This Article Describes [Updated] 2024 Approved: Trusted 6 Platforms Supporting Biz Success Stories”</p>
+                            <p>“This Article Describes 2024 Approved: Cinema Crafting Excellence: Top 5 Camera Skills to Hone”</p>
 
                         
                     </div>
@@ -715,9 +772,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Wed Aug 28 2024 11:50:31 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 01 2024 14:08:48 GMT+0800">
                 
-                    2024-08-28
+                    2024-09-01
                 
             </span>
         </span>
@@ -773,7 +830,7 @@
         
     </div>
 
-    <a href="/updated-2024-approved-trusted-6-platforms-supporting-biz-success-stories/">Read more<span class="seo-reader-text">&#34;[Updated] 2024 Approved  Trusted 6 Platforms Supporting Biz Success Stories&#34;</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/2024-approved-cinema-crafting-excellence-top-5-camera-skills-to-hone/">Read more<span class="seo-reader-text">2024 Approved Cinema Crafting Excellence Top 5 Camera Skills to Hone</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -789,21 +846,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/in-2024-transform-sluggish-to-speedy-on-android-vids/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/9506d7bd2cecec98495cc03f8d004c03b0c85881c0a7db857ddbaa57f04d4e15.jpg" alt="In 2024, Transform Sluggish to Speedy on Android Vids" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/updated-unveiling-the-art-of-hdr-photography-on-iphone-for-2024/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/cd3d45b359655445d3a3fddc84f4f42edd47a1ec876e69fbcc20cbbbf17a86ba.png" alt="[Updated] Unveiling the Art of HDR Photography on iPhone for 2024" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/in-2024-transform-sluggish-to-speedy-on-android-vids/">
-                            In 2024, Transform Sluggish to Speedy on Android Vids
+                        <a href="/updated-unveiling-the-art-of-hdr-photography-on-iphone-for-2024/">
+                            [Updated] Unveiling the Art of HDR Photography on iPhone for 2024
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes In 2024, Transform Sluggish to Speedy on Android Vids</p>
+                            <p>This Article Describes [Updated] Unveiling the Art of HDR Photography on iPhone for 2024</p>
 
                         
                     </div>
@@ -811,9 +868,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Wed Aug 28 2024 11:50:30 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 01 2024 14:08:47 GMT+0800">
                 
-                    2024-08-28
+                    2024-09-01
                 
             </span>
         </span>
@@ -869,7 +926,7 @@
         
     </div>
 
-    <a href="/in-2024-transform-sluggish-to-speedy-on-android-vids/">Read more<span class="seo-reader-text">In 2024, Transform Sluggish to Speedy on Android Vids</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/updated-unveiling-the-art-of-hdr-photography-on-iphone-for-2024/">Read more<span class="seo-reader-text">[Updated] Unveiling the Art of HDR Photography on iPhone for 2024</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -885,21 +942,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/the-transformative-role-of-luts-in-visual-artistry-for-2024/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/54fd3e003b786647a6f1d7a89a0a9ff3e56e44f972b8ef6e36ebd7fc54a18cb3.jpg" alt="The Transformative Role of LUTs in Visual Artistry for 2024" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/updated-the-artisans-handbook-to-photomontage-creation-for-2024/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db9f5a34232b56c8f050ef2ce.jpg" alt="[Updated] The Artisan&#39;s Handbook to PhotoMontage Creation for 2024" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/the-transformative-role-of-luts-in-visual-artistry-for-2024/">
-                            The Transformative Role of LUTs in Visual Artistry for 2024
+                        <a href="/updated-the-artisans-handbook-to-photomontage-creation-for-2024/">
+                            [Updated] The Artisan&#39;s Handbook to PhotoMontage Creation for 2024
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes The Transformative Role of LUTs in Visual Artistry for 2024</p>
+                            <p>This Article Describes [Updated] The Artisan’s Handbook to PhotoMontage Creation for 2024</p>
 
                         
                     </div>
@@ -907,9 +964,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Wed Aug 28 2024 11:50:29 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 01 2024 14:08:46 GMT+0800">
                 
-                    2024-08-28
+                    2024-09-01
                 
             </span>
         </span>
@@ -965,7 +1022,7 @@
         
     </div>
 
-    <a href="/the-transformative-role-of-luts-in-visual-artistry-for-2024/">Read more<span class="seo-reader-text">The Transformative Role of LUTs in Visual Artistry for 2024</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/updated-the-artisans-handbook-to-photomontage-creation-for-2024/">Read more<span class="seo-reader-text">[Updated] The Artisan&#39;s Handbook to PhotoMontage Creation for 2024</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -981,21 +1038,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/in-2024-a-drones-leap-into-clarity-q500-reviewed/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/267d92bf94270151f5bfac8360b3ac61e42f156ac8997243316d48f1378e1df1.jpg" alt="&#34;In 2024, A Drone&#39;s Leap Into Clarity - Q500 Reviewed&#34;" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/updated-2024-approved-evaluating-video-space-on-a-64gb-card/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/7e038d9e1eb98894fb3abf6a7f282bd0c462456694222e012226efef555d04fe.jpg" alt="[Updated] 2024 Approved Evaluating Video Space on a 64GB Card" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/in-2024-a-drones-leap-into-clarity-q500-reviewed/">
-                            &#34;In 2024, A Drone&#39;s Leap Into Clarity - Q500 Reviewed&#34;
+                        <a href="/updated-2024-approved-evaluating-video-space-on-a-64gb-card/">
+                            [Updated] 2024 Approved Evaluating Video Space on a 64GB Card
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>“This Article Describes In 2024, A Drone’s Leap Into Clarity - Q500 Reviewed”</p>
+                            <p>“This Article Describes [Updated] 2024 Approved: Evaluating Video Space on a 64GB Card”</p>
 
                         
                     </div>
@@ -1003,9 +1060,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Wed Aug 28 2024 11:50:27 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 01 2024 14:08:45 GMT+0800">
                 
-                    2024-08-28
+                    2024-09-01
                 
             </span>
         </span>
@@ -1061,7 +1118,7 @@
         
     </div>
 
-    <a href="/in-2024-a-drones-leap-into-clarity-q500-reviewed/">Read more<span class="seo-reader-text">&#34;In 2024, A Drone&#39;s Leap Into Clarity - Q500 Reviewed&#34;</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/updated-2024-approved-evaluating-video-space-on-a-64gb-card/">Read more<span class="seo-reader-text">[Updated] 2024 Approved Evaluating Video Space on a 64GB Card</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1077,21 +1134,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/in-2024-ultimate-tutorial-for-full-utilization-of-final-cut-pro/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/445acff3cb96c7fdb86bf94a45c03c504df7c348a8d93fea013a39cba2a1ab43.jpg" alt="In 2024, Ultimate Tutorial for Full Utilization of Final Cut Pro" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/push-the-limits-a-review-of-lgs-27uhd68-freesync-display-for-2024/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/4d762caa04f98755e083fa6f19084871af3024b44e5497cff1919865c9f50ec3.jpg" alt="Push the Limits A Review of LG’s 27UHD68 FreeSync Display for 2024" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/in-2024-ultimate-tutorial-for-full-utilization-of-final-cut-pro/">
-                            In 2024, Ultimate Tutorial for Full Utilization of Final Cut Pro
+                        <a href="/push-the-limits-a-review-of-lgs-27uhd68-freesync-display-for-2024/">
+                            Push the Limits A Review of LG’s 27UHD68 FreeSync Display for 2024
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes In 2024, Ultimate Tutorial for Full Utilization of Final Cut Pro</p>
+                            <p>“This Article Describes Push the Limits: A Review of LG’s 27UHD68 FreeSync Display for 2024”</p>
 
                         
                     </div>
@@ -1099,9 +1156,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Wed Aug 28 2024 11:50:26 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 01 2024 14:08:44 GMT+0800">
                 
-                    2024-08-28
+                    2024-09-01
                 
             </span>
         </span>
@@ -1157,7 +1214,7 @@
         
     </div>
 
-    <a href="/in-2024-ultimate-tutorial-for-full-utilization-of-final-cut-pro/">Read more<span class="seo-reader-text">In 2024, Ultimate Tutorial for Full Utilization of Final Cut Pro</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/push-the-limits-a-review-of-lgs-27uhd68-freesync-display-for-2024/">Read more<span class="seo-reader-text">Push the Limits A Review of LG’s 27UHD68 FreeSync Display for 2024</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1173,21 +1230,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/updated-illuminating-the-path-from-auto-to-4th-gen-hdr-shooting/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/cdf09465082716a317b2f16f4ef99338eb56d0b864c0910b3b97914866d756b0.jpg" alt="[Updated] Illuminating the Path From Auto to 4Th Gen HDR Shooting" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/new-eizos-masterpiece-delving-into-the-world-of-4k-cg318-4k-for-2024/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/3df80ed0f3ba1234db4e3fe9b6b618140f5c8ecbd00a02e86f21f161aa5eef49.jpg" alt="[New] EIZO&#39;s Masterpiece Delving Into the World of 4K CG318-4K for 2024" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/updated-illuminating-the-path-from-auto-to-4th-gen-hdr-shooting/">
-                            [Updated] Illuminating the Path From Auto to 4Th Gen HDR Shooting
+                        <a href="/new-eizos-masterpiece-delving-into-the-world-of-4k-cg318-4k-for-2024/">
+                            [New] EIZO&#39;s Masterpiece Delving Into the World of 4K CG318-4K for 2024
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes [Updated] Illuminating the Path From Auto to 4Th Gen HDR Shooting</p>
+                            <p>“This Article Describes [New] EIZO’s Masterpiece: Delving Into the World of 4K CG318-4K for 2024”</p>
 
                         
                     </div>
@@ -1195,9 +1252,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Wed Aug 28 2024 11:50:25 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 01 2024 14:08:43 GMT+0800">
                 
-                    2024-08-28
+                    2024-09-01
                 
             </span>
         </span>
@@ -1253,7 +1310,7 @@
         
     </div>
 
-    <a href="/updated-illuminating-the-path-from-auto-to-4th-gen-hdr-shooting/">Read more<span class="seo-reader-text">[Updated] Illuminating the Path From Auto to 4Th Gen HDR Shooting</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/new-eizos-masterpiece-delving-into-the-world-of-4k-cg318-4k-for-2024/">Read more<span class="seo-reader-text">[New] EIZO&#39;s Masterpiece Delving Into the World of 4K CG318-4K for 2024</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1269,21 +1326,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/new-master-the-art-of-canvas-with-these-top-10-secrets-for-2024/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/9e9b99a6d9a89547d11f6e0d3b7ad397a8c45980a1b807a51ada942660956a43.jpg" alt="[New] Master the Art of Canvas with These Top 10 Secrets for 2024" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/in-2024-tap-into-the-latest-gaming-and-app-splash-of-win11/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/a6435a313e4469213bebd5ae38a7530a7b0364be00feda91bc9b60c48edb8ed3.jpg" alt="In 2024, Tap Into the Latest Gaming and App Splash of Win11" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/new-master-the-art-of-canvas-with-these-top-10-secrets-for-2024/">
-                            [New] Master the Art of Canvas with These Top 10 Secrets for 2024
+                        <a href="/in-2024-tap-into-the-latest-gaming-and-app-splash-of-win11/">
+                            In 2024, Tap Into the Latest Gaming and App Splash of Win11
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes [New] Master the Art of Canvas with These Top 10 Secrets for 2024</p>
+                            <p>This Article Describes In 2024, Tap Into the Latest Gaming and App Splash of Win11</p>
 
                         
                     </div>
@@ -1291,9 +1348,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Wed Aug 28 2024 11:50:24 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 01 2024 14:08:41 GMT+0800">
                 
-                    2024-08-28
+                    2024-09-01
                 
             </span>
         </span>
@@ -1349,7 +1406,7 @@
         
     </div>
 
-    <a href="/new-master-the-art-of-canvas-with-these-top-10-secrets-for-2024/">Read more<span class="seo-reader-text">[New] Master the Art of Canvas with These Top 10 Secrets for 2024</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/in-2024-tap-into-the-latest-gaming-and-app-splash-of-win11/">Read more<span class="seo-reader-text">In 2024, Tap Into the Latest Gaming and App Splash of Win11</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1365,21 +1422,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/new-the-ultimate-guide-to-free-stunning-photographs-for-2024/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/f8d5308a72df2042f1308b78dc1efb598f7f3491c673912341c93c2d4c06d1ec.jpg" alt="[New] The Ultimate Guide to Free, Stunning Photographs for 2024" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/2024-approved-4k-innovation-top-10-mac-compatible-displays/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/c01f488742f525379e15c90538d56863d279883606cc35ff29b3863a4d78b16e.jpg" alt="2024 Approved 4K Innovation Top 10 Mac-Compatible Displays" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/new-the-ultimate-guide-to-free-stunning-photographs-for-2024/">
-                            [New] The Ultimate Guide to Free, Stunning Photographs for 2024
+                        <a href="/2024-approved-4k-innovation-top-10-mac-compatible-displays/">
+                            2024 Approved 4K Innovation Top 10 Mac-Compatible Displays
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes [New] The Ultimate Guide to Free, Stunning Photographs for 2024</p>
+                            <p>“This Article Describes 2024 Approved: 4K Innovation: Top 10 Mac-Compatible Displays”</p>
 
                         
                     </div>
@@ -1387,9 +1444,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Wed Aug 28 2024 11:50:23 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 01 2024 14:08:40 GMT+0800">
                 
-                    2024-08-28
+                    2024-09-01
                 
             </span>
         </span>
@@ -1445,7 +1502,7 @@
         
     </div>
 
-    <a href="/new-the-ultimate-guide-to-free-stunning-photographs-for-2024/">Read more<span class="seo-reader-text">[New] The Ultimate Guide to Free, Stunning Photographs for 2024</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/2024-approved-4k-innovation-top-10-mac-compatible-displays/">Read more<span class="seo-reader-text">2024 Approved 4K Innovation Top 10 Mac-Compatible Displays</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1461,21 +1518,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/new-2024-approved-rapid-revamp-top-8-video-speed-enhancers-for-android/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/1a9ff9a0df36e63422a5b90ac24e55bb1f02f4633cff516b42a4d7954e71a5e9.jpg" alt="&#34;[New] 2024 Approved  Rapid Revamp  Top 8 Video Speed Enhancers for Android&#34;" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/2024-approved-10-ultimate-websites-for-stunning-hdr-skies/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb44504b07d25f967a878becd.png" alt="2024 Approved 10 Ultimate Websites for Stunning HDR Skies" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/new-2024-approved-rapid-revamp-top-8-video-speed-enhancers-for-android/">
-                            &#34;[New] 2024 Approved  Rapid Revamp  Top 8 Video Speed Enhancers for Android&#34;
+                        <a href="/2024-approved-10-ultimate-websites-for-stunning-hdr-skies/">
+                            2024 Approved 10 Ultimate Websites for Stunning HDR Skies
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>“This Article Describes [New] 2024 Approved: Rapid Revamp: Top 8 Video Speed Enhancers for Android”</p>
+                            <p>“This Article Describes 2024 Approved: 10 Ultimate Websites for Stunning HDR Skies”</p>
 
                         
                     </div>
@@ -1483,9 +1540,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Wed Aug 28 2024 11:50:22 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 01 2024 14:08:39 GMT+0800">
                 
-                    2024-08-28
+                    2024-09-01
                 
             </span>
         </span>
@@ -1541,7 +1598,7 @@
         
     </div>
 
-    <a href="/new-2024-approved-rapid-revamp-top-8-video-speed-enhancers-for-android/">Read more<span class="seo-reader-text">&#34;[New] 2024 Approved  Rapid Revamp  Top 8 Video Speed Enhancers for Android&#34;</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/2024-approved-10-ultimate-websites-for-stunning-hdr-skies/">Read more<span class="seo-reader-text">2024 Approved 10 Ultimate Websites for Stunning HDR Skies</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1557,21 +1614,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/updated-the-future-of-flight-hubsans-revolutionary-h501s-explored-for-2024/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/cd1e0583a3f82954a7a1df94033dc0576cc47353ebb15c30e049205c45a363ba.jpg" alt="&#34;[Updated] The Future of Flight - Hubsan&#39;s Revolutionary H501S Explored for 2024&#34;" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/2023s-premier-action-cameras-on-motorcycle-gear-guide/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/bb9708a331c4c3dd31e799c079bb73652a9e75d1a08dd178d051b1af275cc7e6.jpg" alt="2023&#39;S Premier Action Cameras on Motorcycle Gear Guide" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/updated-the-future-of-flight-hubsans-revolutionary-h501s-explored-for-2024/">
-                            &#34;[Updated] The Future of Flight - Hubsan&#39;s Revolutionary H501S Explored for 2024&#34;
+                        <a href="/2023s-premier-action-cameras-on-motorcycle-gear-guide/">
+                            2023&#39;S Premier Action Cameras on Motorcycle Gear Guide
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>“This Article Describes [Updated] The Future of Flight - Hubsan’s Revolutionary H501S Explored for 2024”</p>
+                            <p>This Article Describes 2023’S Premier Action Cameras on Motorcycle Gear Guide</p>
 
                         
                     </div>
@@ -1579,9 +1636,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Wed Aug 28 2024 11:50:21 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 01 2024 14:08:38 GMT+0800">
                 
-                    2024-08-28
+                    2024-09-01
                 
             </span>
         </span>
@@ -1637,7 +1694,7 @@
         
     </div>
 
-    <a href="/updated-the-future-of-flight-hubsans-revolutionary-h501s-explored-for-2024/">Read more<span class="seo-reader-text">&#34;[Updated] The Future of Flight - Hubsan&#39;s Revolutionary H501S Explored for 2024&#34;</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/2023s-premier-action-cameras-on-motorcycle-gear-guide/">Read more<span class="seo-reader-text">2023&#39;S Premier Action Cameras on Motorcycle Gear Guide</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1647,7 +1704,7 @@
 
     <div class="home-paginator px-7 py-5">
         <div class="paginator">
-    <a class="extend prev" rel="prev" href="/page/146/"><i class="fa-regular fa-angle-left"></i></a><a class="page-number" href="/">1</a><span class="space">&hellip;</span><a class="page-number" href="/page/145/">145</a><a class="page-number" href="/page/146/">146</a><span class="page-number current">147</span><a class="page-number" href="/page/148/">148</a><a class="page-number" href="/page/149/">149</a><span class="space">&hellip;</span><a class="page-number" href="/page/976/">976</a><a class="extend next" rel="next" href="/page/148/"><i class="fa-regular fa-angle-right"></i></a>
+    <a class="extend prev" rel="prev" href="/page/146/"><i class="fa-regular fa-angle-left"></i></a><a class="page-number" href="/">1</a><span class="space">&hellip;</span><a class="page-number" href="/page/145/">145</a><a class="page-number" href="/page/146/">146</a><span class="page-number current">147</span><a class="page-number" href="/page/148/">148</a><a class="page-number" href="/page/149/">149</a><span class="space">&hellip;</span><a class="page-number" href="/page/1021/">1021</a><a class="extend next" rel="next" href="/page/148/"><i class="fa-regular fa-angle-right"></i></a>
 </div>
 
     </div>
