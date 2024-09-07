@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Most Memorable 2022 Ice Sculpture Moves for 2024"
-date: 2024-07-13T20:56:37.540Z
-updated: 2024-07-14T20:56:37.540Z
+date: 2024-09-06T04:25:36.811Z
+updated: 2024-09-07T04:25:36.811Z
 tags: 
   - screen-recording
   - ai video
@@ -22,6 +22,12 @@ Winter Olympics is synonymous with Figure Skating as it is the oldest sports eve
 
 Nathan Chen of the United States won the gold medal at the 2022 Beijing Winter Olympics. Yuma Kagiyama of Japan won the silver medal while the bronze medal went to Shoma Uno in Men's singles figure skating competition. On the other hand, the gold medal of the team event went to ROC while the silver medal went to United Stated and the bronze medal went to Japan. Here are all the figure skating highlights 2022 Beijing Winter Olympics. We will also illustrate how to create the highlights of figure skating in a video in simple steps.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1\. Highlights of Figure Skating Olympics Games Beijing2022
 
 In Olympic competition, skaters need to perform two minutes and 40 seconds short program and four minutes free skate and the winner is decided based on combined score.
@@ -34,27 +40,36 @@ Nathan Chen of the United States reacts to winning the gold medal at the 2022 Be
 
 ![nathan chen skating gold medal](https://images.wondershare.com/filmora/article-images/nathan-chen-skating-gold-medal.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United States. He receives a combined score of 310.05 points and wins the silver medal at the 2022 Beijing Winter Olympics.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![yuma kagiyama](https://images.wondershare.com/filmora/article-images/yuma-kagiyama.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Shoma Uno of Japan won the bronze medal with a combined score of 293 points and he has become the second Japanese to win a medal at the 2022 Beijing Winter Olympics.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![shoma uno](https://images.wondershare.com/filmora/article-images/shoma-uno.jpg)
 
 Nathan Chen successful triumph has been four years in the making and it is a perfect combination of seven perfect skating minutes. Back at 2018 Olympics, he botched and ended with disappointment. Therefore, Olympics Games Beijing2022 has been redemption for America's best male skater.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![nathan chen best male skater](https://images.wondershare.com/filmora/article-images/nathan-chen-best-male-skater.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Even though Nathan Chen finished first for men's short program of the team event, United States could not hold to the first position and losing to ROC.
 
 ![russian olympic committee athletes](https://images.wondershare.com/filmora/article-images/russian-olympic-committee-athletes.jpg)
@@ -85,21 +100,36 @@ Step 1: Download and install Filmora. Launch Filmora and click on New Project.
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Step 2: Go to File > Project Settings and set the parameters as per your requirements.
 
 Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all the still photos and video footage clips you have collected about figure skating Olympics. You can trim them and maintain uniformity throughout.
 
 ![filmora edit videos](https://images.wondershare.com/filmora/article-images/edit-recordings-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Step 4: You need to add all imported media files to Video Timeline while you should add background music or voiceover to the Audio Timeline.
 
 Step 5: Select individual or multiple slides and add Transitions, Effects, Titles and Elements.
 
 Step 6: When everything is done, click on Export to save the video and share anywhere you want.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 Figure skating is undoubtedly one of the most followed sport events in the Winter Olympics. Naturally, there is a huge demand for figure skating highlights across the Winter Olympics fans and followers. We have provided figure skating highlights 2022 and we have illustrated the steps to create a highlight video of figure skating easily.
@@ -124,3 +154,36 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-professional-slideshow-creation-made-easy-and-free/"><u>[New] 2024 Approved Professional Slideshow Creation Made Easy & Free</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-virtual-frontiers-current-trends-in-vr-tech/"><u>[New] 2024 Approved Virtual Frontiers Current Trends in VR Tech</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-capturing-the-journey-a-camera-buyers-guide/"><u>[New] Capturing the Journey A Camera Buyer's Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-diving-into-virtual-worlds-iphone-vr-viewing-101-for-2024/"><u>[New] Diving Into Virtual Worlds IPhone VR Viewing 101 for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-top-15-snapchat-post-tips-for-max-impact/"><u>[New] In 2024, Top 15 Snapchat Post Tips for Max Impact</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-innovative-groups-shaping-future-of-vr-worlds-for-2024/"><u>[New] Innovative Groups Shaping Future of VR Worlds for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-understanding-luts-transforming-images-magic/"><u>[New] Understanding LUTs Transforming Images Magic</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-swift-windows-document-reviewing-techniques/"><u>[Updated] 2024 Approved Swift Windows Document Reviewing Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-boosting-gopro-power-endurance-tips-and-tricks-for-2024/"><u>[Updated] Boosting GoPro Power Endurance Tips & Tricks for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-high-end-computers-a-showcase-of-excellence-for-2024/"><u>[Updated] High-End Computers A Showcase of Excellence for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-meme-mastery-top-ten-template-treasures/"><u>[Updated] In 2024, Meme Mastery Top Ten Template Treasures</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-perfectly-preserve-and-profitably-play-your-phones-gifs/"><u>[Updated] In 2024, Perfectly Preserve and Profitably Play Your Phone's GIFs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-quick-route-to-true-profile-ages-on-tiktok/"><u>[Updated] In 2024, The Quick Route to True Profile Ages on TikTok</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-unveiling-instagrams-background-replace-technique/"><u>[Updated] In 2024, Unveiling Instagram’s Background Replace Technique</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-vives-ultimate-virtual-journey-unparalleled-immersion/"><u>[Updated] In 2024, Vive's Ultimate Virtual Journey Unparalleled Immersion</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-mastering-the-process-essential-techniques-and-strategies-for-green-screen-filmmaking-for-2024/"><u>[Updated] Mastering the Process Essential Techniques & Strategies for Green Screen Filmmaking for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-transform-your-digital-assets-top-7-tools-to-create-nfts/"><u>[Updated] Transform Your Digital Assets - Top 7 Tools to Create NFTs</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/bandicam-uncovered-a-critical-review-for-tech-enthusiasts/"><u>Bandicam Uncovered A Critical Review for Tech Enthusiasts</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/best-free-online-face-generators-for-2024/"><u>Best Free Online Face Generators for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/essential-guide-to-microsoft-works-on-windows-latest-editions/"><u>Essential Guide to Microsoft Works on Windows Latest Editions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/googles-augmented-reality-stickers-an-in-depth-look-and-alternatives/"><u>Google's Augmented Reality Stickers An In-Depth Look and Alternatives</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-elite-writers-of-aural-narratives/"><u>In 2024, Elite Writers of Aural Narratives</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-ushering-bliss-into-your-unboxing-experience/"><u>In 2024, Ushering Bliss Into Your Unboxing Experience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/mastering-fpv-drones-picking-perfect-propellers/"><u>Mastering FPV Drones Picking Perfect Propellers</u></a></li>
+<li><a href="https://win-able.techidaily.com/overcome-ghost-recon-breakpoints-stability-issues-quickly-and-easily-uncovered-here/"><u>Overcome Ghost Recon: Breakpoint's Stability Issues Quickly & Easily Uncovered Here</u></a></li>
+<li><a href="https://media-tips.techidaily.com/quick-guide-to-p2-format-converters-switching-from-proprietary-p2-to-widely-used-video-formats-such-as-mp4-mov-avi-and-wmv/"><u>Quick Guide to P2 Format Converters: Switching From Proprietary P2 to Widely-Used Video Formats Such as MP4, MOV, AVI, and WMV</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/solutions-to-mitigate-vibrational-jello-in-uav-recordings-for-2024/"><u>Solutions to Mitigate Vibrational Jello in UAV Recordings for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-itel-s23plus-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Itel S23+ | Dr.fone</u></a></li>
+<li><a href="https://solve-help.techidaily.com/transforming-vob-files-into-mp4-format-a-step-by-step-guide-for-windows-11-and-macos/"><u>Transforming VOB Files Into MP4 Format: A Step-by-Step Guide for Windows 11 and macOS</u></a></li>
+</ul></div>
