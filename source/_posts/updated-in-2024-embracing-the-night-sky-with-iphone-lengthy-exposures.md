@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Embracing the Night Sky with iPhone Lengthy Exposures"
-date: 2024-07-13T20:48:33.698Z
-updated: 2024-07-14T20:48:33.698Z
+date: 2024-09-11T07:05:53.415Z
+updated: 2024-09-12T07:05:53.415Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/742c07b37bc56bb3aebc8573a3c5f52e5aeacf6ca
 
 # How to Take Long Exposure Shots with iPhone in iOS 11 or previous
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -40,20 +37,59 @@ thumbnail: https://thmb.techidaily.com/742c07b37bc56bb3aebc8573a3c5f52e5aeacf6ca
 
  When you take long exposure shots using a digital SLR, the physical shutter which captures the image stays open for longer. You can also fiddle with the aperture size, to make it easier to capture these images in different light levels. This process is meticulously replicated by the iPhone's newest Photos app, so if you're already on iOS 11, here's how to use it:
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Users on iOS 11
 
  First of all, make sure Live Photos is switched on. Within the camera app, simply tap the circular button in the middle of the top menu bar to turn it on. Once activated, the button will turn yellow and the 'live' notification will be shown on screen.
 
 ![take-live-photo-on-iphone](https://images.wondershare.com/filmora/article-images/take-live-photo-on-iphone.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  Image resource: imore
 
  Next, take a live photo. This is a moving image, a bit like recording with your video camera, but much shorter. Try to keep the iPhone steady as you take your shot, and choose to shoot something that is continually moving, but with a relatively stable background. Something like cars going down a street is a great place to start.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![long-exposure-effect-iphone](https://images.wondershare.com/filmora/article-images/long-exposure-effect-iphone.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  Image resource: iPhoneMod
 
@@ -78,22 +114,61 @@ thumbnail: https://thmb.techidaily.com/742c07b37bc56bb3aebc8573a3c5f52e5aeacf6ca
 
  This feature is one of the most exciting and interesting uses of Live Photos to date, and is well worth checking out if you haven't done so already.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### What should you capture with your long exposure iPhone shots?
 
  Long exposure shots are magical, giving a dreamy, almost ethereal quality to everyday situations. No doubt you'll find your own amazing things to shoot, but to get you started, why not try a long exposure iPhone shot of:
 
 * **Flowing water:** Live near a river or, even better, by the ocean? Perfect, because moving water can become truly enchanting when shot on long exposure. Play around with the time of day, light available and exposure length to capture some really gorgeous scenes.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![flowing-water-long-exposure](https://images.wondershare.com/filmora/article-images/flowing-water-long-exposure.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  Image resource: Photography Mad
 
 * **Light trails:** Light is everywhere, and if you take your iPhone camera long exposure trick out of the house at night, you'll find some amazing opportunities to shoot. Cars on the highway, Ferris wheels at the fair and even the stars in the sky can become something amazing with a longer exposure.
 
 ![long-trails-exposure](https://images.wondershare.com/filmora/article-images/long-trails-exposure.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  Image resource: WallDevil
 
@@ -111,9 +186,6 @@ thumbnail: https://thmb.techidaily.com/742c07b37bc56bb3aebc8573a3c5f52e5aeacf6ca
 
  Play around, try different things and get to know how variations in settings can change the outcome of your shots. Tinkering with exposure length is great fun, and will almost certainly result in some totally Facebook-worthy additions to your gallery.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## To conclude
 
  Using a digital SLR is looking less and less appealing these days, as Apple push the boundaries of what a phone can do ever further. If you're not using a device that supports Live Photos, try a workaround using a specifically developed app so that you can join in the fun too.
@@ -144,6 +216,52 @@ Follow @Ollie Mattison
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-audiovisual-harmony-music-integration-in-social-media/"><u>[New] 2024 Approved Audiovisual Harmony Music Integration in Social Media</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-complete-guide-to-video-studios-focusing-on-xvideo/"><u>[New] Complete Guide to Video Studios Focusing on XVideo</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nline-viewers-count-counter-for-2024/"><u>[New] Online Viewers Count Counter for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-acid-pro-overview-plus-best-software-match-ups/"><u>2024 Approved ACID Pro Overview + Best Software Match-Ups</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-aurora-hdr-reviews-is-aurora-hdr-a-good-choice/"><u>2024 Approved Aurora HDR Reviews Is Aurora HDR a Good Choice ?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-best-5-apple-podcast-services-for-ios-users/"><u>2024 Approved Best 5 Apple Podcast Services for iOS Users</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-budget-buyers-guide-to-drone-tech-under-100/"><u>2024 Approved Budget Buyers' Guide to Drone Tech Under $100</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-comprehensible-guide-for-novices-crafting-professional-tiktok-edits/"><u>2024 Approved Comprehensible Guide for Novices Crafting Professional TikTok Edits</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-cutting-edge-engines-the-quintessential-qxp-motors-guide/"><u>2024 Approved Cutting-Edge Engines The Quintessential QXP Motors Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-engaging-with-top-companies-on-linkedin/"><u>2024 Approved Engaging with Top Companies on LinkedIn</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-essential-steps-to-a-successful-vlog/"><u>2024 Approved Essential Steps to a Successful Vlog</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-mastering-premiere-pro-fullscreen-mode-essentials/"><u>2024 Approved Mastering Premiere Pro Fullscreen Mode Essentials</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-pioneering-filmmakers-top-7-color-grading-hacks/"><u>2024 Approved Pioneering Filmmakers' Top 7 Color Grading Hacks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-step-by-step-guide-how-to-catch-every-thrilling-moment-in-cricket/"><u>2024 Approved Step-by-Step Guide How to Catch Every Thrilling Moment in Cricket</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-top-8-recommended-free-srt-translation-websites-expert-selections/"><u>2024 Approved Top 8 Recommended Free SRT Translation Websites Expert Selections</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-top-9-iphone-tools-expertly-watermarking-your-pics/"><u>2024 Approved Top 9 iPhone Tools Expertly Watermarking Your Pics</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-traversing-through-windows-movie-makers-version-landscape/"><u>2024 Approved Traversing Through Windows Movie Maker's Version Landscape</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unveiling-the-secret-seeing-popular-youtube-reactions/"><u>2024 Approved Unveiling the Secret Seeing Popular YouTube Reactions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-z2-mobile-a-cutting-edge-device-analysis/"><u>2024 Approved Z2 Mobile A Cutting-Edge Device Analysis</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/5-esteemed-platforms-for-easy-text-effect-implementation/"><u>5 Esteemed Platforms for Easy Text Effect Implementation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/accelerate-document-creation-learning-ms-words-speech-feature-for-2024/"><u>Accelerate Document Creation Learning MS Word's Speech Feature for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/best-free-webm-players-how-to-play-webm-video-files-in-2024/"><u>Best Free WebM Players How to Play WebM Video Files, In 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/bestow-photographic-frames-with-outer-radial-smearing-for-2024/"><u>Bestow Photographic Frames with Outer Radial Smearing for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-oppo-reno-9a-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Oppo Reno 9A</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/chime-chronicles-compilation-of-top-ringtone-sources/"><u>Chime Chronicles Compilation of Top Ringtone Sources</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/complete-breakdown-the-android-adaptation-of-lightroom-app/"><u>Complete Breakdown The Android Adaptation of Lightroom App</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/complete-circular-camera-investigation/"><u>Complete Circular Camera Investigation</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-google-pixel-8-pro-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Google Pixel 8 Pro Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-comprehensive-instructions-for-disposing-of-video-downloads/"><u>In 2024, Comprehensive Instructions for Disposing of Video Downloads</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-maximizing-engagement-best-video-optimizers/"><u>In 2024, Maximizing Engagement Best Video Optimizers</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-oneplus-11-5g-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for OnePlus 11 5G Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-nokia-g310-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Nokia G310 | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unlock-fun-learning-find-your-kids-favorite-free-pre-k-gaming-platforms/"><u>Unlock Fun Learning: Find Your Kid’s Favorite Free Pre-K Gaming Platforms</u></a></li>
+<li><a href="https://windows11.techidaily.com/windows-dormancy-practical-tips-and-tricks/"><u>Windows Dormancy: Practical Tips & Tricks</u></a></li>
+</ul></div>
 
 
 

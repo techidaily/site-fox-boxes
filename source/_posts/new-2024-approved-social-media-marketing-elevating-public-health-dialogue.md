@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Social Media Marketing  Elevating Public Health Dialogue\""
-date: 2024-09-06T04:34:04.695Z
-updated: 2024-09-07T04:34:04.695Z
+date: 2024-09-11T07:08:12.353Z
+updated: 2024-09-12T07:08:12.353Z
 tags: 
   - screen-recording
   - ai video
@@ -22,24 +22,26 @@ As you know, Facebook is one of the most popular social media platforms in the w
 
 ![med and health fb ads](https://images.wondershare.com/filmora/article-images/2022/07/med-and-health-fb-ads.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Facebook is very strict in advertising health and medical products or services because these products can be potentially harmful to users. Facebook wants to ensure that users are safe and that any health and medical products or services promoted on the platform are legitimate and effective.
 
 If you are a health or medical business, it's important to be aware of Facebook's policies before promoting your products or services. Otherwise, your account may be restricted or even banned.
 
 In this article, we'll go over everything you need to know about promoting health and medical products or services on Facebook. I'll also give you some tips on how to avoid getting your account restricted.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Facebook Ads Policy for Medical and Health Products/Services
 
 **Medical and Health Products:** Ads for medical and healthcare goods are generally permitted provided that they do not create negative self-perception or exaggerated claims, and that they comply with other relevant regulations (for example, Personal Health, Promotion of Prescription Drugs, and Unsafe Substances).
@@ -53,6 +55,20 @@ Additionally, advertisements must not make any deceptive, fraudulent, or incorre
 **Commerce Policy:** Facebook don't allow listings to promote the sale of any pharmaceuticals or medical services, such as prescription drugs and ingestible supplements.
 
 ![facebook ads policy](https://images.wondershare.com/filmora/article-images/2022/07/facebook-ads-policy.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Here are the banned and restricted products you can't advertise on Facebook
 
@@ -91,16 +107,44 @@ Additionally, advertisements must not make any deceptive, fraudulent, or incorre
 33. Unsafe Supplements
 34. Binary Options
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Getting Your Facebook Account Restricted
 
 ![facebook ads restricted](https://images.wondershare.com/filmora/article-images/2022/07/facebook-ads-restricted.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 If you violate any of Facebook's advertising policies, your account may be restricted. This means that you won't be able to run ads on Facebook or use your Facebook Page to promote your business.
 
 There are a few things that can get your account restricted, such as:
@@ -114,22 +158,24 @@ If your account is restricted, you'll see a message from Facebook when you try t
 
 To get your account reinstated, you'll need to submit an appeal to Facebook. You can do this by following the instructions in the message from Facebook. If your appeal is successful, your account will be reinstated and you'll be able to run ads on Facebook again.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Tips for Avoiding Getting Your Facebook Account Restricted
 
 ![get facebook ads right](https://images.wondershare.com/filmora/article-images/2022/07/get-facebook-ads-right.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Here are some tips that will help you avoid getting your Facebook account restricted:
 
 1. **Know the policies:** Familiarize yourself with Facebook's advertising policies so that you know what is and isn't allowed. This will help you avoid accidentally violate any of the policies.
@@ -162,12 +208,20 @@ Be aware that Facebook has restrictions on the use of certain images in ads. If 
 
 By following these tips, you can avoid getting your Facebook account restricted.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## How to Reduce the Number of Disapproved Ads
 
 * Review Facebook's advertising policies and make sure that your ads comply with them.

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] GoPro Karma Drone Review"
-date: 2024-07-13T20:48:30.486Z
-updated: 2024-07-14T20:48:30.486Z
+date: 2024-09-11T07:05:49.373Z
+updated: 2024-09-12T07:05:49.373Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/ff8e499dfacbb3f8c53c52b2127d34f19a999ba4d
 
 # GoPro Karma Drone Review
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -31,9 +28,6 @@ thumbnail: https://thmb.techidaily.com/ff8e499dfacbb3f8c53c52b2127d34f19a999ba4d
 
  The GoPro Karma is this second or [GoPro](https://tools.techidaily.com/wondershare/filmora/download/) has created and hopefully a much more refined version than the drones that GoPro first launched in October. The original version of the Karma drone was recalled just 16 days after its initial launch when many drones were losing connection and battery power at certain altitudes. GoPro discovered a fault with the battery popping out of place causing immediate power loss and returns the drone to the drawing board to produce improved versions of the device for release.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![gopro karma](https://images.wondershare.com/filmora/article-images/gopro-karma.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01N5V4HKQ/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01N5V4HKQ&linkId=62a69de1ac6675d917158fa1421eceee)
@@ -42,9 +36,20 @@ thumbnail: https://thmb.techidaily.com/ff8e499dfacbb3f8c53c52b2127d34f19a999ba4d
 
  Apart from the battery latch, GoPro introduced auxiliary features such as a tilted horizon line for improved imaging as well as quieter propellers. The rerelease of the Karma drone is a much more polished product that is more suitable for reviewing as well as improved for general use. But does the Karma drone matchup with major contenders in the marketplace such as the Parrot or the DJI phantom line?
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Pros and cons of GoPro Karma
 
 **Pros**
@@ -60,9 +65,20 @@ thumbnail: https://thmb.techidaily.com/ff8e499dfacbb3f8c53c52b2127d34f19a999ba4d
 
  The overall verdict is that this is a fantastic drone for capturing stunning images but it doesn't have the easy flying mode or the battery life to compete with some of the best drones available at the same price point. Although you might have to sacrifice a bit in image quality when compared to a GoPro camera with some competitors, it's often worth it for value knowing that you can capture the shot and maintain control over your drone.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Detailed review for GoPro Karma
 
 #### 1\.  Price
@@ -99,6 +115,26 @@ thumbnail: https://thmb.techidaily.com/ff8e499dfacbb3f8c53c52b2127d34f19a999ba4d
 
 ![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  One thing that the GoPro Karma did especially well was creating a beautiful controller. The RC controller is relatively small but it feels exactly like playing a videogame with plenty of functions and no need to have a compatible device to use the drone. The other extremely strong point is the camera. Nobody can build a great outdoor camera that is it as resilient as a GoPro with the Hero 5 Black version of this drone capable of shooting in 4K with an astounding video quality, you can catch some amazing video as well as incredible still images on this drone.
 
 #### Conclusion
@@ -106,6 +142,20 @@ thumbnail: https://thmb.techidaily.com/ff8e499dfacbb3f8c53c52b2127d34f19a999ba4d
 Overall, the GoPro Karma is a fairly strong showing for a drone. Although it can be expensive when compared to the specifications on some of the other drones, if you do have some experience flying drones and you are looking for a great image quality, this could be the choice for you especially if you are looking for a portable drone.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Max Wales
 
@@ -129,6 +179,75 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-explore-these-8-sizzling-social-media-sensations-on-fb/"><u>[New] 2024 Approved Explore These 8 Sizzling Social Media Sensations on FB</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-expert-techniques-optimizing-obs-streams-for-your-fb-audience-for-2024/"><u>[New] Expert Techniques Optimizing OBS Streams for Your FB Audience for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-high-end-steadicam-selections-for-superior-dslr-cinematography/"><u>[New] In 2024, High-End Steadicam Selections for Superior DSLR Cinematography</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-video-creation-in-classroom-video-editing-tips/"><u>[Updated] 2024 Approved Video Creation in Classroom Video Editing Tips</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-28-practical-tips-for-streaming-online-courses-on-a-budget-for-2024/"><u>[Updated] 28 Practical Tips for Streaming Online Courses on a Budget for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-5-top-tier-gaming-displays-in-4k-quality/"><u>2024 Approved 5 Top-Tier Gaming Displays in 4K Quality</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-a-comparative-journey-through-the-top-10-tv-streamers/"><u>2024 Approved A Comparative Journey Through the Top 10 TV Streamers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-a-trifecta-guide-for-extracting-youtube-subtitled-content/"><u>2024 Approved A Trifecta Guide for Extracting YouTube Subtitled Content</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-achieving-synergy-integrating-linktree-into-your-tiktok-profile/"><u>2024 Approved Achieving Synergy Integrating Linktree Into Your TikTok Profile</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-adept-methods-for-mass-acquiring-videos-on-tiktok-app/"><u>2024 Approved Adept Methods for Mass Acquiring Videos on TikTok App</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-building-a-custom-google-cardboard-for-immersive-experience/"><u>2024 Approved Building a Custom Google Cardboard for Immersive Experience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-capture-it-all-webcams-to-transform-podcasts/"><u>2024 Approved Capture It All Webcams to Transform Podcasts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-convert-srt-free-top-10-web-subtitle-services/"><u>2024 Approved Convert SRT Free Top 10 Web Subtitle Services</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-convert-srt-to-subc-innovative-3-ways-uncovered/"><u>2024 Approved Convert SRT to SUBC Innovative 3 Ways Uncovered</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-determining-your-promotion-budget-on-youtube/"><u>2024 Approved Determining Your Promotion Budget on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-efficiently-shifting-videos-youtube-to-dailymotion-strategy/"><u>2024 Approved Efficiently Shifting Videos YouTube to Dailymotion Strategy</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-elevating-everyday-life-into-viral-gif-laughter/"><u>2024 Approved Elevating Everyday Life Into Viral GIF Laughter</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-essential-links-purchasing-youtube-tones-online/"><u>2024 Approved Essential Links Purchasing YouTube Tones Online</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-essential-websites-for-youtube-video-promotion/"><u>2024 Approved Essential Websites for YouTube Video Promotion</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-future-proofing-your-mp4s-srt-integration-hacks/"><u>2024 Approved Future-Proofing Your MP4s SRT Integration Hacks</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-identifying-leading-drone-motors-for-superior-stability/"><u>2024 Approved Identifying Leading Drone Motors for Superior Stability</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-magix-acid-pro-unveiled-assessing-comparable-software/"><u>2024 Approved Magix ACID Pro Unveiled Assessing Comparable Software</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-maximizing-video-quality-in-zoom-conferences/"><u>2024 Approved Maximizing Video Quality in Zoom Conferences</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-navigating-the-maze-of-music-rights-on-instagram/"><u>2024 Approved Navigating the Maze of Music Rights on Instagram</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-precise-color-correction-mastery-in-gopro-studio/"><u>2024 Approved Precise Color Correction Mastery in GoPro Studio</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-premium-picks-top-macpc-bd-players-and-codecs/"><u>2024 Approved Premium Picks Top Mac/PC BD Players and Codecs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-sketch-mastery-on-mac-the-freest-software-lineup/"><u>2024 Approved Sketch Mastery on Mac The Freest Software Lineup</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-tailoring-your-story-a-guide-to-crafting-engaging-podcast-episodes/"><u>2024 Approved Tailoring Your Story A Guide to Crafting Engaging Podcast Episodes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-taking-the-leap-secrets-for-free-fcp-acquisition/"><u>2024 Approved Taking the Leap Secrets for Free FCP Acquisition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-essential-guide-to-crafting-engaging-haul-videos/"><u>2024 Approved The Essential Guide to Crafting Engaging Haul Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-essential-guide-to-playstation-45-audio-tweaks/"><u>2024 Approved The Essential Guide to PlayStation 4/5 Audio Tweaks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-top-5-audio-experiences-on-iphones/"><u>2024 Approved Top 5 Audio Experiences on iPhones</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-top-5-omnidirectional-recording-gadgets/"><u>2024 Approved Top 5 Omnidirectional Recording Gadgets</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-top-8-srt-conversion-websites-without-a-cost/"><u>2024 Approved Top 8 SRT Conversion Websites Without a Cost</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-ultimate-list-of-no-cost-vectors-and-design-portals-online/"><u>2024 Approved Ultimate List of No-Cost Vectors and Design Portals Online</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-uniting-videos-on-ios-step-by-step-methods/"><u>2024 Approved Uniting Videos on iOS Step-by-Step Methods</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-visualizing-success-designing-captivating-teasers-and-trailers-for-your-podcasts/"><u>2024 Approved Visualizing Success Designing Captivating Teasers and Trailers for Your Podcasts</u></a></li>
+<li><a href="https://win11.techidaily.com/addressing-path-not-found-on-pc-networks/"><u>Addressing Path Not Found on PC Networks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/amplify-your-windows-photos-viewing-incorporating-artistic-filters-and-music-for-2024/"><u>Amplify Your Windows Photos Viewing Incorporating Artistic Filters and Music for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/benq-sw320-review-a-gateway-to-true-high-definition/"><u>BenQ SW320 Review A Gateway to True High Definition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/blend-acoustic-elements-with-visual-content-in-premiere-pro/"><u>Blend Acoustic Elements with Visual Content in Premiere Pro</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/brilliant-visuals-uncover-the-magic-in-these-7-grades/"><u>Brilliant Visuals Uncover the Magic in These 7 Grades</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/budget-friendly-ball-games-watch-and-edit-on-the-go-for-2024/"><u>Budget-Friendly Ball Games Watch & Edit on the Go for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/charting-your-course-for-social-media-mastery-for-2024/"><u>Charting Your Course for Social Media Mastery for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/comparative-study-twitch-and-youtube-in-streaming-land/"><u>Comparative Study Twitch & YouTube in Streaming Land</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/decoding-color-standards-srgb-takes-the-spotlight-from-rgb-for-2024/"><u>Decoding Color Standards Srgb Takes the Spotlight From RGB for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/definitive-top-5-superlight-cinematography-devices/"><u>Definitive Top 5 Superlight Cinematography Devices</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/detailed-overview-of-lightroom-on-android-devices/"><u>Detailed Overview of Lightroom on Android Devices</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/effortless-installation-windows-11s-anniversary-edition-now-available/"><u>Effortless Installation: Windows 11'S Anniversary Edition Now Available</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/free-your-movies-how-to-convert-dvds-to-digital-video-formats/"><u>Free Your Movies How to Convert DVDs to Digital Video Formats</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-3-easy-ways-to-factory-reset-a-locked-apple-iphone-11-pro-max-without-itunes-by-drfone-ios/"><u>In 2024, 3 Easy Ways to Factory Reset a Locked Apple iPhone 11 Pro Max Without iTunes</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-samsung-galaxy-a05s-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Samsung Galaxy A05s | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/precision-in-pro-videos-essential-lighting-insights/"><u>Precision in Pro Videos Essential Lighting Insights</u></a></li>
+<li><a href="https://howto.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-tecno-spark-10-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Tecno Spark 10 4G | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-basics-of-biometric-identification-systems-explained/"><u>The Basics of Biometric Identification Systems Explained</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723202048356-troubleshooting-stuck-function-fn-buttons-solutions-inside/"><u>Troubleshooting Stuck Function (Fn) Buttons – Solutions Inside</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/what-is-an-ai-voice-generator-in-2024/"><u>What Is an AI Voice Generator, In 2024</u></a></li>
+</ul></div>
 
 
 
