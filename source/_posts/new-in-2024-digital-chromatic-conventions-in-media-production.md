@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Digital Chromatic Conventions in Media Production"
-date: 2024-09-11T07:26:59.919Z
-updated: 2024-09-12T07:26:59.919Z
+date: 2024-09-13T17:02:50.564Z
+updated: 2024-09-16T18:23:53.552Z
 tags: 
   - screen-recording
   - ai video
@@ -22,27 +22,10 @@ Everyone in the video editing world is full of lively and beautiful colors — j
 
 ![color grading panel filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-panel-filmora.jpg)
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## What is Color Grading?
 
@@ -57,20 +40,6 @@ Color grading and color correction are processes that happen throughout postprod
 ![apply color grading to video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-grading-to-video.jpg)
 
 To summarize, Color grading can be used to make both technical and creative changes. Colorists use color grading for artistic purposes to ensure that the film's carefully curated color palette conveys a specific atmosphere, style, or emotion.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Why is Color Grading Important?
 
@@ -110,20 +79,6 @@ Color Panel Window - to perform color correction in Wondershare Filmora, switch 
 
 ![edit color grading video fx](https://images.wondershare.com/filmora/article-images/2022/08/edit-color-grading-video-fx.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 **Contrast**: is the variance in luminance or color that makes an object identifiable. By modifying this setting, control the dissimilarity in color and brightness in contrary parts of the video image.
 
 **Saturation:** This setting constitutes the amount of gray in proportion to the hue. You can adjust it to make the entire video image's colors look soaked or unnoticeable.
@@ -154,43 +109,9 @@ First, you need to select the specific video portion you want to change the colo
 
 ![selected end portion video filmora](https://images.wondershare.com/filmora/article-images/2022/08/selected-end-portion-video-filmora.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ##### Step3Apply the color correction preset that you want then click ok
 
 ![apply color correction preset](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-correction-preset.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 You will notice that the color changes depending on your selected preset.
 
@@ -201,20 +122,6 @@ In the Presets tab, there are different templates, including Common, 3D LUT, Vig
 Once you've finished correcting the video color, press Play and go over the whole video through the previewing window. If satisfied with the result, click the "Export" button to transport your video. Click the Settings button to modify settings if needed. You can save the new videos in different formats under the Format tab. If you want to play the edit file on devices like Tablet, iPad, Kindle Fire, PSP, Xbox, etc., go to the "Devices" tab and select the configured preset for the specific model. You can also upload the video output on Youtube for better preservation.
 
 ![preview and save video filmora](https://images.wondershare.com/filmora/article-images/2022/08/preview-and-save-video-filmora.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 **Using the Color Panel Window**
 
@@ -229,26 +136,6 @@ You can modify the temperature, tint, white balance, contrast, saturation, and b
 Click the button Advanced at the lower corner, then the color grading window will pop up, and you can explore your settings and options.
 
 ![color grading with filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-with-filmora.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 **Color Histogram**
 
@@ -316,51 +203,28 @@ Overall, Color grading is the process of video editing to have an excellent look
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-accelerate-vimeo-video-experience/"><u>[New] 2024 Approved Accelerate Vimeo Video Experience</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-comprehensively-understanding-iphone-audio-acquisition/"><u>[New] 2024 Approved Comprehensively Understanding iPhone Audio Acquisition</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-best-hd-video-playback-the-essential-apps-for-android-for-2024/"><u>[New] Best Hd Video Playback The Essential Apps for Android for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-best-writers-workshop-online/"><u>[New] Best Writer’s Workshop Online</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-chuckle-forge-mutant-comedy-creatures-for-2024/"><u>[New] Chuckle Forge Mutant Comedy Creatures for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-elite-6-urban-home-structures-in-minecraft-for-2024/"><u>[New] Elite 6 Urban Home Structures in Minecraft for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-game-on-with-updated-windows-11-gems/"><u>[New] Game On with Updated Windows 11 Gems</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-airpods-apart-heres-the-mend/"><u>[Updated] 2024 Approved Airpods Apart? Here's the Mend</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-navigating-videos-sequentially-for-free-youtube-guide/"><u>[Updated] 2024 Approved Navigating Videos Sequentially for Free - YouTube Guide</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unusual-sideway-photos-in-instagram-storytelling/"><u>[Updated] 2024 Approved Unusual Sideway Photos in Instagram Storytelling</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-dual-method-strategies-boosting-tiktok-visibility/"><u>[Updated] Dual-Method Strategies Boosting TikTok Visibility</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-composing-captivating-cinematic-synopses/"><u>[Updated] In 2024, Composing Captivating Cinematic Synopses</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-hook-your-viewers-quickly-with-these-6-video-types/"><u>[Updated] In 2024, Hook Your Viewers Quickly with These 6 Video Types</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-perfect-picture-creation-discover-these-top-5-android-editors/"><u>[Updated] In 2024, Perfect Picture Creation Discover These Top 5 Android Editors</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-liveoutnow-an-in-depth-look-at-effortless-podcast-live-streaming/"><u>[Updated] LiveOutNow An In-Depth Look at Effortless Podcast Live Streaming</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-rich-archive-of-cost-effective-superior-vector-graphics-websites-for-2024/"><u>[Updated] Rich Archive of Cost-Effective, Superior Vector Graphics Websites for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-tactics-for-triumphing-in-virtual-marketplaces/"><u>[Updated] Tactics for Triumphing in Virtual Marketplaces</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-top-flood-resistant-cams-reviewed-7-edition-for-2024/"><u>[Updated] Top Flood-Resistant Cams Reviewed – #7 Edition for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-transforming-your-videos-first-impression-fb-cover-makeover-techniques/"><u>[Updated] Transforming Your Videos' First Impression FB Cover Makeover Techniques</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-short-film-synopsis-must-know-points/"><u>2024 Approved Short Film Synopsis Must-Know Points!</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ovative-workout-challenges-for-dynamic-viewers/"><u>9 Innovative Workout Challenges for Dynamic Viewers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/building-a-million-views-empire-safe-and-secure-methods-for-2024/"><u>Building a Million Views Empire Safe and Secure Methods for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/cutting-edge-tech-windows-11-and-acer-updates/"><u>Cutting-Edge Tech: Windows 11 & Acer Updates</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/diy-dolby-troubleshooting-for-windows-10-users-get-high-quality-sound-back-today/"><u>DIY Dolby Troubleshooting for Windows 10 Users – Get High-Quality Sound Back Today</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/elevate-your-image-pro-insider-secrets-for-lunapic/"><u>Elevate Your Image Pro Insider Secrets for LunaPic</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/explore-and-apply-instagrams-latest-filters-for-stunning-feeds/"><u>Explore and Apply Instagram's Latest Filters for Stunning Feeds</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-fix-videos-not-playing-with-my-oneplus-by-stellar-video-repair-mobile-video-repair/"><u>How to fix videos not playing with my OnePlus ?</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-direct-obs-video-feed-for-instagram/"><u>In 2024, Direct OBS Video Feed for Instagram</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-vivo-v27ewithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Vivo V27ewith/without a PC</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-playback-issues-resolving-video-not-showing-sony-a6400/"><u>In 2024, Playback Issues Resolving Video Not Showing Sony A6400</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-the-ultimate-tablet-list-for-photographers-going-beyond-filmora/"><u>In 2024, The Ultimate Tablet List for Photographers Going Beyond Filmora</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/launch-your-brands-professional-chapter-with-instagram-for-2024/"><u>Launch Your Brand's Professional Chapter with Instagram for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/reliable-user-guide-to-fix-samsung-galaxy-f54-5g-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix Samsung Galaxy F54 5G Running Slow and Freezing | Dr.fone</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/the-art-of-discretion-blurring-faces-in-video-editing/"><u>The Art of Discretion Blurring Faces in Video Editing</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/the-visionary-educators-guide-to-multimedia-use-for-2024/"><u>The Visionary Educator's Guide to Multimedia Use for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-quick-fortnite-image-design/"><u>Ultra-Quick Fortnite Image Design</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/which-media-supersedes-the-other-podcasts-or-youtube-for-2024/"><u>Which Media Supersedes the Other Podcasts or YouTube for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-bring-back-the-memories-top-5-ps1-emulation-apps-for-pc-for-2024/"><u>[New] Bring Back the Memories - Top 5 PS1 Emulation Apps for PC for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-heaviest-inflight-lifters-unveiled-top-10-list/"><u>[New] In 2024, Heaviest Inflight Lifters Unveiled - Top 10 List</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-photographys-top-10-digital-notebooks-for-smartphones/"><u>[New] In 2024, Photography's Top 10 Digital Notebooks for Smartphones</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-ultimate-checklist-for-video-praise-mastery/"><u>[New] The Ultimate Checklist for Video Praise Mastery</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-enhance-video-quality-pc-and-mobile-filter-integration/"><u>[Updated] 2024 Approved Enhance Video Quality PC & Mobile Filter Integration</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-expert-tips-finding-the-best-text-design-resources/"><u>[Updated] In 2024, Expert Tips Finding the Best Text Design Resources</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unlocking-organic-growth-your-afb-playbook-for-2024/"><u>[Updated] Unlocking Organic Growth Your AFB Playbook for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-streamline-your-channels-customized-end-screen-templates/"><u>2024 Approved Streamline Your Channels Customized End Screen Templates</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/a-top-10-curated-list-of-superior-vector-portals/"><u>A Top 10 Curated List of Superior Vector Portals</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-resolve-oppo-k11x-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Oppo K11x Screen Not Working | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-the-revolutionary-impact-future-of-vr-cinematic-experience/"><u>In 2024, The Revolutionary Impact Future of VR Cinematic Experience</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/rectifying-low-quality-font-renderings/"><u>Rectifying Low-Quality Font Renderings</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-6-kid-friendly-movie-websites-with-free-screening-options/"><u>Top 6 Kid-Friendly Movie Websites with Free Screening Options</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1725290152332-winxvideo-ai/"><u>WinxVideo AI:提升影片品质，获取最佳视频体验</u></a></li>
 </ul></div>
 
-
-
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
