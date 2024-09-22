@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, The Film-Maker’s Quick Guide to Perfect Sea Scenes\""
-date: 2024-07-13T20:42:36.266Z
-updated: 2024-07-14T20:42:36.266Z
+date: 2024-09-20T17:09:54.935Z
+updated: 2024-09-22T17:01:01.537Z
 tags: 
   - screen-recording
   - ai video
@@ -32,18 +32,6 @@ thumbnail: https://thmb.techidaily.com/37188c2ac0547dbb668f9ed584425f62c5411d081
 
  There are many tips you can learn from to get the results that you require, so read on to find out more about what you can do to shoot underwater video with ease.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Tips on shooting video underwater
 
 #### 1\. Frame your shots
@@ -70,9 +58,6 @@ thumbnail: https://thmb.techidaily.com/37188c2ac0547dbb668f9ed584425f62c5411d081
 
  You can instead make use of natural sunlight, which should help you get the excellence you require even when you’re shooting at more than 30 metres depth. Deeper white balancing can be helpful during cloudy days.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
 
 #### 4\. Stay steady
@@ -87,9 +72,6 @@ thumbnail: https://thmb.techidaily.com/37188c2ac0547dbb668f9ed584425f62c5411d081
 
  Unfortunately, other divers have a tendency to get in the way when you’re shooting footage underwater. Many video production professionals opt to intentionally include clips of divers in their footage so everything flows nicely and cuts work well together if their presence in other shots is unavoidable.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
 
 #### 6\. Wide angle
@@ -116,9 +98,6 @@ thumbnail: https://thmb.techidaily.com/37188c2ac0547dbb668f9ed584425f62c5411d081
 
  If you’re planning on making a DVD of your work, consider adding extras to the product such as highlights or photos. Filmora is a popular editing software solution that will help you add an extra dash of magic to your work.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
@@ -146,6 +125,29 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-lightning-lens-work-efficiently-producing-google-collage-shots/"><u>[New] 2024 Approved Lightning Lens Work Efficiently Producing Google Collage Shots</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-windows-hd-color-find-out-how-to-watch-and-edit-hdr-videos-on-your-pc/"><u>[New] 2024 Approved Windows HD Color Find Out How to Watch and Edit HDR Videos on Your PC</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-from-monotonous-to-magical-applying-video-effects-in-zoom/"><u>[New] In 2024, From Monotonous to Magical Applying Video Effects in Zoom</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-stellar-visuals-enhancing-google-meet-collaboration/"><u>[New] In 2024, Stellar Visuals Enhancing Google Meet Collaboration</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-uav-connoisseurs-guide-to-essential-equipment/"><u>[New] In 2024, The UAV Connoisseur's Guide to Essential Equipment</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-pro-grade-gopro-comparison-hero5-b-and-sessions-for-2024/"><u>[New] Pro-Grade GoPro Comparison Hero5 B & Sessions for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-how-to-crossfade-audio-with-audacity-for-2024/"><u>[Updated] How to Crossfade Audio with Audacity for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-best-of-the-best-top-facebook-memes-to-find-for-2024/"><u>[Updated] The Best of the Best – Top Facebook Memes to Find for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-guide-to-iphone-ringtone-alterations/"><u>2024 Approved The Ultimate Guide to iPhone Ringtone Alterations</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/a-critical-look-at-the-leading-economically-friendly-lut-sources/"><u>A Critical Look at the Leading, Economically Friendly LUT Sources</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-realme-12-proplus-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Realme 12 Pro+ 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/innovation-meets-opportunity-the-leading-7-nft-generation-tools-for-2024/"><u>Innovation Meets Opportunity The Leading 7 NFT Generation Tools for 2024</u></a></li>
+<li><a href="https://app-tips.techidaily.com/mastering-devops-adoption-in-business-strategies-for-staying-ahead-while-reducing-risks-insights-from-zdnet/"><u>Mastering DevOps Adoption in Business: Strategies for Staying Ahead While Reducing Risks - Insights From ZDNet</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-smart-home-weather-sensors/"><u>Top-Rated Smart Home Weather Sensors</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/visualize-freely-premium-no-cost-screen-capture-tools/"><u>Visualize Freely Premium No-Cost Screen Capture Tools</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

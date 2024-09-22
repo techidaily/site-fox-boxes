@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Top Tips for Maximizing iPhone X's Cinematic Shots\""
-date: 2024-07-13T20:41:13.158Z
-updated: 2024-07-14T20:41:13.158Z
+date: 2024-09-18T17:50:16.534Z
+updated: 2024-09-22T17:18:04.083Z
 tags: 
   - screen-recording
   - ai video
@@ -33,9 +33,6 @@ thumbnail: https://thmb.techidaily.com/8eb0a52f331cadec1455be55279efe68c9588c114
 * [Part 3: How to use portrait mode](#part3)
 * [Part 4: Video improvement](#part4)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: TrueDepth Camera
 
  The phone has a brand new rear [camera with two lenses](https://tools.techidaily.com/wondershare/filmora/download/) in a vertical orientation. This new orientation has been chosen to provide more space for the front-facing TrueDepth camera. This camera is tasked with powering the Face ID feature. The TrueDepth system also has a f/2.2 7-megapixel camera for selfies. The feature means Portrait Mode and Portrait Lighting are supported in front-facing mode. With Portrait Lighting, you can dynamically adjust your photo’s lighting with ease. TrueDepth uses an infrared emitter to project more than 30,000 in a recognised pattern onto users’ faces, before photographing the dots for analysis. The function is strengthened with a proximity sensor as well as an ambient light sensor which allows output light levels to be set.
@@ -44,9 +41,6 @@ thumbnail: https://thmb.techidaily.com/8eb0a52f331cadec1455be55279efe68c9588c114
 
  With previous versions of the iPhone Plus, the depth maps were only used to blur backgrounds and make subjects pop against them. However, the iPhone X takes the depth information from the two lenses as well as the efficiency of the A11 Bionic chip to offer outstanding new special effects.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
 
 ## Part 3: How to use portrait mode
@@ -67,14 +61,25 @@ thumbnail: https://thmb.techidaily.com/8eb0a52f331cadec1455be55279efe68c9588c114
 
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: Video improvement
 
  The iPhone X is also noted for its first-class video shooting capabilities, including its 4K video feature. Though previous iterations of the iPhone were already rather adept at shooting in 4K, the new devices are even more impressive and have been favourably compared to the GH5 in terms of quality and clarity. The new device has been complimented for its vibrant colour profile and its ability to deliver 4K video that matches a wide range of leading DSLR and mirrorless cameras. It’s possible to capture video in 240fps slo-mo at 1080p and 4K at 60fps.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![video improvement](https://images.wondershare.com/filmora/article-images/video-improvement.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -84,9 +89,6 @@ thumbnail: https://thmb.techidaily.com/8eb0a52f331cadec1455be55279efe68c9588c114
 
  The phone has also been praised for its wide range between light and dark colours. The Face ID function has proved to be incredibly secure, unlike earlier facial recognition systems which could easily be tricked by with the use of photographs or videos. It’s now possible to be more creative than ever with your iPhone’s camera whilst benefiting from a wealth of robust security features.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -112,6 +114,19 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-how-to-make-a-video-best-fits-snapchat-size-on-mac/"><u>[New] 2024 Approved How to Make a Video Best Fits Snapchat Size on Mac?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/aximize-reach-the-top-ten-keywords-discovery-platforms-for-youtubers-for-2024/"><u>[New] Maximize Reach The Top Ten Keywords Discovery Platforms for YouTubers for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-the-essential-blueprint-setting-up-your-first-xbox-recorder/"><u>[Updated] In 2024, The Essential Blueprint Setting Up Your First Xbox Recorder</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/1726233753868-3g2-movavi/"><u>3G2ビデオファイルを即座に変換するための無料オンラインツール - MOVAVI</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/1726233762857-movavi/"><u>動画添付のメール圧縮手引き：Movaviでスムーズに使える最適な方法</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/budgetclouds-vault-spaceful-large-data-sanctuary-for-2024/"><u>BudgetCloud's Vault Spaceful Large Data Sanctuary for 2024</u></a></li>
+<li><a href="https://win-data.techidaily.com/expanding-pdf-sections-to-double-page-views-using-flipbuilders-techniques/"><u>Expanding PDF Sections to Double-Page Views Using FlipBuilder's Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/1726233747472-movavi/"><u>Movavi軟體技術協助精選</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/izing-video-content-with-perfect-youtube-titles/"><u>Optimizing Video Content with Perfect YouTube Titles</u></a></li>
+<li><a href="https://facebook.techidaily.com/power-up-your-page-with-strategic-admins/"><u>Power Up Your Page with Strategic Admins</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/transforma-archivos-webm-gratuitamente-en-gif-utilizando-servicios-en-linea-como-movavi/"><u>Transforma Archivos WebM Gratuitamente en GIF Utilizando Servicios en Línea Como Movavi</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/wma-3g2-movavi/"><u>WMA에 대화형으로 변환: 3G2 오픈소스 자신의 방식으로 다시 살감 - Movavi</u></a></li>
+</ul></div>
 

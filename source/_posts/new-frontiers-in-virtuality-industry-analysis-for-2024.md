@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Frontiers in Virtuality  Industry Analysis for 2024\""
-date: 2024-07-13T20:45:36.356Z
-updated: 2024-07-14T20:45:36.356Z
+date: 2024-09-19T19:25:24.014Z
+updated: 2024-09-22T18:15:39.660Z
 tags: 
   - screen-recording
   - ai video
@@ -20,27 +20,12 @@ thumbnail: https://thmb.techidaily.com/377e38553991337f1398bdbfe5a8f44bdc61d9fc3
 
 # State of the VR Industry
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 
  Mar 27, 2024• Proven solutions
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What’s the popular VR platforms and what is developing fast?
 
  Well, the fourth Annual GDC European State of the Industry was held just about a month ago and as always, developers from various parts of this continent took part in it. It was very clear from the developers that they are still launching games keeping the PC and Smart Phones in mind. These are still the most popular platforms where 49 percent of the developers made their latest release on PC/Mac, around 41 percent chose smart phones and tablets to be the best medium.
@@ -53,9 +38,6 @@ thumbnail: https://thmb.techidaily.com/377e38553991337f1398bdbfe5a8f44bdc61d9fc3
 
  Is it really the right time to make comment like virtual reality is really uprising as a gaming platform? If you take the year of year survey report, yes the result shows a significant uptick for the interest of this platform. If we look back at the last year’s survey, it revealed that only 33.4 percent of the developers were interested to develop games for VR platforms. If you consider in terms of interest, VR was placed behind the PC/Mac, PlayStation 4, smartphones or tablets. But, considering this year’s data, we can see more advancement in the interest for the VR platform! More and more European developers are now getting interested to develop games for VR platforms that the smartphones or tablets.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![vr-gaming](https://images.wondershare.com/filmora/resource/vr-gaming1.jpg)
 
  This clears the air that VR is turning to be an emerging platform for the European game developers but, which one is preferred more by the professional game developers – is it the Oculus Rift or HTC Vive or something else for that matter? The survey also includes a detailed report on that as well. Asking about which VR platform they are using – 23.1 percent developers said they are using Rift, Vive is slightly behind with 22 percent developers’ preferences. There is PlayStation VR headset as well with 11.8 percent preferences.
@@ -72,9 +54,6 @@ thumbnail: https://thmb.techidaily.com/377e38553991337f1398bdbfe5a8f44bdc61d9fc3
 
  Overall, this is what cooking inside the VR gaming world and this survey report explains the different aspects of virtual reality that clearly presents the state of the VR industry on this year – 2016\. Hopefully, we will come across much more advancement to this process in the coming years since gaming on VR headsets is massively exciting and fun.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -100,6 +79,30 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-guide-to-efficient-webp-jpeg-conversion/"><u>[New] 2024 Approved Guide to Efficient WebP JPEG Conversion</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-pristine-story-conception-in-eight-genre-divisions/"><u>[New] 2024 Approved Pristine Story Conception in Eight Genre Divisions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-discover-local-wonders-and-services-at-a-tap-away/"><u>[New] In 2024, Discover Local Wonders & Services at a Tap Away</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-financial-forecast-shooting-a-music-video/"><u>[New] In 2024, Financial Forecast Shooting a Music Video</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-cinematic-edge-edging-your-vt-footage-on-final-cut-x/"><u>[New] In 2024, The Cinematic Edge Edging Your VT Footage on Final Cut X</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-transformative-techniques-for-capturing-on-iphone/"><u>[Updated] 2024 Approved Transformative Techniques for Capturing on iPhone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-your-first-step-to-a-profitable-youtube-experience/"><u>[Updated] 2024 Approved Your First Step to a Profitable Youtube Experience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-dissecting-shake-control-does-it-truly-enhance-editing-results-for-2024/"><u>[Updated] Dissecting Shake Control Does It Truly Enhance Editing Results for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-hours-of-content-convert-to-gb-figure/"><u>[Updated] Hours of Content Convert to GB Figure</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-permanent-bond-incorquadible-tiktok-profile-url-addition/"><u>[Updated] Permanent Bond Incorquadible TikTok Profile URL Addition</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/buy-the-legitimate-winx-dvd-to-video-tool-fast-free-download/"><u>Buy the Legitimate WinX DVD to Video Tool - Fast, Free Download!</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/enhancing-mobile-instagram-videos-velocity-tips/"><u>Enhancing Mobile Instagram Videos' Velocity (Tips)</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fix-my-broken-headphones-on-windows-11-solutions-and-tips-for-successful-setup/"><u>Fix My Broken Headphones on Windows 11: Solutions & Tips for Successful Setup</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-avoid-blandness-optimize-your-thumbnail-with-20-fonts/"><u>In 2024, Avoid Blandness - Optimize Your Thumbnail with 20 Fonts</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-remove-your-apple-id-permanently-on-apple-iphone-15-by-drfone-ios/"><u>In 2024, How To Delete iCloud Account Remove Your Apple ID Permanently On Apple iPhone 15</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/instant-repairs-resolve-oculus-rift-s-mic-issues-in-just-five-steps/"><u>Instant Repairs: Resolve Oculus Rift S Mic Issues in Just Five Steps</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

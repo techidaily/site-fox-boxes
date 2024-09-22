@@ -1,7 +1,7 @@
 ---
 title: "[New] Terminology Trek Through the Virtual Landscape"
-date: 2024-09-13T09:47:55.257Z
-updated: 2024-09-16T20:57:40.413Z
+date: 2024-09-17T17:48:21.577Z
+updated: 2024-09-22T19:52:36.799Z
 tags: 
   - screen-recording
   - ai video
@@ -43,20 +43,34 @@ Eye Tracking works the same as that of head tracking and assists to keep users e
 
 Here we are going to talk about the sensors that track the movement of users' heads and keeps images moving in such a manner that they match head positions perfectly. For example, if you are using an Oculus Rift then the head tracking feature will force your head to look up, down, right, and left so that you can see the world in the way virtual reality wish to make you see.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Motion Tracking
 
 It is described in terms of the ability to record all movements in such a manner that they appear to be a part of the real world. It will help you to get a closer look at every element that you want to observe in VR content, the same as that of real life. It is one of the biggest elements in the world of Virtual Reality that forces your senses to get involved with the tricky science of virtual environment with a feeling that you are wandering in a fantasy world.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Refresh Rate
 
 When you are looking at a series of images in the world of Virtual reality then refresh rate helps to control the movement of frames so that they can be managed to move at a faster or slower rate as per requirement. Refresh rate controls lead and lag of a series of images in such a manner that users avail a responsive experience. At the standard rate, users need 60 frames per second.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Head Mounted Display (HMD)
 
@@ -65,13 +79,6 @@ This term will be more often used when you enter the world of Virtual Reality be
 ## Latency
 
 If you have ever experienced the world of Virtual Reality then you surely might have noticed that whenever you move your head in the directive motion then the visuals do not keep up accordingly, this is called latency. This is an unpleasant thing about Virtual Reality that adds a limitation to match virtual world with the real world. The lag caused by this latency period is a complaint from VR content users and it occurs due to a variety of reasons.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Immersion
 
@@ -85,22 +92,16 @@ The term Field of View presents the angle of the visual field in degrees where i
 
 Screen resolution actually describes the number of pixels to be displayed on-screen during Virtual Reality scenes. Same as the concept of television monitor or computer screen, more number of pixels mean much better resolution and much clearer as well as the realistic quality of images. The technology of Virtual Reality serves with awesome resolution and cameras developed for capturing such images are designed to add more number of pixels per frame. With specially developed VR headsets, the screen is divided into two portions that are observed by each eye separately and the screen door effects added to VR technology makes users feel like they are watching through a door.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## [Virtual Reality](https://tools.techidaily.com/wondershare/filmora/download/)
 
 First of all, it is important to know the actual meaning of VR that stands for Virtual Reality. The VR immersion is actually achieved by mixing two most important senses of living beings that are vision as well as hearing; for this VR technology utilizes headphones and headsets. With VR environment you will feel real life in photographs also and the experience with memories will go amazing.
-
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## [Augmented Reality](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -111,19 +112,6 @@ It is simply the process of overlaying digital elements or data on the real worl
 The convergence of Virtual and Augmented reality is known as mixed reality. MR creates a blend of the virtual world into the physical space and it has the power to bring life into digital elements resulted from highly advanced camera units and VR+AR gears.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -150,21 +138,12 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-becoming-a-whatsapp-pro-uncovering-invaluable-tips-and-tricks/"><u>[New] Becoming a WhatsApp Pro Uncovering Invaluable Tips and Tricks</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-essential-sites-for-fetching-video-intro-files-for-2024/"><u>[New] Essential Sites for Fetching Video Intro Files for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-potential-pitfalls-in-virtual-realms/"><u>[New] In 2024, Potential Pitfalls in Virtual Realms</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-step-by-step-instructions-on-chromes-pip-across-all-platforms/"><u>[New] In 2024, Step-by-Step Instructions on Chrome’s PIP Across All Platforms</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-essential-beginning-lineups-for-panzoids/"><u>[New] In 2024, The Essential Beginning Lineups for Panzoids</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-m1-marvel-a-new-wave-of-smooth-and-efficient-editing-for-2024/"><u>[New] M1 Marvel A New Wave of Smooth and Efficient Editing for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-unlimited-storage-insights-premium-recommendations/"><u>[New] Unlimited Storage Insights Premium Recommendations</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-ideal-steadicams-for-superior-quality-shoots-with-dslr-cameras-for-2024/"><u>[Updated] Ideal Steadicams for Superior Quality Shoots with DSLR Cameras for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-what-is-ai-background-generator/"><u>2024 Approved What Is AI Background Generator?</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/apowersoft-picks-the-ultimate-pc-screen-capture-solution-for-2024/"><u>Apowersoft Picks The Ultimate PC Screen Capture Solution for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-oppo-device-sim-by-drfone-android/"><u>Easily Unlock Your Oppo Device SIM</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-when-apple-account-locked-from-iphone-14-plus-by-drfone-ios/"><u>In 2024, How to Fix when Apple Account Locked From iPhone 14 Plus?</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/iphone-pro-enhancing-photo-clarity-details-and-composition/"><u>IPhone Pro Enhancing Photo Clarity, Details & Composition</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/navigating-the-choice-of-building-versus-shopping-for-a-new-computer-which-path-suits-you-best/"><u>Navigating the Choice of Building Versus Shopping for a New Computer - Which Path Suits You Best?</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ess-youtube-to-file-conversion-techniques/"><u>Seamless YouTube to File Conversion Techniques</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/top-5-reasons-to-choose-a-kobo-tablet-instead-of-a-kindle-e-reader/"><u>Top 5 Reasons to Choose a Kobo Tablet Instead of a Kindle E-Reader</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-making-youtube-based-twitter-videos-hearable/"><u>[New] 2024 Approved Making YouTube-Based Twitter Videos Hearable</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-essential-tools-in-transforming-digital-performers-vocal-identity/"><u>[New] Essential Tools in Transforming Digital Performers' Vocal Identity</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-uncomplicated-methodology-turning-clownfish-sounds-on-windows-systems/"><u>[Updated] 2024 Approved Uncomplicated Methodology Turning Clownfish Sounds on Windows Systems</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-streamlining-your-creative-process-with-vsco-app/"><u>In 2024, Streamlining Your Creative Process with VSCO App</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-what-you-want-to-know-about-two-factor-authentication-for-icloud-on-your-apple-iphone-6s-plus-by-drfone-ios/"><u>In 2024, What You Want To Know About Two-Factor Authentication for iCloud On your Apple iPhone 6s Plus</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/navigating-the-world-of-edge-computing-with-on-device-ai-a-comprehensive-guide/"><u>Navigating the World of Edge Computing with On-Device AI: A Comprehensive Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/troubleshooting-tips-fix-your-youtube-upload-gets-held-at-critical-percentages-0-95-99/"><u>Troubleshooting Tips: Fix Your YouTube Upload Gets Held at Critical Percentages (0%, 95%, 99%)</u></a></li>
 </ul></div>
 

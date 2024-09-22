@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Illustration Ingenuity  3D Text Magic\""
-date: 2024-09-10T10:27:27.099Z
-updated: 2024-09-16T20:19:20.414Z
+date: 2024-09-20T16:55:57.447Z
+updated: 2024-09-22T18:54:03.306Z
 tags: 
   - screen-recording
   - ai video
@@ -82,10 +82,10 @@ You might not believe it, but there's an even more accessible and less expensive
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Create a 3D Text Effect In Filmora?
@@ -106,13 +106,6 @@ Step4 Finally, import a video in Filmora and drag it under the text into the Tim
 
 If you want to learn more about Filmora’s fantastic features, please watch the video below to see what the latest version of Filmora 12 brings to you!
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Both programs will get the job done if you use Adobe Illustrator or Filmora for your 3D text effect. The main difference is that it will be easier with Filmora. The choice is yours. Have fun!
@@ -120,6 +113,13 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Create a 3D Text Effect In Filmora?
 
@@ -131,16 +131,16 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
@@ -174,16 +174,17 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-epitome-of-plot-crafting-through-eight-cinematic-fields/"><u>[New] Epitome of Plot Crafting Through Eight Cinematic Fields</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-journey-to-digital-mastery-explore-best-10-android-drawing-apps-for-2024/"><u>[New] Journey to Digital Mastery Explore Best 10 Android Drawing Apps for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-scooping-strategies-review-rundown/"><u>[New] SCOOPING STRATEGIES Review Rundown</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-conquering-instagrams-video-challenges-head-on/"><u>[Updated] In 2024, Conquering Instagram's Video Challenges Head-On</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-crossos-virtual-maestro-mixer/"><u>[Updated] In 2024, CrossOS Virtual Maestro Mixer</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-laughterbox-easy-entry-endless-entertainment/"><u>[Updated] In 2024, LaughterBox Easy Entry, Endless Entertainment</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-navigating-beginners-vlogging-landscape/"><u>[Updated] In 2024, Navigating Beginner's Vlogging Landscape</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-visual-vibrancy-in-every-tiktok-moment-for-2024/"><u>[Updated] Visual Vibrancy in Every TikTok Moment for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-storage-solutions-ps5s-top-10-external-units/"><u>In 2024, Storage Solutions PS5's Top 10 External Units</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/mastering-the-art-of-igtv-production-phone-and-dslr-techniques-for-2024/"><u>Mastering the Art of IGTV Production Phone and DSLR Techniques for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/mastering-video-production-a-compreey-guide-to-powerdirector-for-2024/"><u>Mastering Video Production A Compreey Guide to PowerDirector for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-exploring-virtual-add-ons-to-reality/"><u>[New] Exploring Virtual Add-Ons to Reality</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-unveiling-paid-content-in-product-analysis/"><u>[Updated] 2024 Approved Unveiling Paid Content in Product Analysis</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-advancing-training-with-vr-systems/"><u>[Updated] In 2024, Advancing Training with VR Systems</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-infinix-note-30-vip-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Infinix Note 30 VIP Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-chucklecircuit-meme-studio-free-download/"><u>In 2024, ChuckleCircuit Meme Studio (Free Download!)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unlocking-full-degree-potential-editing-strategies-with-adobe-premiere/"><u>In 2024, Unlocking Full Degree Potential Editing Strategies with Adobe Premiere</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/instant-cure-for-laptop-or-desktop-without-sounds-a-step-by-step-guide/"><u>Instant Cure for Laptop or Desktop Without Sounds – A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/smart-pricing-a-comprehensive-cloud-storage-analysis/"><u>Smart Pricing A Comprehensive Cloud Storage Analysis</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-guide-requesting-a-game-return-or-full-money-back-from-steam/"><u>Step-by-Step Guide: Requesting a Game Return or Full Money Back From Steam</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-hidden-drain-unearthing-deceptive-likes-costs/"><u>The Hidden Drain Unearthing Deceptive Likes' Costs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/top-10-sci-fi-metaverse-movies-take-you-to-a-brand-new-world/"><u>Top 10 Sci-Fi Metaverse Movies Take You to a Brand New World</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unlocking-the-potential-of-gpt-4-collectively/"><u>Unlocking the Potential of GPT-4 Collectively</u></a></li>
 </ul></div>
 

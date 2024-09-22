@@ -1,7 +1,7 @@
 ---
 title: "[New] Detailed Guide to Capturing Spherical Panoramic Shots for 2024"
-date: 2024-09-16T06:53:47.151Z
-updated: 2024-09-16T18:35:20.211Z
+date: 2024-09-17T19:34:43.023Z
+updated: 2024-09-22T16:32:50.802Z
 tags: 
   - screen-recording
   - ai video
@@ -47,6 +47,13 @@ thumbnail: https://thmb.techidaily.com/29d02750ad0cb057d82cf1dca19da27d5429074e0
 
 ![Panning clam on ballhead](https://images.wondershare.com/filmora/article-images/panning-clam-on-ballhead.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3. The actual shooting
 
  For a full frame camera with 15mm fisheye lens in the portrait position, you will require a total of six shot rounds and 1 up to complete a full sphere. If you were using a crop-sensor camera, you will need to have a 10mm fisheye lens to achieve the same sequence.
@@ -58,19 +65,6 @@ thumbnail: https://thmb.techidaily.com/29d02750ad0cb057d82cf1dca19da27d5429074e0
  **Keep this in mind when shooting 360 degree panoramas with fisheye**
 
  In normal photography, it always pays to remember what to include and what to exclude in your shots. When it comes to shooting 360s, it becomes more complicated since everything is included. For you to take successful 360s with fisheye therefore, you need to consider keenly where you stand. The fisheye lens will introduce a lot of space between you and the subject, hence you must consider how close or far away you are from the subject so that the pieces of the compositional puzzle will fall in place smoothly both in the horizontal and vertical planes.
-
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Stitching 360 degrees panoramas after shooting
 
@@ -90,18 +84,18 @@ thumbnail: https://thmb.techidaily.com/29d02750ad0cb057d82cf1dca19da27d5429074e0
 
 ![create 360 photos with fisheye lens](https://images.wondershare.com/filmora/article-images/fisheye-lens-image.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Conclusion
 
  Fisheye lenses have been around for a while now and the process of creating 360 panoramas with them may not be very challenging, but great results are achieved through practice and proper stitching. Once the photos are taken, you can use premium panorama software like Autopano Pro or you can use free options like the Microsoft ICE or Hugin. Ones stitching are done, it is imperative to have the final works uploaded online for others to view.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -128,20 +122,16 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-comprehensive-review-of-slomo-video-capture-tool/"><u>[New] 2024 Approved Comprehensive Review of SloMo Video Capture Tool</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-real-time-recording-faceoff-obs-vs-shadowplay/"><u>[New] 2024 Approved Real-Time Recording Faceoff OBS Vs ShadowPlay</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-snipping-edits-imovies-size-changing-secrets/"><u>[New] In 2024, Snipping Edits IMovie’s Size-Changing Secrets</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-optimizing-video-quality-youtube-to-mpeg-conversion-strategies/"><u>[New] Optimizing Video Quality YouTube to MPEG Conversion Strategies</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-uncover-the-best-tablet-titans-for-photo-editing-aficionados-for-2024/"><u>[New] Uncover the Best Tablet Titans for Photo Editing Aficionados for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-unlock-the-potential-of-your-instagram-content-with-video-edits-for-2024/"><u>[New] Unlock the Potential of Your Instagram Content with Video Edits for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-the-ultimate-display-match-top-6-hdmi-21-monitors-compared/"><u>[Updated] 2024 Approved The Ultimate Display Match Top 6 HDMI 2.1 Monitors Compared</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/2024-approved-the-discoresponders-handbook-react-and-converse/"><u>2024 Approved The DiscoResponder's Handbook React and Converse</u></a></li>
-<li><a href="https://change-location.techidaily.com/honor-x50iplus-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Honor X50i+ Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-videos-from-honor-magic5-ultimate-by-fonelab-android-recover-video/"><u>How to Rescue Lost Videos from Honor Magic5 Ultimate</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Vivo Y27s | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-vivo-t2-pro-5g-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Vivo T2 Pro 5G without App | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-crafting-impactful-youtube-channel-logo-tips/"><u>In 2024, Crafting Impactful YouTube Channel Logo Tips</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-in-depth-guide-to-streaming-and-recording-webcasts-professionally/"><u>In 2024, In-Depth Guide to Streaming and Recording Webcasts Professionally</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/synchronizing-mac-writers-flows-efficiently-with-mixer/"><u>Synchronizing Mac' Writers' Flows Efficiently With Mixer</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-clear-image-purchases-no-more-watermarks/"><u>[New] 2024 Approved Clear Image Purchases No More Watermarks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-meme-magic-iphone-edition/"><u>[New] 2024 Approved Meme Magic IPhone Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-endless-entertainment-loop-youtube-videos-for-continuous-tv-viewing/"><u>[New] In 2024, Endless Entertainment Loop YouTube Videos for Continuous TV Viewing</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-top-10-mac-exclusive-free-drawing-platforms/"><u>[New] Top 10 Mac-Exclusive Free Drawing Platforms</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-ultimate-guide-to-laughing-photo-editing-tools-iosandroid/"><u>[Updated] In 2024, Ultimate Guide to Laughing Photo Editing Tools (iOS/Android)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-seizing-screen-time-with-hd-downloads-from-fb-sources/"><u>2024 Approved Seizing Screen Time with HD Downloads From FB Sources</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/effective-solutions-for-when-key-services-trigger-blue-screen-of-death-in-windows-11/"><u>Effective Solutions for When Key Services Trigger Blue Screen of Death in Windows 11</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-2023-how-to-share-twitter-videos-on-whatsapp/"><u>In 2024, 2023 | How to Share Twitter Videos on WhatsApp?</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/incompatible-digital-rights-management-drm-systems/"><u>Incompatible Digital Rights Management (DRM) Systems</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/the-art-of-minimizing-lag-with-additional-ram-for-minecraft/"><u>The Art of Minimizing Lag with Additional RAM for Minecraft</u></a></li>
+<li><a href="https://article-posts.techidaily.com/zestful-user-sign-up-routine/"><u>Zestful User Sign-Up Routine</u></a></li>
 </ul></div>
 

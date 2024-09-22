@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Unraveling Virtual-Physical Coexistence  What Is Mixed Reality?\""
-date: 2024-09-11T22:11:23.136Z
-updated: 2024-09-17T09:25:42.522Z
+date: 2024-09-17T17:09:51.839Z
+updated: 2024-09-22T18:04:36.530Z
 tags: 
   - screen-recording
   - ai video
@@ -52,15 +52,22 @@ thumbnail: https://thmb.techidaily.com/0608abec5e89fbdabfc438dbc05f250f26c6343eb
  Sharing real world virtual spaces through mixed reality can be especially beneficial for sales team when making a pitch for a new offer. For instance, a pharmaceutical sales rep can carry along two mixed reality devices to an appointment with the doctor. The doctor and the sales rep can then both wear the devices and see a model of the new drug as explained by the sales rep. Through this, they can then visualize the chemical composition of the drug and also simulate how the drug will move in the body to fight diseases. Through such a shared experience, the sales rep will not only build deeper connections with the doctor, but also offer a more detailed explanation on the product being offered.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Mixed reality for remote experts – over the shoulder coaching
 
  Most enterprises usually find it difficult to address all the support requests from all the clients in need of expert advice. It is not only costly to fly in specialists to fix things in different locations, but also time consuming. Besides, it is never adequate to troubleshoot an issue over the phone and video conferencing in such situations also have its limitations. But all these can now be avoided through the application of mixed reality for offering over the shoulder coaching remotely. With mixed reality, access to experts can be done quickly and inexpensively. For example, doctors in the healthcare industry can offer guidance and decisions to students or other doctors without the need of being in the actual locations.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The future of mixed reality
 
@@ -71,13 +78,6 @@ thumbnail: https://thmb.techidaily.com/0608abec5e89fbdabfc438dbc05f250f26c6343eb
  Also, since mixed reality experiences take place in the physical world, individuals are likely to react to them more emotionally than to a mere digital experience. As the technology develops, it is imperative for developers as well as the intended users to be aware of such issues and be ready to address them accordingly.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -104,14 +104,20 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-the-essential-iphoneside-by-side-guide-for-fb-sharing/"><u>[New] 2024 Approved The Essential iPhoneside by Side Guide for FB Sharing</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-unlocking-potential-with-polarrs-advanced-editing-features/"><u>[New] 2024 Approved Unlocking Potential with Polarr's Advanced Editing Features</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-instantaneous-windows-photo-explorer-for-2024/"><u>[New] Instantaneous Windows Photo Explorer for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-explore-our-list-best-21-hdmi-monitors-compared/"><u>[Updated] In 2024, Explore Our List Best 2.1 HDMI Monitors Compared</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-periscope-streaming-made-simple/"><u>[Updated] Periscope Streaming Made Simple</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-breakdown-xstudio-video-production-mastery/"><u>2024 Approved The Ultimate Breakdown XStudio Video Production Mastery</u></a></li>
-<li><a href="https://blog-min.techidaily.com/aiff/"><u>AIFFから他形式への容易なコンバート：最新の変換ツールと使い方</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-lava-blaze-curve-5g-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Lava Blaze Curve 5G</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-ultimate-list-of-premium-androidpc-video-editors/"><u>In 2024, The Ultimate List of Premium Android/PC Video Editors</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-crafting-cinematic-stories-in-extended-seconds-a-guide-to-creating-spectacularly-long-lasting-video-from-still-images-online/"><u>[New] Crafting Cinematic Stories in Extended Seconds A Guide to Creating Spectacularly Long Lasting Video From Still Images Online</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-expert-insights-into-tunefabs-recording-capabilities-for-2024/"><u>[New] Expert Insights Into Tunefab's Recording Capabilities for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-groundwork-for-motion-visual-storytelling/"><u>[New] Groundwork for Motion Visual Storytelling</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-drone-innovation-existing-applications-and-upcoming-potential/"><u>[New] In 2024, Drone Innovation Existing Applications & Upcoming Potential</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-video-color-correction-for-youtube-beauty/"><u>[New] In 2024, Video Color Correction for YouTube Beauty</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-mastering-cross-platform-media-engines-a-buyers-guide/"><u>[New] Mastering Cross-Platform Media Engines A Buyer's Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-phantom-3-vs-phantom-4-complete-comparison/"><u>[New] Phantom 3 Vs. Phantom 4 Complete Comparison</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-action-filmmaking-elevated-gopros-best-15-color-grading-look-ups-for-2024/"><u>[Updated] Action Filmmaking Elevated GoPro's Best 15 Color Grading Look-Ups for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/accelerating-your-tiktok-content-made-simple/"><u>Accelerating Your TikTok Content Made Simple</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/audio-overhaul-methods-for-content-creators-online/"><u>Audio Overhaul Methods for Content Creators Online</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-accessorize-for-impact-essential-cams-upgrades/"><u>In 2024, Accessorize for Impact Essential Cams Upgrades</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-future-ready-inhabitants-of-the-metaverse-your-device-blueprint/"><u>In 2024, Future-Ready Inhabitants of the Metaverse - Your Device Blueprint</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolving-logitech-g-hub-connection-problems-under-windows-os/"><u>Resolving Logitech G Hub Connection Problems Under Windows OS</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-guide-why-your-youtube-comments-may-not-appear/"><u>Troubleshooting Guide: Why Your YouTube Comments May Not Appear</u></a></li>
+<li><a href="https://apple-account.techidaily.com/unlock-apple-id-without-phone-number-on-iphone-se-2022-by-drfone-ios/"><u>Unlock Apple ID without Phone Number On iPhone SE (2022)</u></a></li>
 </ul></div>
 
