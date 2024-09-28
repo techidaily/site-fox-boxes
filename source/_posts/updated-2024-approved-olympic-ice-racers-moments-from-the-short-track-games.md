@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Olympic Ice Racers  Moments From the Short Track Games\""
-date: 2024-09-18T20:07:03.949Z
-updated: 2024-09-22T17:07:25.701Z
+date: 2024-09-23T16:16:25.606Z
+updated: 2024-09-28T18:37:12.105Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,13 @@ Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
@@ -52,6 +59,13 @@ Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
 
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
 
@@ -64,6 +78,26 @@ The last leg of competition among skaters before reaching the finishing line at 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -98,10 +132,10 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
@@ -113,13 +147,6 @@ Step 4: Add all the still footages and clips on the Video Timeline while add aud
 Step 5: Select individual slides and apply Transition, Effects or add Titles and Elements from the top bar.
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -142,5 +169,24 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-enhancing-film-aesthetics-with-luts-technology-for-2024/"><u>[New] Enhancing Film Aesthetics with Luts Technology for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-from-basic-players-to-gamers-paradise-the-kinemaster-android-experience/"><u>[New] In 2024, From Basic Players to Gamers' Paradise The KineMaster Android Experience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-humorous-hits-lifetime-access-to-memes/"><u>[New] In 2024, Humorous Hits Lifetime Access to Memes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-unleash-full-potential-in-yi-4k-recording/"><u>[New] In 2024, Unleash Full Potential in YI 4K Recording</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-innovative-techniques-for-superior-canva-visuals/"><u>[Updated] In 2024, Innovative Techniques for Superior Canva Visuals</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-top-tier-business-data-haven-selection/"><u>[Updated] Top-Tier Business Data Haven Selection</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-visionary-insights-selecting-from-5-premier-slow-cameras/"><u>[Updated] Visionary Insights Selecting From 5 Premier Slow Cameras</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-harmonizing-hues-3-swift-strategies-for-perfect-color-balance/"><u>2024 Approved Harmonizing Hues 3 Swift Strategies for Perfect Color Balance</u></a></li>
+<li><a href="https://extra-information.techidaily.com/essential-tools-for-motion-artwork/"><u>Essential Tools for Motion Artwork</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-harnessing-spotifys-melodies-practical-steps-for-digitally-capturing-playlists-and-songs/"><u>In 2024, Harnessing Spotifys Melodies Practical Steps for Digitally Capturing Playlists and Songs</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-motorola-moto-g-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Motorola Moto G 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/mastering-the-art-of-fixing-radeon-r9-in-win11/"><u>Mastering the Art of Fixing Radeon R9 in Win11</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/prophotomaster-the-ai-enhanced-editing-edge-for-2024/"><u>ProPhotoMaster The AI-Enhanced Editing Edge for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolve-windows-10-problems-with-airpods-microphone-not-working/"><u>Resolve Windows 10 Problems with AirPods' Microphone Not Working</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unlocking-sound-with-pazera-a-2024-audio-extractor-review/"><u>Unlocking Sound with Pazera A 2024 Audio Extractor Review</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-sony-vegas-or-adobe-premiere-pro-which-video-editing-software-is-right-for-you-2023-guide-for-2024/"><u>Updated Sony Vegas or Adobe Premiere Pro Which Video Editing Software Is Right for You? 2023 Guide for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/upgrade-now-secure-your-windows-11-professional-copy-with-a-staggering-87-savings-opportunity/"><u>Upgrade Now: Secure Your Windows 11 Professional Copy with a Staggering 87% Savings Opportunity!</u></a></li>
+</ul></div>
 

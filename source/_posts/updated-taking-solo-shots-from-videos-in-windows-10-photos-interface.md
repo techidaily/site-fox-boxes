@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Taking Solo Shots From Videos in Windows 10 Photos Interface"
-date: 2024-09-19T16:21:42.528Z
-updated: 2024-09-22T18:55:17.514Z
+date: 2024-09-23T19:51:08.960Z
+updated: 2024-09-28T20:33:45.294Z
 tags: 
   - screen-recording
   - ai video
@@ -69,13 +69,40 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 
 We are explaining the solutions here –
 
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
 
@@ -89,28 +116,21 @@ Here comes the guide –
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -135,5 +155,21 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-critically-acclaimed-vr-film-selections/"><u>[New] In 2024, Critically Acclaimed VR Film Selections</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-master-avi-gif-transformation-an-all-inclusive-guide-by-filmora/"><u>[Updated] 2024 Approved Master AVI-GIF Transformation An All-Inclusive Guide by Filmora</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-expert-guide-to-video-to-audio-10-best-tools-reviewed-for-2024/"><u>[Updated] Expert Guide to Video-to-Audio #10 Best Tools Reviewed for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-decoding-video-compression-excellence-av1-vs-vp9/"><u>[Updated] In 2024, Decoding Video Compression Excellence AV1 vs VP9</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/1723175669337-deciding-on-perfect-pc-ventilation-the-battle-between-pwm-and-dc-fans-for-optimal-performance/"><u>Deciding on Perfect PC Ventilation: The Battle Between PWM and DC Fans for Optimal Performance.</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/enlightened-approach-to-youtube-titles-with-ai/"><u>Enlightened Approach to YouTube Titles with AI</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/expressive-echoes-mastering-snapchats-cartoon-face-effects-for-2024/"><u>Expressive Echoes Mastering Snapchat's Cartoon Face Effects for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-premium-selection-top-8-tripods-for-clear-4k-videos/"><u>In 2024, Premium Selection Top 8 Tripods for Clear 4K Videos</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-from-realme-gt-5-pro-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Realme GT 5 Pro FRP Bypass</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-unveiling-the-secret-sauce-for-astonishing-gifs-from-vimeo-videos/"><u>In 2024, Unveiling the Secret Sauce for Astonishing GIFs From Vimeo Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/silicon-valleys-challenge-the-impact-of-antitrust-reforms/"><u>Silicon Valley's Challenge: The Impact of Antitrust Reforms</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-subscriber-sequence-strategizing-success-on-youtube-for-2024/"><u>The Subscriber Sequence Strategizing Success on YouTube for 2024</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/the-ultimate-tutorial-for-irreversibly-clearing-your-iphones-memory/"><u>The Ultimate Tutorial for Irreversibly Clearing Your iPhone's Memory</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/value-vs-trustworthiness-the-thermopro-tp-67-temperature-gauge-reviewed/"><u>Value Vs. Trustworthiness: The ThermoPro TP 67 Temperature Gauge Reviewed</u></a></li>
+</ul></div>
 

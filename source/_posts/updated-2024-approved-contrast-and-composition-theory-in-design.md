@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Contrast and Composition  Theory in Design\""
-date: 2024-09-20T20:09:32.882Z
-updated: 2024-09-22T18:16:34.523Z
+date: 2024-09-22T16:12:02.179Z
+updated: 2024-09-28T20:04:18.977Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,19 @@ Using red, green and blue as primary colors we can mix the colors to one another
 
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
 ## Color Harmony
@@ -56,10 +69,10 @@ The blue lines represent what is known as split contrasting colors and these wil
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
-  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## But How Do I Use This
@@ -69,10 +82,10 @@ You may still be unsure as to how to implement color theory into your videos. Le
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
@@ -82,6 +95,13 @@ As you can see from this example the base color for the scene is a dark blue/pur
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -115,5 +135,26 @@ By including this into your thought process when creating videos with [Filmora](
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-flipping-the-script-on-memes-with-kinemaster-for-2024/"><u>[New] Flipping the Script on Memes with KineMaster for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-harness-youtubes-potential-with-these-top-5-video-marketing-techniques-for-2024/"><u>[New] Harness YouTube’s Potential with These #Top 5 Video Marketing Techniques for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-ride-the-waves-with-top-tier-surf-cameras/"><u>[New] Ride the Waves with Top-Tier Surf Cameras</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-sweeten-your-messaging-top-phrases-to-impact-audiences/"><u>[New] Sweeten Your Messaging Top Phrases to Impact Audiences</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-top-alert-tones-superior-download-sites-list-for-2024/"><u>[New] Top Alert Tones Superior Download Sites List for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-discover-10-exceptional-commodity-lut-files/"><u>[Updated] 2024 Approved Discover 10 Exceptional Commodity LUT Files</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-ideal-set-best-8-macbook-themes-and-skins-for-2024/"><u>[Updated] Ideal Set Best 8 MacBook Themes & Skins for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-rapid-methods-to-customize-your-soundscaping-in-pubg/"><u>[Updated] In 2024, Rapid Methods to Customize Your Soundscaping in PUBG</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-single-frame-snipping-capturing-stillness-from-videos-in-photos/"><u>[Updated] In 2024, Single-Frame Snipping Capturing Stillness From Videos in Photos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-stepwise-journey-becoming-a-pro-with-audacity-for-recording/"><u>2024 Approved Stepwise Journey Becoming a Pro with Audacity for Recording</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/discover-the-art-of-quickly-tweaking-game-characters-voices-in-pubg/"><u>Discover the Art of Quickly Tweaking Game Characters' Voices in PUBG</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-poco-c65-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Poco C65 Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-innovators-choice-top-5-state-of-the-art-slow-cams/"><u>In 2024, Innovators' Choice Top 5 State-of-the-Art Slow Cams</u></a></li>
+<li><a href="https://common-error.techidaily.com/masterclass-eliminating-driver-power-disruptions-in-windows-systems/"><u>Masterclass: Eliminating Driver Power Disruptions in Windows Systems</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/maximizing-your-experience-with-gemini-add-ons-for-googles-bard-tips-and-tricks/"><u>Maximizing Your Experience with Gemini Add-Ons for Google's Bard - Tips and Tricks</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/path-profile-picture-dimensions-for-2024/"><u>Path Profile Picture Dimensions for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/the-ultimate-guide-to-tackling-printer-error-xfffee/"><u>The Ultimate Guide to Tackling Printer Error XFFFEE</u></a></li>
+<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Nokia G42 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/zooming-in-advanced-screen-share-techniques-for-2024/"><u>Zooming In Advanced Screen-Share Techniques for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Lightning-Fast Photo Tweaks in Windows 11\""
-date: 2024-09-19T20:00:10.205Z
-updated: 2024-09-22T16:10:00.261Z
+date: 2024-09-21T16:05:36.711Z
+updated: 2024-09-28T19:38:52.527Z
 tags: 
   - screen-recording
   - ai video
@@ -66,11 +66,25 @@ Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lu
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/lunapic-drawing.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Select the color from the range of palette available
 * Select the pen size using the given number scroll option
 * Click on apply if you are all set to draw or click on clear if you wish to make changes
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/editing-drawings-on-windows-10.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * To save your drawing on the image, you must click on Apply after each action you make with the tool
 
@@ -80,7 +94,21 @@ The Photos app has an interface that is restructured with dark theme options and
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -105,12 +133,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-novices-guide-to-animated-videos-with-wmm-for-2024/"><u>[New] Novice's Guide to Animated Videos with WMM for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-pickus-impact-on-mobile-photography-a-comparative-study-for-2024/"><u>[New] PickU's Impact on Mobile Photography – A Comparative Study for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-inshot-alternatives-for-laptop-editors/"><u>[Updated] 2024 Approved Inshot Alternatives for Laptop Editors</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-fabricate-comical-artwork-adobe-style/"><u>[Updated] Fabricate Comical Artwork, Adobe Style</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-exploring-the-genesis-and-evolution-of-windows-movie-maker/"><u>[Updated] In 2024, Exploring the Genesis and Evolution of Windows Movie Maker</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-pinnacle-of-iphone-photography-finding-ultimate-angles-for-2024/"><u>[Updated] The Pinnacle of iPhone Photography Finding Ultimate Angles for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-quick-route-to-true-profile-ages-on-tiktok-for-2024/"><u>[Updated] The Quick Route to True Profile Ages on TikTok for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-quick-guide-to-nokia-c02-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to Nokia C02 FRP Bypass Instantly</u></a></li>
+<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-honor-x50iplus-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Honor X50i+ to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/best-free-voice-changer-for-valorant-you-should-have-a-try/"><u>Best Free Voice Changer for Valorant You Should Have a Try</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/compact-and-portable-model-0-the-flamingo-pc-case-with-folding-design-for-mini-itx-systems/"><u>Compact & Portable Model 0: The Flamingo PC Case with Folding Design for Mini-ITX Systems</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/disabled-iphone-x-how-to-unlock-a-disabled-iphone-x-by-drfone-ios/"><u>Disabled iPhone X How to Unlock a Disabled iPhone X?</u></a></li>
+<li><a href="https://common-error.techidaily.com/effortless-fixes-to-get-your-overwatch-voice-chat-up-and-running-again/"><u>Effortless Fixes to Get Your Overwatch Voice Chat Up and Running Again</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/exploring-the-influence-of-luts-on-digital-imagery-quality/"><u>Exploring the Influence of LUTs on Digital Imagery Quality</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-realme-v30t-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-oppo-f25-pro-5g-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Oppo F25 Pro 5G FRP</u></a></li>
+<li><a href="https://extra-support.techidaily.com/master-iphone-cinematography-top-8-tips-for-professional-video-shooting-for-2024/"><u>Master iPhone Cinematography Top 8 Tips for Professional Video Shooting for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/niche-marketing-through-periscope-broadcasts/"><u>Niche Marketing Through Periscope Broadcasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-google-pixel-5-unveiled-a-mid-range-marvel-with-high-end-attributes/"><u>The Google Pixel 5 Unveiled: A Mid-Range Marvel with High-End Attributes</u></a></li>
+</ul></div>
 
