@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Deciphering Disguised Dialogues with YouTube Viewers\""
-date: 2024-09-16T16:15:21.370Z
-updated: 2024-09-22T17:03:40.103Z
+date: 2024-09-29T19:42:24.712Z
+updated: 2024-10-03T23:48:00.807Z
 tags: 
   - screen-recording
   - ai video
@@ -70,6 +70,13 @@ Given how many students have smartphones, video is an excellent medium for conne
 
 ![](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to See Liked Comments on YouTube?
 
 YouTube is a service that is available for free, and it may be a terrific place for teenagers to find interest. Many young people use YouTube to watch comedy shows, how-to videos, recipes, hacks, and music videos. Teenagers also use the video-sharing platform to subscribe to other YouTubers and famous personalities and to follow their favorite vloggers (video bloggers).
@@ -114,9 +121,23 @@ Now you will see the videos you liked or disliked and also the comments you like
 
 ![date likes videos youtube](https://images.wondershare.com/filmora/article-images/2022/11/date-likes-videos-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 This article tells you that you can't see who liked or disliked a comment, but you can see how many likes or dislikes a comment got. Then go to any video you want, scroll down to the comment section, and see how many likes or dislikes a comment received.
 
 ![likes comment received](https://images.wondershare.com/filmora/article-images/2022/11/likes-comment-received.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 In this image, the following comments only got likes and no dislikes. That is why there are just written numbers on the like button and on the dislike button there are none.
 
@@ -171,10 +192,17 @@ Additionally, video creators can manually highlight commenters to mark them for 
 ![](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to See Liked Comments on YouTube?
@@ -195,13 +223,6 @@ Step1 Click on your Google Account icon and find **Your data in YouTube**.
 
 ![find your data in youtube](https://images.wondershare.com/filmora/article-images/2022/11/find-your-data-in-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 Scroll down a little bit and click the **More** button.
 
 ![your youtube dashboard more](https://images.wondershare.com/filmora/article-images/2022/11/your-youtube-dashboard-more.jpg)
@@ -209,13 +230,6 @@ Step2 Scroll down a little bit and click the **More** button.
 Step3 Click the **Comments** section.
 
 ![click comments your youtube dashboard](https://images.wondershare.com/filmora/article-images/2022/11/click-comments-your-youtube-dashboard.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now you will see your comment history, including the date when you commented on a certain video and also the exact comment you posted.
 
@@ -227,22 +241,15 @@ Step4 In the **Google My Activity** tab, click **Other activity**.
 
 ![other activity youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/other-activity-youtube-comments.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step5 Scroll down and find **Comment Likes and Dislikes on YouTube** section. Click **View Comment Likes and Dislikes**.
 
 ![your comment likes and dislikes](https://images.wondershare.com/filmora/article-images/2022/11/your-comment-likes-and-dislikes.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Now you will see the videos you liked or disliked and also the comments you liked or disliked, including the date when you liked or disliked the video/comment.
@@ -252,6 +259,13 @@ Now you will see the videos you liked or disliked and also the comments you like
 This article tells you that you can't see who liked or disliked a comment, but you can see how many likes or dislikes a comment got. Then go to any video you want, scroll down to the comment section, and see how many likes or dislikes a comment received.
 
 ![likes comment received](https://images.wondershare.com/filmora/article-images/2022/11/likes-comment-received.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 In this image, the following comments only got likes and no dislikes. That is why there are just written numbers on the like button and on the dislike button there are none.
 
@@ -286,6 +300,13 @@ Remember that you can only leave comments on videos that are public (or unlisted
 Because understanding how to comment is only one aspect of the issue; very important is knowing how to comment well. A brand's YouTube remark should provide value beyond simply attempting to sell something.
 
 Try making a joke, pointing out something amusing, providing helpful information, or expressing sympathy or concern for a fan. Additionally, a simple thumbs-up or heart can go a long way to demonstrate that you are paying attention even if you aren't feeling very friendly (we all have bad days, it's OK!).
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Did you know what a Highlighted comment is?
 
@@ -323,5 +344,26 @@ Additionally, video creators can manually highlight commenters to mark them for 
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-enhanced-exhilaration-curated-list-of-best-srt-upgrades-for-pc-and-mac/"><u>[New] 2024 Approved Enhanced Exhilaration Curated List of Best SRT Upgrades for PC & Mac</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-essential-videography-the-leading-screen-recorder-apps/"><u>[New] 2024 Approved Essential Videography The Leading Screen Recorder Apps</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-artists-toolbox-essential-video-tips-for-musicians-on-youtube/"><u>[New] 2024 Approved The Artist's Toolbox Essential Video Tips for Musicians on YouTube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-the-editors-guide-to-age-old-vhs-effects-in-digital-video-production/"><u>[New] 2024 Approved The Editor's Guide to Age-Old VHS Effects in Digital Video Production</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-best-quick-windows-gallery-app/"><u>[New] In 2024, Best Quick Windows Gallery App</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-soar-high-and-stream-straight-dji-drone-techniques-for-facebook-live/"><u>[New] In 2024, Soar High & Stream Straight - DJI Drone Techniques for Facebook Live</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-interactive-escapes-top-10-virtual-accessories-for-2024/"><u>[New] Interactive Escapes Top 10 Virtual Accessories for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-navigating-speed-settings-for-snapchat-content/"><u>[Updated] Navigating Speed Settings for Snapchat Content</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-premium-clock-selections-for-your-big-day-on-mobile-for-2024/"><u>[Updated] Premium Clock Selections for Your Big Day on Mobile for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-windows-11s-fresh-perspectives-explored/"><u>[Updated] Windows 11'S Fresh Perspectives Explored</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-crafted-collections-of-ig-pics/"><u>2024 Approved Crafted Collections of IG Pics</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-smartphone-to-screen-uploading-pics-on-youtube/"><u>2024 Approved From Smartphone to Screen Uploading Pics on YouTube</u></a></li>
+<li><a href="https://driver-error.techidaily.com/cracking-the-case-for-missing-signal-proc-on-pc/"><u>Cracking the Case for Missing Signal Proc on PC</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/enhance-your-setup-with-our-diy-kit-seamless-pcie-connection-for-mini-pc-to-egpu-outperforming-thunderbolt-4-speeds/"><u>Enhance Your Setup with Our DIY Kit - Seamless PCIe Connection for Mini PC to eGPU Outperforming Thunderbolt 4 Speeds</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/exploring-hexacopter-wonders-10-list/"><u>Exploring Hexacopter Wonders - #10 List</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/is-fake-gps-location-spoofer-a-good-choice-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>Is Fake GPS Location Spoofer a Good Choice On Realme Note 50? | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/troubleshooting-and-resolving-the-problem-of-installing-windows-on-non-gpt-disks/"><u>Troubleshooting and Resolving the Problem of Installing Windows on Non-GPT Disks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unveiling-best-live-stream-tools-for-gamers-for-2024/"><u>Unveiling Best Live-Stream Tools for Gamers for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-top-10-face-blurring-tools-for-photos-and-videos-free-and-easy-to-use/"><u>Updated In 2024, Top 10 Face Blurring Tools for Photos and Videos (Free & Easy to Use)</u></a></li>
+</ul></div>
 

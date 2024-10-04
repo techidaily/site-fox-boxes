@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Ice Warriors Unleashed at 2022 Games"
-date: 2024-09-23T16:24:52.187Z
-updated: 2024-09-28T20:20:32.062Z
+date: 2024-10-02T03:25:37.027Z
+updated: 2024-10-03T19:40:14.165Z
 tags: 
   - screen-recording
   - ai video
@@ -29,13 +29,6 @@ Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with contr
 
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1\. Introduce some highlights in short track speed skating with images
 
 Here are the main highlights of 1500 meter short track speed skating held at the Capital Indoor Stadium in Beijing on Wednesday.
@@ -44,27 +37,20 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
@@ -73,13 +59,6 @@ Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
 
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
 
@@ -92,6 +71,13 @@ The last leg of competition among skaters before reaching the finishing line at 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -106,6 +92,13 @@ To create such a highlight video on any sports event, there are certain videos e
 **Motion Tracking** – Using motion tracking, you can track the movement of a particular object or athlete in a video. This helps to attach certain elements such as clipart, text, icon to that particular athlete throughout the video for easy identification by the viewers.
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -126,10 +119,10 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
@@ -141,6 +134,13 @@ Step 4: Add all the still footages and clips on the Video Timeline while add aud
 Step 5: Select individual slides and apply Transition, Effects or add Titles and Elements from the top bar.
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -165,22 +165,16 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-innovative-techniques-for-recording-instagram-story-highlights/"><u>[New] In 2024, Innovative Techniques for Recording Instagram Story Highlights</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-intensive-analysis-macos-screenflow-version-4/"><u>[New] In 2024, Intensive Analysis MacOS screenFlow Version 4</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-making-photographs-larger-without-losing-quality-for-2024/"><u>[New] Making Photographs Larger Without Losing Quality for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-expert-techniques-for-crafting-high-end-gopro-vlogs/"><u>[Updated] Expert Techniques for Crafting High-End GoPro Vlogs</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-optimal-steadicam-devices-for-professional-drone-cinematography/"><u>[Updated] In 2024, Optimal Steadicam Devices for Professional Drone Cinematography</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-a-comprehensive-guide-to-mastering-gopro-hero5-time-lapse/"><u>2024 Approved A Comprehensive Guide to Mastering GoPro Hero5 Time-Lapse</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-ideal-apps-for-advancing-android-pics/"><u>2024 Approved Ideal Apps for Advancing Android Pics</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-unleash-your-pcs-hidden-treasures-with-new-windows-10-games/"><u>2024 Approved Unleash Your PC’s Hidden Treasures with New Windows 10 Games</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-virtual-frontiers-the-ultimate-guide-to-metavision-in-science-fiction-cinema/"><u>2024 Approved Virtual Frontiers The Ultimate Guide to Metavision in Science Fiction Cinema</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/a-guide-to-using-snapchats-influencer-showcase-for-2024/"><u>A Guide to Using Snapchat's Influencer Showcase for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/advanced-editing-guide-for-creating-compelling-360-degree-videos-using-premiere-pro-for-2024/"><u>Advanced Editing Guide for Creating Compelling 360-Degree Videos Using Premiere Pro for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/cinemas-craftsmanship-the-best-camera-tricks-and-techniques-24-edition/"><u>Cinema's Craftsmanship The Best Camera Tricks & Techniques - '24 Edition</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/delving-into-hidden-discussions-among-viewers/"><u>Delving Into Hidden Discussions Among Viewers</u></a></li>
-<li><a href="https://games-able.techidaily.com/simplify-gaming-bliss-play-xbox-game-pass-on-steam-and-glossi/"><u>Simplify Gaming Bliss - Play Xbox Game Pass on Steam & GlosSI</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-honor-90-gt-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Honor 90 GT Device</u></a></li>
-<li><a href="https://solve-luxury.techidaily.com/top-strategies-for-effective-content-duplication-and-plagiarism-free-techniques/"><u>Top Strategies for Effective Content Duplication & Plagiarism-Free Techniques</u></a></li>
-<li><a href="https://win-forum.techidaily.com/transformez-un-fichier-raw-en-format-avi-en-ligne-sans-frais-movavi/"><u>Transformez Un Fichier RAW en Format AVI En Ligne Sans Frais - Movavi</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-navigate-past-edgenuity-stealthy-study-strategies/"><u>[New] Navigate Past Edgenuity Stealthy Study Strategies</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-visionupgrade-pro-universal-platform-edition-for-2024/"><u>[New] VisionUpgrade Pro – Universal Platform Edition for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-high-fidelity-graphics-on-4k-an-in-depth-look-at-proart-monitors/"><u>[Updated] High-Fidelity Graphics on 4K An In-Depth Look at ProArt Monitors</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-ultimate-guide-snowboardingskiing-with-high-quality-cams/"><u>2024 Approved Ultimate Guide Snowboarding/Skiing with High-Quality Cams</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1726030521373-mp3/"><u>知らなければ誤解：簡単にMP3形式へ変換できるオーディオ録音の手順</u></a></li>
+<li><a href="https://extra-information.techidaily.com/average-earnings-for-podcast-creators-for-2024/"><u>Average Earnings for Podcast Creators for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-unrivaled-selection-of-no-cost-4k-video-players-for-windows/"><u>In 2024, Unrivaled Selection of No-Cost 4K Video Players for Windows</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, Ways to stop parent tracking your Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/top-10-outils-gratuit-de-transformation-video-par-ia-pour-windows-et-mac/"><u>Top 10 Outils Gratuit De Transformation Vidéo Par IA Pour Windows Et Mac</u></a></li>
+<li><a href="https://blog-min.techidaily.com/ultimate-guide-why-1more-sonoflow-wireless-earbuds-offer-unbeatable-value/"><u>Ultimate Guide: Why 1MORE SonoFlow Wireless Earbuds Offer Unbeatable Value</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-elevate-your-video-content-with-advanced-64-bit-editing-capabilities/"><u>Updated In 2024, Elevate Your Video Content with Advanced 64-Bit Editing Capabilities</u></a></li>
 </ul></div>
 

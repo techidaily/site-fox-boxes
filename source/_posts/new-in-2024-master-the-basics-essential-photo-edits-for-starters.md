@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Master the Basics  Essential Photo Edits for Starters\""
-date: 2024-09-17T16:06:12.533Z
-updated: 2024-09-22T18:23:29.494Z
+date: 2024-09-27T23:30:12.850Z
+updated: 2024-10-04T00:20:41.451Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,13 @@ You can also edit the edges of your sky by heading to "Shift Edge Slider," from 
 
 ![sky replacement feature](https://images.wondershare.com/filmora/article-images/2022/photoshop-photo-editing-tips-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Tip 2: Smart Portrait – Neural Filter
 
 The Smart Portrait is one of the exciting features through which you can make people old, young, angry, sad, and surprised. It's a fun way to explore the features of Photoshop picture editing by creating different emotions on people's faces. Moreover, you can also change the color of your hair and head willingly.
@@ -46,6 +53,19 @@ The Smart Portrait is one of the exciting features through which you can make pe
 To use this feature, navigate to “Filter” and then choose “Neural Filters” to explore it. Play around with the settings such as dragging the sliders of emotions such as happy, sad, angry, and many more.
 
 ![smart portrait feature settings](https://images.wondershare.com/filmora/article-images/2022/photoshop-photo-editing-tips-2.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Tip 3: Skin Smoothing – Neural Filter
 
@@ -56,10 +76,17 @@ In this feature, you can use the sliders of "Blur and Smoothness" to adjust the 
 ![photoshop skin smoothing](https://images.wondershare.com/filmora/article-images/2022/photoshop-photo-editing-tips-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Tip 4: Colorize - Neural Filter
@@ -87,10 +114,10 @@ On the "Reference Image," select the image whose makeup you would like to transf
 ![do makeup transfer photoshop](https://images.wondershare.com/filmora/article-images/2022/photoshop-photo-editing-tips-6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7\. Tip 7: Brush Search
@@ -100,10 +127,10 @@ It's hectic always to find the brushes you like and regularly use for graphic de
 ![brush search photoshop](https://images.wondershare.com/filmora/article-images/2022/photoshop-photo-editing-tips-7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 8\. Tip 8: Select Subject Improvement
@@ -113,13 +140,6 @@ Another upgrade in Photoshop editing is that you can easily select the subject w
 Afterward, you can easily change or remove the backgrounds without impacting the subject. To adjust the edges, you can use the refine brush to make the edges smooth of the subject with the background.
 
 ![select subject feature enhanced](https://images.wondershare.com/filmora/article-images/2022/photoshop-photo-editing-tips-8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 9\. Tip 9: Quick Actions
 
@@ -138,10 +158,10 @@ To access this particular tool, access the “Pen” tool and tap on the "Pen To
 ![content aware tracing tool](https://images.wondershare.com/filmora/article-images/2022/photoshop-photo-editing-tips-10.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -170,5 +190,26 @@ Without any doubt, Adobe Photoshop is one of the notorious tools to conduct adva
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-capturing-the-world-in-full-circle-experts-360-cams-review-2023/"><u>[New] 2024 Approved Capturing the World in Full Circle - Expert's 360 Cams Review, 2023</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-effortless-image-incorrante-on-instagram/"><u>[New] 2024 Approved Effortless Image Incorrante on Instagram</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-the-art-of-replaying-twitch-live-streams/"><u>[New] 2024 Approved The Art of Replaying Twitch Live Streams</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-video-spark-illuminating-techniques-for-stellar-footage/"><u>[New] 2024 Approved Video Spark Illuminating Techniques for Stellar Footage</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-from-recording-to-releasing-editing-in-garageband/"><u>[New] From Recording to Releasing Editing in GarageBand</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-mastering-fb-live-streams-a-guide-for-roku-users/"><u>[New] In 2024, Mastering FB Live Streams A Guide for Roku Users</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-editors-toolkit-elevating-your-video-with-inshot-transitions-for-2024/"><u>[New] The Editor's Toolkit Elevating Your Video with Inshot Transitions for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-boost-your-youtube-success-with-free-high-quality-audio/"><u>[Updated] 2024 Approved Boost Your YouTube Success with Free, High-Quality Audio</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-no-8-advanced-online-photographic-merge-suite/"><u>[Updated] In 2024, No. 8 Advanced Online Photographic Merge Suite</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-unearthing-unique-content-for-youtubes-spotlight/"><u>[Updated] Unearthing Unique Content for Youtube's Spotlight</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-facebooks-vibe-todays-hot-ten-music-clips/"><u>2024 Approved Facebook’s Vibe Today’s Hot Ten Music Clips</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-navigating-through-pc-hdr-content-watch-edit-enjoy/"><u>2024 Approved Navigating Through PC HDR Content Watch, Edit, Enjoy</u></a></li>
+<li><a href="https://win-blog.techidaily.com/bypassing-error-re-establish-your-destiny-grope-with-these-fixes/"><u>Bypassing Error: Re-Establish Your Destiny Grope With These Fixes</u></a></li>
+<li><a href="https://apple-account.techidaily.com/forgot-your-apple-id-password-and-email-on-iphone-14-pro-max-heres-the-best-fixes-by-drfone-ios/"><u>Forgot Your Apple ID Password and Email On iPhone 14 Pro Max? Heres the Best Fixes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/how-much-will-it-cost-to-shoot-a-music-video-in-2024/"><u>How Much Will It Cost To Shoot A Music Video, In 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-elevate-video-quality-prime-4k-conversion-solutions/"><u>In 2024, Elevate Video Quality Prime 4K Conversion Solutions</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/m4-mac-mini-revealed-inside-look-at-potential-features-price-points-and-arrival-dates/"><u>M4 Mac Mini Revealed? Inside Look at Potential Features, Price Points, and Arrival Dates</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-ultimate-hdr-conversion-playbook-starting-with-sdr/"><u>The Ultimate HDR Conversion Playbook - Starting with SDR</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/top-picks-9-innovative-mobile-video-conferencing-tools-iphoneandroid-for-2024/"><u>Top Picks 9 Innovative Mobile Video Conferencing Tools iPhone/Android for 2024</u></a></li>
+</ul></div>
 

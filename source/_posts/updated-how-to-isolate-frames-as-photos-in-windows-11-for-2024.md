@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Isolate Frames as Photos in Windows 11 for 2024"
-date: 2024-09-15T18:53:47.968Z
-updated: 2024-09-22T18:49:12.581Z
+date: 2024-09-30T16:48:03.397Z
+updated: 2024-10-04T03:16:47.730Z
 tags: 
   - screen-recording
   - ai video
@@ -63,11 +63,31 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Why I can’t save photo from video
 
 In case, you are not able to save photos from video on Windows 10 Photos App. There might be issues with an outdated [Microsoft OS patch update](https://support.microsoft.com/en-us/help/311047/how-to-keep-your-windows-computer-up-to-date) or the Microsoft account is having any problem. But, you don’t have to worry about the same.
 
 We are explaining the solutions here –
+
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Check the update
 
@@ -78,10 +98,10 @@ Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Upd
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
@@ -106,10 +126,10 @@ We provided you some knowledge on how to save a photo from video Windows 10 Phot
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -135,5 +155,23 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-lg-27ud88-w-4k-usb-type-c-monitor-complete-review/"><u>[New] 2024 Approved LG 27UD88-W 4K USB Type-C Monitor Complete Review</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-tips-for-optimizing-virtual-meetings-through-gmail-and-zoom-for-2024/"><u>[New] Tips for Optimizing Virtual Meetings Through Gmail & Zoom for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-flight-paths-revealed-full-review-of-dji-phantom-4/"><u>[Updated] 2024 Approved Flight Paths Revealed Full Review of DJI Phantom 4</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-delving-into-new-iphone-photography-paradigms-with-ios-11/"><u>[Updated] Delving Into New iPhone Photography Paradigms with iOS 11</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-top-8-ios-pencil-programs-perfected-for-ipados/"><u>[Updated] Top 8 iOS Pencil Programs Perfected for iPadOS</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/beating-the-bluescreen-of-death-in-helldivers-2-expert-tips-and-tricks/"><u>Beating the Bluescreen of Death in Helldivers 2 – Expert Tips and Tricks</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/complete-guide-for-apple-iphone-15-pro-lock-screen-drfone-by-drfone-ios/"><u>Complete Guide For Apple iPhone 15 Pro Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/gmail-not-working-on-honor-magic-v2-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Honor Magic V2 7 Common Problems & Fixes | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/immediate-impact-shots-learn-the-top-5-home-film-tips-now-for-2024/"><u>Immediate Impact Shots Learn the Top 5 Home Film Tips Now for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-a-compreranium-of-hand-tracking-systems/"><u>In 2024, A Compreranium of Hand Tracking Systems</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/pc-troubles-heres-how-to-get-tekken-8-up-and-running-smoothly-again/"><u>PC Troubles? Here's How to Get Tekken 8 Up and Running Smoothly Again!</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-ultimate-guide-to-boosting-views-on-tiktok-unboxings/"><u>The Ultimate Guide to Boosting Views on TikTok Unboxings</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-ultimate-guide-to-nikon-j5s-4k-capability-for-2024/"><u>The Ultimate Guide to Nikon J5's 4K Capability for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-ultimate-list-of-7-smart-ai-solutions-for-tackling-math-challenges/"><u>The Ultimate List of 7 Smart AI Solutions for Tackling Math Challenges</u></a></li>
+<li><a href="https://media-tips.techidaily.com/unlock-seamless-music-transitions-activating-the-crossfade-option-in-apple-music/"><u>Unlock Seamless Music Transitions: Activating the Crossfade Option in Apple Music</u></a></li>
+</ul></div>
 

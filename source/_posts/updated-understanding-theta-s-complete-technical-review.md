@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Understanding Theta S  Complete Technical Review\""
-date: 2024-09-20T16:54:17.381Z
-updated: 2024-09-22T19:47:11.410Z
+date: 2024-10-02T02:57:33.698Z
+updated: 2024-10-04T01:42:52.248Z
 tags: 
   - screen-recording
   - ai video
@@ -75,6 +75,13 @@ The picture quality is simply outstanding and is rated to be much better than al
 
 As this device provides easy connectivity to other iOS, Android devices as well as to PCs so it becomes much easier to transfer captured images and videos for further editing. Theta App allows users to create wonders out of spherical imaging where panning and zooming features are commonly used. The desktop version of Theta app limits users to just view and share their data without any editing feature whereas the third app known as Theta+ Video is capable enough to work for editing on iOS devices.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2 Pros and Cons at a glance
 
 | Pros                                                                                   | Cons                                                                  |
@@ -87,6 +94,13 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | Great still image quality                                                              |                                                                       |
 | Cloud service for image sharing                                                        |                                                                       |
 | Remote control (via App)                                                               |                                                                       |
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3 Basic specs of Ricoh Theta S
 
@@ -105,10 +119,10 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | **Image format**         | JPEG (EXIF 2.3)- The most commonly used format.           | **Video File Format** | Live streaming via HDMI supported (L:1920x1080/30fps M: 1280x720/30fps S: 720x480/30fps); Live streaming (USB): MP4 (video: MPEG-4 AVC); Motion JPEG (1280x720/15fps) |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4 Should I buy Ricoh Theta S
@@ -120,10 +134,10 @@ Theta S is one of the most useful products for photography lovers whether they a
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -149,5 +163,18 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-heads-up-on-high-tech-the-best-motorcycle-cam-gear-guide-in-23/"><u>[New] 2024 Approved Heads Up on High-Tech - The Best Motorcycle Cam Gear Guide in '23</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-trusted-6-platforms-supporting-biz-success-stories/"><u>[Updated] 2024 Approved Trusted 6 Platforms Supporting Biz Success Stories</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-comprehensive-guide-to-obtaining-visual-assets-for-2024/"><u>[Updated] Comprehensive Guide to Obtaining Visual Assets for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-iphone-hdr-excellence-comprehensive-tutorial/"><u>[Updated] IPhone HDR Excellence Comprehensive Tutorial</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-transform-your-photographic-vision-with-iphone-burst-shooting/"><u>2024 Approved Transform Your Photographic Vision with iPhone Burst Shooting</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-turn-up-the-scene-speed-on-your-iphone-filming-and-slowing-down-methods/"><u>2024 Approved Turn Up the Scene Speed on Your iPhone Filming & Slowing Down Methods</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-new-era-for-in-car-entertainment-systems/"><u>A New Era for In-Car Entertainment Systems</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/outstanding-book-trailer-samples-for-2024/"><u>Outstanding Book Trailer Samples for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-9-live-game-streaming-platform-you-should-know/"><u>Top 9 Live Game Streaming Platform You Should Know</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-the-ultimate-list-10-best-free-online-video-looping-software-for-2024/"><u>Updated The Ultimate List 10 Best Free Online Video Looping Software for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/be-and-dailymotion-unveiling-core-variations-for-2024/"><u>YouTube & Dailymotion Unveiling Core Variations for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Expert Techniques for Immediate Backdrop Displacement in Affinity Photo Editing"
-date: 2024-09-22T18:55:32.170Z
-updated: 2024-09-28T19:56:41.744Z
+date: 2024-10-02T19:31:21.881Z
+updated: 2024-10-03T23:51:52.413Z
 tags: 
   - screen-recording
   - ai video
@@ -31,13 +31,6 @@ No matter you are a professional content creator or a newbie, we'll be discussin
 
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Erase a White Background in Affinity Designer
 
 To erase a white background in Affinity Designer, do these steps:
@@ -57,10 +50,10 @@ Step3 To make a selection around your subject, first enable the **"Snap To Edges
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
@@ -74,6 +67,19 @@ Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** 
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
 
 Now, hit **"Control+D"** to deselect the selection. Alternatively, you can click **"Select"** in the top toolbar and choose the **"Deselect"** option. Finally, you can export your file using the **"File" > "Export"** option.
+
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Remove a Busy Background in Affinity Designer
 
@@ -102,14 +108,14 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Best Alternative of Affinity Photo
 
@@ -118,13 +124,6 @@ Since Affinity Photo is a desktop software available for a one-time purchase of 
 Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
@@ -160,6 +159,19 @@ Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.co
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
 * Offline and online image editing tools.
@@ -177,10 +189,10 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -217,21 +229,20 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-audiovisual-allure-crafting-irresistible-podcast-previews/"><u>[New] 2024 Approved Audiovisual Allure Crafting Irresistible Podcast Previews</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-bring-to-life-the-dance-of-light-on-faces-employing-motion-blur-effects-in-picsart/"><u>[New] Bring to Life the Dance of Light on Faces Employing Motion Blur Effects in Picsart</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-no-complications-approach-switching-up-flipper-voices-in-windows-domain/"><u>[New] In 2024, No-Complications Approach Switching Up Flipper Voices in Windows Domain</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-navigating-youtubes-landscape-a-beginners-primer/"><u>[New] Navigating YouTube's Landscape A Beginner's Primer</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-winning-windows-wisdom-quick-photo-mastery/"><u>[New] Winning Window's Wisdom Quick Photo Mastery</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-from-creation-your-guide-to-googles-audio-upload/"><u>[Updated] From Creation Your Guide to Google's Audio Upload</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-how-to-safeguard-snapchat-videos-in-devices-and-oses-for-2024/"><u>[Updated] How to Safeguard Snapchat Videos in Devices & OSes for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-how-to-convert-live-photo-to-video/"><u>[Updated] In 2024, How to Convert Live Photo to Video</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-speedy-visual-scan-of-your-pictures-on-win11/"><u>[Updated] In 2024, Speedy Visual Scan of Your Pictures on Win11</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-stepwise-simplification-broadcasting-personal-yt-videos-using-gmail/"><u>2024 Approved Stepwise Simplification Broadcasting Personal YT Videos Using Gmail</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/decoding-the-future-how-forefront-ai-stacks-up-against-chatgpt/"><u>Decoding the Future: How Forefront AI Stacks Up Against ChatGPT</u></a></li>
-<li><a href="https://location-social.techidaily.com/does-oppo-reno-10-5g-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Oppo Reno 10 5G Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/fifas-best-players-trendy-videos-on-youtube/"><u>FIFA's Best Players Trendy Videos on YouTube</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-joyjingles-where-to-find-hilarious-ringtone-links/"><u>In 2024, JoyJingles Where to Find Hilarious Ringtone Links</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/perfectly-polished-pictures-top-grid-tools-revealed/"><u>Perfectly Polished Pictures Top Grid Tools Revealed</u></a></li>
-<li><a href="https://fox-access.techidaily.com/volume-control-strategies-in-logic-pro-productions/"><u>Volume Control Strategies in Logic Pro Productions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-add-auditory-components-to-premiere-pro-videos/"><u>[New] Add Auditory Components to Premiere Pro Videos</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-hd-video-recording-for-windows-10-users/"><u>[New] HD Video Recording for Windows 10 Users</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-mobile-media-upload-share-videos-on-twitter-without-retweeting/"><u>[New] In 2024, Mobile Media Upload Share Videos on Twitter Without Retweeting</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-picsart-remove-bg-comprehensive-tutorial/"><u>[New] Picsart Remove Bg Comprehensive Tutorial</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-gain-free-photo-footage-via-essential-4-youtube-picks/"><u>[Updated] 2024 Approved Gain Free Photo Footage via Essential 4 YouTube Picks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-the-core-elements-of-kinetic-visual-storytelling/"><u>[Updated] 2024 Approved The Core Elements of Kinetic Visual Storytelling</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-the-pros-playlist-shuffle-manual/"><u>[Updated] In 2024, The Pro's Playlist Shuffle Manual</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/assessing-the-upsides-and-downsides-creative-writing-enhanced-by-chatgpt-technology/"><u>Assessing the Upsides & Downsides: Creative Writing Enhanced by ChatGPT Technology</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Lava Blaze 2? | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/choosing-a-streaming-powerhouse-obs-or-wirecast/"><u>Choosing a Streaming Powerhouse OBS or Wirecast?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-action-cam-aesthetics-top-15-high-impact-gopro-lut-choices/"><u>In 2024, Action Cam Aesthetics Top 15 High-Impact GOPRO LUT Choices</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-the-ultimate-guide-to-leveraging-preview-capabilities-on-a-mac/"><u>In 2024, The Ultimate Guide to Leveraging Preview Capabilities on a Mac</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/mastering-video-production-xstudio-deep-dive-for-2024/"><u>Mastering Video Production XStudio Deep Dive for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/powerdirector-command-center-a-complete-2024-examination/"><u>PowerDirector Command Center A Complete 2024 Examination</u></a></li>
 </ul></div>
 
