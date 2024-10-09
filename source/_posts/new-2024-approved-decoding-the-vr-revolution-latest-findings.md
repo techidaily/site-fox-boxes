@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Decoding the VR Revolution  Latest Findings\""
-date: 2024-09-29T18:47:52.464Z
-updated: 2024-10-03T21:34:06.944Z
+date: 2024-10-02T06:33:12.185Z
+updated: 2024-10-09T08:04:50.072Z
 tags: 
   - screen-recording
   - ai video
@@ -40,28 +40,28 @@ thumbnail: https://thmb.techidaily.com/de4f0312e209bc69406fe77be7db4ffab9fd4723c
 ![google-cardbaorad-1]( https://images.wondershare.com/filmora/resource/google-cardbaorad-1.jpg
  )
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The VR gaming development is truly rising then
 
  Is it really the right time to make comment like virtual reality is really uprising as a gaming platform? If you take the year of year survey report, yes the result shows a significant uptick for the interest of this platform. If we look back at the last year’s survey, it revealed that only 33.4 percent of the developers were interested to develop games for VR platforms. If you consider in terms of interest, VR was placed behind the PC/Mac, PlayStation 4, smartphones or tablets. But, considering this year’s data, we can see more advancement in the interest for the VR platform! More and more European developers are now getting interested to develop games for VR platforms that the smartphones or tablets.
 
 ![vr-gaming ](https://images.wondershare.com/filmora/resource/vr-gaming1.jpg )
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  This clears the air that VR is turning to be an emerging platform for the European game developers but, which one is preferred more by the professional game developers – is it the Oculus Rift or HTC Vive or something else for that matter? The survey also includes a detailed report on that as well. Asking about which VR platform they are using – 23.1 percent developers said they are using Rift, Vive is slightly behind with 22 percent developers’ preferences. There is PlayStation VR headset as well with 11.8 percent preferences.
 
  However, despite having such acceptance by the professional game developers, the confidence for the VR games market seems to have dropped a bit – at least the recent survey is showing something like that. Last year, 71.7 percent of the game developers considered VR to be a sustainable long-term market while in this year, it slipped a little with 68.8 percent developers are thinking VR could be a long sustaining gaming market.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## About the European VR game makers and their funding
@@ -71,10 +71,16 @@ thumbnail: https://thmb.techidaily.com/de4f0312e209bc69406fe77be7db4ffab9fd4723c
 ![ vr-developer](https://images.wondershare.com/filmora/resource/vr-developer.jpg )
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  We know that crowdsourced funding is also a preferable way to manage funds but, this seems not very convenient for the VR game developers since a very poor percentage (5.2) of the developers replied that they are working on games the fund of which is crowdsourced. While some developers consider this as an awful idea, some mentioned this to be a tricky process.
@@ -84,16 +90,16 @@ thumbnail: https://thmb.techidaily.com/de4f0312e209bc69406fe77be7db4ffab9fd4723c
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -121,19 +127,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-harnessing-digital-artistry-top-6-nft-makers-reviewed/"><u>[New] In 2024, Harnessing Digital Artistry - Top 6 NFT Makers Reviewed</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-live-photos-for-beginners-an-iphone-guide/"><u>[New] In 2024, Live Photos for Beginners An iPhone Guide</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-magic-behind-melodies-an-analysis-of-magix-music-maker/"><u>[New] In 2024, Magic Behind Melodies An Analysis of Magix Music Maker</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-turning-back-the-clock-mastering-instagram-video-reverse-for-2024/"><u>[New] Turning Back the Clock Mastering Instagram Video Reverse for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-androids-step-by-step-to-rotate-and-unite-video-files-for-2024/"><u>[Updated] Android's Step-by-Step to Rotate & Unite Video Files for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-free-safe-steps-to-extract-audio-from-youtube-videos-for-2024/"><u>[Updated] Free, Safe Steps to Extract Audio From YouTube Videos for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-grasping-the-advantages-of-av1-in-video-coding-for-2024/"><u>[Updated] Grasping the Advantages of AV1 in Video Coding for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-integrating-artistry-into-your-instagram-feed-with-pictures/"><u>[Updated] Integrating Artistry Into Your Instagram Feed with Pictures</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-perfecting-your-video-with-story-remix-and-windows-photos-for-2024/"><u>[Updated] Perfecting Your Video with Story Remix & Windows Photos for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/explore-these-engrossing-true-crime-podcast-episodes-top-picks-for-fans/"><u>Explore These Engrossing True Crime Podcast Episodes - Top Picks for Fans</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-itel-a70-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Itel A70 | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-itel-p55plus-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Itel P55+ to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-best-flip-screen-cam-picks-your-guide-to-excellent-vlogging/"><u>In 2024, Best Flip-Screen Cam Picks Your Guide to Excellent Vlogging</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolve-your-windows-10-bluetooth-disappearance-problem-with-simple-steps/"><u>Resolve Your Windows 10 Bluetooth Disappearance Problem with Simple Steps</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-blackout-blitz-a-moments-work/"><u>[New] 2024 Approved Blackout Blitz A Moment's Work</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-talk-turned-type-essential-apps-for-offline-speech-recognition/"><u>[New] 2024 Approved Talk Turned Type Essential Apps for Offline Speech Recognition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-how-to-use-luts-from-color-grading-central-to-color-grading-for-movies/"><u>[New] How to Use Luts From Color Grading Central to Color Grading for Movies</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-xbox-one-optimizing-your-zoom-experience-for-2024/"><u>[New] Xbox One Optimizing Your Zoom Experience for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-refining-photos-the-step-by-step-guide-to-clean-edges-on-photopea/"><u>[Updated] 2024 Approved Refining Photos The Step-by-Step Guide to Clean Edges on Photopea</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-the-basics-of-electronic-story-craftsmanship/"><u>[Updated] 2024 Approved The Basics of Electronic Story Craftsmanship</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-empower-your-journey-through-cinemas-best-10-titles/"><u>[Updated] Empower Your Journey Through Cinema's Best 10 Titles</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-pro-grade-streaming-tools-best-software-and-hardware-reviewed/"><u>[Updated] In 2024, Pro-Grade Streaming Tools Best Software & Hardware Reviewed</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/demystifying-error-0xc0000185-diagnosis-and-fixing-steps-for-smooth-operation/"><u>Demystifying Error 0Xc0000185: Diagnosis & Fixing Steps for Smooth Operation</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/discover-the-reasons-for-immortals-fenyx-rising-launching-setback-and-its-resolution/"><u>Discover the Reasons for Immortals: Fenyx Rising Launching Setback and Its Resolution</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/discovering-the-best-free-pc-gaming-experience-and-understanding-mechanical-keyboard-technology-amidst-police-inquiry-at-mullvad-vpn/"><u>Discovering the Best Free PC Gaming Experience and Understanding Mechanical Keyboard Technology Amidst Police Inquiry at Mullvad VPN</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/game-on-without-breaking-the-bank-expert-review-of-the-budget-friendly-high-performing-acer-predator-orion-5000/"><u>Game On Without Breaking the Bank: Expert Review of the Budget-Friendly, High-Performing Acer Predator Orion 5000</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-step-by-step-guide-to-earning-through-mobile-content-on-youtube/"><u>In 2024, Step-by-Step Guide to Earning Through Mobile Content on YouTube</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/movaviwebpiftiff/"><u>Movaviの無償Web版PIFからTIFFへの直接変換ツール - ストレージ解放</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/swirling-shadows-adding-realistic-motion-to-photoshop-images/"><u>Swirling Shadows Adding Realistic Motion to Photoshop Images</u></a></li>
 </ul></div>
 

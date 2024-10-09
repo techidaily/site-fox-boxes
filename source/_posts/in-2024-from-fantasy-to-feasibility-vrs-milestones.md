@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, From Fantasy to Feasibility  VR's Milestones\""
-date: 2024-09-14T08:22:53.523Z
-updated: 2024-09-17T10:18:20.318Z
+date: 2024-10-01T23:26:19.784Z
+updated: 2024-10-08T17:29:17.105Z
 tags: 
   - screen-recording
   - ai video
@@ -44,9 +44,29 @@ _[Virtual Reality Technology: Current State and Future Challenges](https://tools
 
 In Pygmalions Spectacles, Stanley G. Weinbaum explains a goggle based game in which individuals can watch a holographic recording of virtual stories including touch and smell. This amazing vision of the future would actually turn into what we think of as virtual-reality today. While it's difficult to introduce touch and smell elements into the average virtual-reality experience, these are visions that creators have in mind for the very near future of virtual-reality experiences. It's amazing to think that 85+ years ago, people were already thinking about creating simulation experiences using technology. We still think of these types of plans as we look towards the future of VR. With rapidly changing technology however, these improvements to the VR simulation experience may be far closer than decades away.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## VR development in 1960s
 
 VR headsets actually started development in the 1960s. Just 30 years from the original thought of a VR headset, Ivann Sutherland created the very first VR headset for use with military applications. Using a specialized military software as well as a motion control platform, the first VR headsets were designed for use in training exercises. These VR training tools have now become the standard in the military for training for flight exercises, combat situations and more. An immersive experience is definitely required to push military personnel and prepare them in a safe training environment before they enter into the field. Many air forces around the world require an extensive amount of VR training simulations before they will even let a pilot into one of their aircraft. With the initial development using specialized software and motion controls, VR research would continue to pave the way for training in the military and beyond. Today’s military VR headsets are far more advanced, compact and immersive and these training programs as well as the technology will continue to develop a little bit faster than some of the products that we might find as regular consumers.
+
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## VR development in 1990s
 
@@ -57,10 +77,10 @@ VR headsets begin to make their way into a few arcade games for simulations and 
 Oculus VR represents the latest revolution in VR technology. When Facebook officially acquired the Oculus VR system, this showed that virtual-reality was becoming a huge concern for many of the world's top developers. Although the Oculus Rift was formed out of a kickstarter campaign in 2012, the deal in 2014 represented a huge boost in their funding and confidence. Later in 2015, Oculus began to acquire other companies like Surreal Vision and built partnerships with Samsung to develop the Samsung gear VR. As one of the leading companies in VR development, Oculus has fully functioning VR systems for consumers to purchase and use at home. With support for a wide range of applications and further applications being developed for specific use with their VR systems, this was a huge leap forward for VR. After gaining international attention with the demand after the Facebook deal, this would propel many other developers into creating their own VR development firms. Oculus in a way started a brand-new VR renaissance with a call to create immersive and simulated experiences for the average consumer. Previous VR headsets were very technical and inaccessible for the average computer user, but with plug-and-play compatibility and a wide host of supported applications, Oculus gave the average consumer hope that they can enjoy VR again.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## VR development in 2016 and beyond
@@ -72,16 +92,10 @@ The future of VR looks very bright and with so many new devices in development i
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -107,5 +121,26 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-diving-deep-into-samsung-photo-enhancers-guide/"><u>[New] Diving Deep Into Samsung Photo Enhancers Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-virtual-veracity-versus-physical-prowess-in-live-links/"><u>[New] In 2024, Virtual Veracity Versus Physical Prowess in Live Links</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-social-media-streamlining-iphoneandroid-tips-for-effective-feeds/"><u>[New] Social Media Streamlining IPhone/Android Tips for Effective Feeds</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-professional-graphics-with-asus-pa32u-true-to-color/"><u>[Updated] 2024 Approved Professional Graphics with ASUS PA32U True to Color</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-streamlining-your-archive-converting-snapchats-ephemeral-snaps/"><u>[Updated] 2024 Approved Streamlining Your Archive Converting Snapchat's Ephemeral Snaps</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-advanced-editing-for-professional-photographers-time-stamping-tactics/"><u>[Updated] In 2024, Advanced Editing for Professional Photographers Time-Stamping Tactics</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-in-depth-studio-examination-xstudio-unveiled/"><u>[Updated] In 2024, In-Depth Studio Examination XStudio Unveiled</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/amd-gpu-update-analysis-and-installation/"><u>AMD GPU Update Analysis & Installation</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-on-your-apple-iphone-11-pro-max-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code On your Apple iPhone 11 Pro Max</u></a></li>
+<li><a href="https://games-able.techidaily.com/challenge-your-skillset-engage-with-the-best-6-alternative-games/"><u>Challenge Your Skillset: Engage With the Best 6 Alternative Games</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/cherished-holiday-hits-our-top-10-family-friendly-films-for-2024/"><u>Cherished Holiday Hits Our Top 10 Family-Friendly Films for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/error-1067-explained-a-step-by-step-solution-for-when-your-windows-application-abruptly-stops/"><u>Error 1067 Explained: A Step-by-Step Solution for When Your Windows Application Abruptly Stops</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-tecno-phantom-v-flip-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Tecno Phantom V Flip Phone FRP Lock</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/premier-android-storage-in-the-clouds-list-for-2024/"><u>Premier Android Storage in the Clouds List for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/smooth-transition-synchronizing-your-iphones-albums-with-icloud-backup/"><u>Smooth Transition Synchronizing Your iPhone's Albums with iCloud Backup</u></a></li>
+<li><a href="https://fox-http.techidaily.com/top-10-iphone-lens-capabilities-in-ios-11-for-2024/"><u>Top 10 iPhone Lens Capabilities in iOS 11 for 2024</u></a></li>
+<li><a href="https://win-popular.techidaily.com/top-smlodr-substitute-software-compared-which-is-the-ultimate-choice-for-macos-and-windows-users/"><u>Top Smlodr Substitute Software Compared: Which Is the Ultimate Choice for macOS & Windows Users?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-the-secrets-to-stunning-shorts-thumbnails-for-2024/"><u>Unboxing the Secrets to Stunning Shorts Thumbnails for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/whole-viewpoint-vs-multiplanar-imaging-techniques/"><u>Whole Viewpoint vs Multiplanar Imaging Techniques</u></a></li>
+</ul></div>
 

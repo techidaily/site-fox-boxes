@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, From Basic to Advanced Usage  Maximize Your Experience with Mac's Preview\""
-date: 2024-09-26T16:48:03.107Z
-updated: 2024-10-03T17:27:39.210Z
+date: 2024-10-02T22:34:16.661Z
+updated: 2024-10-08T19:20:24.569Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,13 @@ Being the default image editor for Mac, Apple tried to make the **Preview app** 
 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to View and Edit Photos in Preview on Mac
 
 As mentioned earlier, the **Preview app** is a default photo viewer on Mac that also has many editing tools. Therefore:
@@ -54,6 +61,13 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Show Markup Tools in Preview on Mac
 
@@ -86,10 +100,10 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Rotate Image in Preview
@@ -103,6 +117,13 @@ Use the method explained above to open the photo in Preview.
 **Step 2: Rotate the Image**
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Add Text to Image in Preview
 
@@ -120,13 +141,6 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Remove Background in Preview
 
 As it is with some of the advanced image manipulation programs, even the **Preview app** allows you to remove background from a photo, and that too pretty easily. To get this done:
@@ -143,13 +157,6 @@ Once the background portion of the image gets selected (colored in red), without
 
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Combine Images into One
 
 This process is generally used to place an object present in one image over the background of the other photo. A good example could be to place a picture of a fish on to a second photo that has a sea or river. The **Preview app** lets you do this easily using the following steps:
@@ -165,13 +172,6 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 **Step 3: Combine the Images**
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Save Images in Different Formats
 
@@ -244,20 +244,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-efficient-remote-video-transmission-unveiling-vlcs-potential/"><u>[New] 2024 Approved Efficient Remote Video Transmission Unveiling VLC's Potential</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-best-video-equipment-for-documenting-dynamic-musical-performances/"><u>[New] Best Video Equipment for Documenting Dynamic Musical Performances</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-cash-flow-curiosity-how-much-does-the-celebrity-make/"><u>[Updated] In 2024, Cash Flow Curiosity How Much Does the Celebrity Make?</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-infinite-rotation-video-anchors/"><u>[Updated] In 2024, Infinite Rotation Video Anchors</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagram-saves-free-and-without-end-for-2024/"><u>[Updated] Instagram Saves Free and Without End for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-chip-harmony-editors-reap-the-benefits-of-syncopated-precision/"><u>2024 Approved Chip Harmony Editors Reap the Benefits of Syncopated Precision</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-make-every-moment-count-with-these-15-engaging-activities-while-listening-to-talk-shows/"><u>2024 Approved Make Every Moment Count with These 15 Engaging Activities While Listening to Talk Shows</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/enhancing-education-5-student-techniques-with-chatgpt/"><u>Enhancing Education: 5 Student Techniques with ChatGPT</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/high-speed-asus-rog-rapture-gt-ax110-wireless-router-review-ultimate-performance-for-gamers/"><u>High-Speed Asus ROG Rapture GT-AX110# Wireless Router Review: Ultimate Performance for Gamers</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-best-ios-photo-editors-to-eliminate-objects-effectively/"><u>In 2024, Best iOS Photo Editors to Eliminate Objects Effectively</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-the-best-methods-to-unlock-the-iphone-locked-to-owner-for-apple-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, The Best Methods to Unlock the iPhone Locked to Owner for Apple iPhone 11 Pro Max</u></a></li>
-<li><a href="https://extra-information.techidaily.com/sketch-up-your-ideas-an-essential-guide-to-the-top-8-drawing-tools-on-ios/"><u>Sketch Up Your Ideas An Essential Guide to the Top 8 Drawing Tools on iOS</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/streamlining-social-signals-with-tiktok-and-linktree-bio-mix/"><u>Streamlining Social Signals with TikTok and Linktree Bio Mix</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-unlock-advanced-video-editing-capabilities-on-windows-8-and-later/"><u>Updated 2024 Approved Unlock Advanced Video Editing Capabilities on Windows 8 and Later</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/why-relying-on-artificial-intelligence-for-windows-11-key-generation-is-unadvisable/"><u>Why Relying on Artificial Intelligence for Windows 11 Key Generation Is Unadvisable</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-mirth-in-monotony-the-top-20-fb-detention-reprieve-humor/"><u>[New] 2024 Approved Mirth in Monotony The Top 20 Fb Detention Reprieve Humor</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-excellence-in-dialogue-maker-land/"><u>[New] Excellence in Dialogue Maker Land</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-make-every-frame-count-a-list-of-the-hottest-50-video-reducing-apps-for-your-phone-for-2024/"><u>[New] Make Every Frame Count A List of the Hottest 50 Video-Reducing Apps for Your Phone for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-transformative-tips-to-take-your-lunapic-skills-up-for-2024/"><u>[New] Transformative Tips to Take Your LunaPic Skills Up for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unmasking-the-secrets-of-samsungs-image-manipulation-tech-for-2024/"><u>[New] Unmasking the Secrets of Samsung's Image Manipulation Tech for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-examining-the-limitations-of-immersive-tech/"><u>[Updated] In 2024, Examining the Limitations of Immersive Tech</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-methods-to-validate-youtube-login/"><u>[Updated] Methods to Validate YouTube Login</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/evaluating-cost-effectiveness-in-youtube-promotions-for-2024/"><u>Evaluating Cost Effectiveness in YouTube Promotions for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-apple-iphone-11-pro-to-enjoy-more-fun-drfone-by-drfone-virtual-ios/"><u>In 2024, Change Location on Yik Yak For your Apple iPhone 11 Pro to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Samsung Galaxy S23 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-the-logo-journey-key-steps-in-crafting-iconic-covers/"><u>In 2024, The Logo Journey Key Steps in Crafting Iconic Covers</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-x-recorder-pc-version-capture-and-save-audio/"><u>In 2024, X-Recorder Pc Version Capture & Save Audio</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/master-your-computer-needs-expert-advice-from-toms-hardware/"><u>Master Your Computer Needs: Expert Advice From Tom's Hardware</u></a></li>
+<li><a href="https://win-dash.techidaily.com/optimize-your-play-enhance-gaming-with-asus-radeon-rx-970-pro/"><u>Optimize Your Play: Enhance Gaming with ASUS Radeon RX 970 Pro</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/premium-free-template-pack-top-titles-for-ae-dreamers/"><u>Premium FREE Template Pack Top Titles for AE Dreamers</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/the-definitive-guide-to-valheim-agriculture-for-2024/"><u>The Definitive Guide to Valheim Agriculture for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/ultimate-fixes-for-pc-users-eliminating-the-blackout-in-zoom-video-calls-2024-edition/"><u>Ultimate Fixes for PC Users: Eliminating the Blackout in Zoom Video Calls, 2024 Edition</u></a></li>
 </ul></div>
 

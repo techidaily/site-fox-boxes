@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, The Alchemy of Aesthetics  Top 1 Written by an Experienced Graphic Designer\""
-date: 2024-09-12T09:11:48.075Z
-updated: 2024-09-17T07:56:12.023Z
+date: 2024-10-08T06:25:55.981Z
+updated: 2024-10-09T07:58:34.234Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,19 @@ For instance, the podcast cover size demanded by Apple Podcast is:
 
 ![apple podcast cover image](https://images.wondershare.com/filmora/article-images/2023/01/design-podcast-cover-2.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Google Podcasts, a popular podcast platform among Android users, also has the same or similar requirements for the podcast cover image. That is to say, you do not have to design a podcast cover exclusive to Google Podcasts.
 
 Nevertheless, there are some platforms that have different requirements. For instance, Spotify mentions the following need for a podcast cover image:
@@ -59,6 +72,13 @@ Nevertheless, there are some platforms that have different requirements. For ins
 * Encoded with an sRGB color space, 24bits per pixel, with color profiles applied directly.
 
 **Note**: The thing to remember is to design podcast covers for all platforms with different requirements. It may seem daunting, but limitations and provisions often unleash a person’s creativity. Needless to say, if you are a professional podcaster and your teammates responsible for podcast cover making, then you can leave it to them.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Straight to the point
 
@@ -86,6 +106,13 @@ Another thing to review is the color palettes used by the entrepreneurs. The col
 
 Comedy podcasts don’t seem like much, but they have a huge user following. Do you know how? Well, they attract users in bulk with their funky, impressive, and immersive cover images. Notice the clever use of colors on all the podcast cover designs. Moreover, the typography used in these cover images is also unsophisticated and often conveys that this isn’t something serious.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Avoid Inappropriate Words or Imagery
 
 Swearing and inappropriate imagery is part of today’s taboo culture. However, it offends users. You have to retain that the podcast-listening community is an informed one. It’s not about becoming cool, but it's about delivering cool information.
@@ -93,6 +120,13 @@ Swearing and inappropriate imagery is part of today’s taboo culture. However, 
 Not to mention, using explicit languages is also restricted by podcast directories, like Apple Podcast and Spotify. So, you may also get banned for using offensive words or imagery in your podcast cover photos.
 
 ![podcast explicit covers](https://images.wondershare.com/filmora/article-images/2023/01/design-podcast-cover-6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The recent policies of podcast directories like Apple Podcast have changed drastically. For instance, you could have gotten away with using asterisk marks in some words (like sh\*t); however, it is not the case today. Your podcast will receive multiple notifications from the platform managers to remove the banner, and in some cases, the directories can also ban you from the platform. So, it is best to play it safe and use professional language, at least in the podcast cover photos.
 
@@ -153,10 +187,10 @@ Of course, A/B testing in the initial phases is necessary to test the design of 
 Brands like Coca-Cola, Nike, and Apple use consistency in their images and logos and ensure that all platforms have a similar brand image. This allows the users to recognize the brand, and the picture sits in the user’s mind. So, ensure consistency across all platforms and use the same cover images on all podcast directories.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 8\. Image compression
@@ -196,6 +230,13 @@ Above all, Filmora is a self-explanatory tool with a clean and modern interface 
 * Color correct the image.
 * Export in any resolution, format, and custom dimension (dedicated options available).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to make a podcast cover with Filmora?
 
 As indicated, Filmora is really simple to use. Regardless of whether you’ve used a podcast cover-making tool before or not, Filmora will feel easy and quick. Here’s how to make a podcast cover with Filmora:
@@ -215,22 +256,21 @@ Step4 Navigate to the top of the timeline and click the Text icon. Then, select 
 ![create podcast cover photo filmora 3](https://images.wondershare.com/filmora/article-images/2023/01/design-podcast-cover-14.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step5 A pop-up window should appear on your screen. Click Title > Basic > then enter the title of your podcast show in the relevant area. After that, adjust the font, font size, and text color. You can also make the text animated by clicking Animation at the top of the pop-up.
 
 ![create podcast cover photo filmora 4](https://images.wondershare.com/filmora/article-images/2023/01/design-podcast-cover-15.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step6 Once you complete the settings. Click OK > Export. Then, from the pop-up that appears, enter the file name in the relevant area and select a preferred location to save the p\[ocast cover photo. Then, click Export to finish.
 
@@ -279,22 +319,15 @@ Step5 A pop-up window should appear on your screen. Click Title > Basic > then e
 
 ![create podcast cover photo filmora 4](https://images.wondershare.com/filmora/article-images/2023/01/design-podcast-cover-15.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step6 Once you complete the settings. Click OK > Export. Then, from the pop-up that appears, enter the file name in the relevant area and select a preferred location to save the p\[ocast cover photo. Then, click Export to finish.
 
 ![create podcast cover photo filmora 5](https://images.wondershare.com/filmora/article-images/2023/01/design-podcast-cover-16.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Summing Up
@@ -325,5 +358,17 @@ However, your podcast cover image can outshine competitors if you work on all th
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-capturing-motion-spectacle-with-polaroid-camplus-cube/"><u>[New] 2024 Approved Capturing Motion Spectacle with Polaroid Cam+ Cube</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-navigating-new-realities-metaverse-meets-omniverse/"><u>[New] 2024 Approved Navigating New Realities Metaverse Meets Omniverse</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-online-meme-maker/"><u>[New] In 2024, Online MEME Maker</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-understanding-and-utilizing-phantoms-time-dilation/"><u>[New] In 2024, Understanding and Utilizing Phantom’s Time-Dilation</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-straightstreamerw11-ultra-simple-pc-screenshot-software/"><u>[Updated] 2024 Approved StraightStreamerW11 Ultra-Simple PC Screenshot Software</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-apple-iphone-13-to-other-iphone-drfone-by-drfone-ios/"><u>In 2024, How to Mirror Apple iPhone 13 to Other iPhone? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/meta-and-omni-universe-showcase-analysis/"><u>Meta & Omni Universe Showcase Analysis</u></a></li>
+<li><a href="https://win-dash.techidaily.com/troubleshooting-and-repairing-arduino-uno-drivers-for-windows-systems/"><u>Troubleshooting and Repairing Arduino Uno Drivers for Windows Systems</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unlocking-new-opportunities-leveraging-chatgpt-and-whisper-apis-for-business-growth/"><u>Unlocking New Opportunities: Leveraging ChatGPT and Whisper APIs for Business Growth</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/why-windows-11-encourages-the-integration-of-cloud-services-like-onedrive/"><u>Why Windows 11 Encourages the Integration of Cloud Services Like OneDrive</u></a></li>
+</ul></div>
 

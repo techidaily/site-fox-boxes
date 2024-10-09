@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Composition and Tints  Mastering Color Usage\""
-date: 2024-09-28T19:24:13.247Z
-updated: 2024-10-03T18:10:54.534Z
+date: 2024-10-01T17:06:33.457Z
+updated: 2024-10-08T22:30:28.148Z
 tags: 
   - screen-recording
   - ai video
@@ -40,26 +40,26 @@ Using red, green and blue as primary colors we can mix the colors to one another
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Color Harmony
 
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
@@ -75,26 +75,26 @@ You may still be unsure as to how to implement color theory into your videos. Le
 
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
 
 As you can see from this example the base color for the scene is a dark blue/purple and using the analogous color of pink they created a point of interest within the scene that doesn't look out of place. This is a very good way to pull the viewers eyes towards something you want them to take in above all else.
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -131,20 +131,22 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-selecting-the-perfect-timing-for-b-roll-insertion/"><u>[New] 2024 Approved Selecting the Perfect Timing for B Roll Insertion</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-unveiling-the-secrets-of-superior-tunefab-recordings/"><u>[New] 2024 Approved Unveiling the Secrets of Superior Tunefab Recordings</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-filmoras-prime-selective-screen-change-list/"><u>[New] In 2024, Filmora's Prime Selective Screen Change List</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-top-10-free-youtube-to-text-converter-tools/"><u>[Updated] 2024 Approved Top 10 FREE YouTube to Text Converter Tools</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-cultural-heritage-without-copyright-boundaries-for-2024/"><u>[Updated] Cultural Heritage Without Copyright Boundaries for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-dissecting-digital-dynamics-comparative-channel-analysis/"><u>[Updated] In 2024, Dissecting Digital Dynamics Comparative Channel Analysis</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/a-close-look-at-triller-its-distinctive-features-and-positioning/"><u>A Close Look at Triller Its Distinctive Features and Positioning</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-oppo-a38-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Oppo A38 | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/iem-benefits-in-competitive-video-game-sets/"><u>IEM Benefits in Competitive Video Game Sets</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-samsung-galaxy-s24plus-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Samsung Galaxy S24+ Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-laughter-lab-virtually/"><u>In 2024, Laughter Lab Virtually</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-depth-kinetics-evaluation-2023/"><u>In-Depth Kinetics Evaluation 2023</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/optimizing-site-analytics-through-innovative-digital-solutions/"><u>Optimizing Site Analytics Through Innovative Digital Solutions</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723016552907-solution-found-get-your-windows-11-speakers-working-again-today/"><u>Solution Found: Get Your Windows 11 Speakers Working Again Today!</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/top-10-free-video-tools-cross-platform-os-support-for-2024/"><u>Top 10 Free Video Tools Cross-Platform OS Support for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-elevate-your-visual-storytelling-mastering-pixizs-video-capabilities/"><u>[New] 2024 Approved Elevate Your Visual Storytelling Mastering Pixiz's Video Capabilities</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-ultimate-rankings-and-insights-best-camcorders/"><u>[New] 2024 Approved Ultimate Rankings & Insights Best Camcorders</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-5-best-dvd-creators-for-macos-sierra/"><u>[Updated] 5 Best DVD Creators for macOS Sierra</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-a-novices-approach-to-acquiring-picture-frames/"><u>[Updated] A Novice's Approach to Acquiring Picture Frames</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-premium-after-effects-essentials-compact-no-cost-bundle/"><u>[Updated] In 2024, Premium After Effects Essentials Compact, No-Cost Bundle</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/15-types-of-camera-shots-in-film-beginners-need-to-know-for-2024/"><u>15 Types of Camera Shots in Film Beginners Need to Know for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unlocking-srt-potential-mac-edition-tutorial/"><u>2024 Approved Unlocking SRT Potential Mac Edition Tutorial</u></a></li>
+<li><a href="https://article-posts.techidaily.com/action-packed-angling-best-fishing-cameras-ranked-for-2024/"><u>Action-Packed Angling Best Fishing Cameras Ranked for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/expert-techniques-for-chatgpt/"><u>Expert Techniques for ChatGPT</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-realme-gt-3-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Realme GT 3 Phones with/without a PC</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-setup-epson-wf-3540-on-windows-free-driver-downloads-available/"><u>How to Setup Epson WF-3540 on Windows - Free Driver Downloads Available</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-apple-iphone-8-asking-for-passcode-after-ios-1714-update-what-to-do-drfone-by-drfone-ios/"><u>In 2024, Apple iPhone 8 Asking for Passcode after iOS 17/14 Update, What to Do? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-exploring-the-core-of-m1-apples-innovation/"><u>In 2024, Exploring the Core of M1 Apple's Innovation</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/pivoting-from-srt-to-subtitle-format-for-2024/"><u>Pivoting From SRT to Subtitle Format for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/sleek-and-shiny-the-route-to-pristine-tiktok-content-for-2024/"><u>Sleek and Shiny The Route to Pristine TikTok Content for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/step-by-step-guide-setting-up-and-troubleshooting-miracast-on-windows-11/"><u>Step-by-Step Guide: Setting Up and Troubleshooting Miracast on Windows 11</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/transform-your-mac-display-utilizing-picture-in-picture-multimedia-features-for-2024/"><u>Transform Your Mac Display Utilizing Picture in Picture Multimedia Features for 2024</u></a></li>
 </ul></div>
 

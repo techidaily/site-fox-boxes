@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Conjuring Chrono-Displacement with Digital Magic\""
-date: 2024-09-30T19:13:56.552Z
-updated: 2024-10-03T18:25:11.089Z
+date: 2024-10-07T17:34:01.600Z
+updated: 2024-10-08T21:17:54.241Z
 tags: 
   - screen-recording
   - ai video
@@ -39,13 +39,6 @@ However, in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/
 
 To create shots, we have to do two processing rounds. In the first round, we will film a shot for daytime activity. While in the next round, we will shoot a video for nighttime activity. Get straight into the filming mode and create according to your script.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### #1 daylight lighting setup
 
 In this round, you have to create a daytime action, implying that you need daylight. As well as, you don't need professional filming skills because it is going to be so simple.
@@ -70,6 +63,13 @@ First, wrap the colorful divider around the LED light or any other light you're 
 
 ![final results after changing led light by colorful binders](https://images.wondershare.com/filmora/article-images/2023/04/final-results-after-changing-led-light-by-colorful-binders.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 After setting the lights, now it's time to check the camera!
 
 **Camera alignment**
@@ -85,13 +85,6 @@ After setting all equipment, now it's time to allow the character to perform in 
 For the first round, the subject has to do acting for the daytime script. Let the character do their performance according to the screenplay.
 
 In this article, we are doing a daytime performance in the first round. For this, the subject should go from right to left to step over for night time dimension.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### #1 night-time lighting setup
 
@@ -167,13 +160,6 @@ The marking of the clips will give better trimming points. For this, mark the ex
 
 ![marker 2 on the daytime clip](https://images.wondershare.com/filmora/article-images/2023/04/marker-2-on-the-daytime-clip.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step4Drag the nighttime clip
 
 After marking the daytime clip, drag and drop the clip of the second round (i.e., nighttime clip) in the second video track.
@@ -181,10 +167,10 @@ After marking the daytime clip, drag and drop the clip of the second round (i.e.
 ![nighttime clip in the second video track](https://images.wondershare.com/filmora/article-images/2023/04/nighttime-clip-in-the-second-video-track.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step5Mark the nightime clip
@@ -193,6 +179,19 @@ Find the spot where the subject steps over in the nighttime clip, and select the
 
 ![marker 3 on the nighttime clip](https://images.wondershare.com/filmora/article-images/2023/04/marker-3-on-the-nighttime-clip.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 After marking the points on the clips, then you have to align and adjust the clips!
 
 ##### Step6Align the markers
@@ -200,6 +199,13 @@ After marking the points on the clips, then you have to align and adjust the cli
 To make sure that the video will play smoothly, you ensure the correct alignment of the clips. For this, grab the nighttime clip on the timeline and move it until marker three is roughly aligned with marker two.
 
 ![align markers 2 and 3 with each other](https://images.wondershare.com/filmora/article-images/2023/04/align-markers-2-and-3-with-each-other.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step7Trim the clips
 
@@ -221,11 +227,25 @@ Next, you have to apply the **"Shape Mask"** for smooth movements of the charact
 
 ![shape mask from the utility section](https://images.wondershare.com/filmora/article-images/2023/04/shape-mask-from-the-utility-section.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * After that, double-click on the nighttime clips, which will show the settings section of the clip.
 * Go to the Video Effects section and change the shape mask settings.
 * Tweak the mask settings until the nighttime clip appears on the left and the daytime clip with the character on the right.
 
 ![change the shape mask settings](https://images.wondershare.com/filmora/article-images/2023/04/change-the-shape-mask-settings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Play the video again and check out the smoothness of the actions. As we have already marked the points, that's why the actions match with each other and give an equivalent look!
 
@@ -335,13 +355,6 @@ It is a very important step that you don't have to change the camera position du
 
 ![camera alignment](https://images.wondershare.com/filmora/article-images/2023/04/camera-alignment.gif)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 After setting all equipment, now it's time to allow the character to perform in front of the camera.
 
 **Character position**
@@ -358,6 +371,13 @@ To film a night mode, you need a warmer light, which is used to make shots for t
 
 ![night time warmer light](https://images.wondershare.com/filmora/article-images/2023/04/night-time-warmer-light.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You don't need to worry if you don't have enough budget to get this setup. Because plastic binders will make your way easy, and you can create your own at home, as told earlier.
 
 **Character performance**
@@ -368,14 +388,14 @@ In this round, the subject should start from the right to left and perform stepp
 
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note:** Ensure to match the **"stepping over"** of the character for better results in the transition video.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### #3 cross line between two rounds
 
@@ -437,13 +457,6 @@ After marking the daytime clip, drag and drop the clip of the second round (i.e.
 
 ![nighttime clip in the second video track](https://images.wondershare.com/filmora/article-images/2023/04/nighttime-clip-in-the-second-video-track.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step5Mark the nightime clip
 
 Find the spot where the subject steps over in the nighttime clip, and select the clip. Then mark it as marker three. This marker is shown when the character changes the transition.
@@ -487,13 +500,6 @@ Next, you have to apply the **"Shape Mask"** for smooth movements of the charact
 Play the video again and check out the smoothness of the actions. As we have already marked the points, that's why the actions match with each other and give an equivalent look!
 
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Note:** If your video actions are not aligning with each other, then adjust again according to the requirements.
 
@@ -585,24 +591,20 @@ Create for you and add different effects and experiment with new features. You w
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-examining-ffmpegs-commitment-to-authentic-audio-formats/"><u>[New] Examining FFmpeg’s Commitment to Authentic Audio Formats</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-amp-up-your-media-get-free-soundtracks/"><u>[New] In 2024, Amp Up Your Media Get Free Soundtracks!</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-pigments-and-perceptions-mastering-image-colorization/"><u>[New] In 2024, Pigments & Perceptions Mastering Image Colorization</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-premier-accessible-stopwatches/"><u>[New] In 2024, Premier Accessible Stopwatches</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-streamline-your-screen-experience-pip-mastery-for-mac-enthusiasts/"><u>[New] Streamline Your Screen Experience PIP Mastery for Mac Enthusiasts</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-the-evolution-of-editing-software-reviewed-magix-vpx/"><u>[Updated] 2024 Approved The Evolution of Editing Software Reviewed Magix VPX</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-top-ae-plug-ins-enhance-your-visual-storytelling/"><u>[Updated] 2024 Approved Top AE Plug-Ins Enhance Your Visual Storytelling</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-protect-photos-our-picks-for-superior-watermarkers/"><u>[Updated] Protect Photos - Our Picks for Superior Watermarkers</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-corsairs-top-rated-icue-software-to-upgrade-your-pc-on-windows-11-and-10/"><u>Download Corsair's Top-Rated iCUE Software to Upgrade Your PC on Windows 11 and 10</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-track-imei-number-of-lava-blaze-2-pro-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Lava Blaze 2 Pro Through Google Earth?</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-solutions-for-your-ultimate-3d-viewing-needs/"><u>In 2024, Innovative Solutions for Your Ultimate 3D Viewing Needs</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-seo-excellence-transforming-podcast-discoverability/"><u>In 2024, SEO Excellence Transforming Podcast Discoverability</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-stream-selection-simplified-top-10-actionable-tips/"><u>In 2024, Stream Selection Simplified Top 10 Actionable Tips</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-poco-c65-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Poco C65 Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-utilizing-volume-decrease-effects-within-audacity/"><u>In 2024, Utilizing Volume Decrease Effects Within Audacity</u></a></li>
-<li><a href="https://fox-links.techidaily.com/strategy-unveiled-masterful-box-opening-tactics-for-2024/"><u>Strategy Unveiled Masterful Box-Opening Tactics for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/superior-cams-for-traditional-animation-for-2024/"><u>Superior Cams for Traditional Animation for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-top-10-steam-deck-games-you-cant-miss-this-year/"><u>The Ultimate Guide: Top 10 Steam Deck Games You Can’t Miss This Year</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-10-tecno-spark-10-5g-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Tecno Spark 10 5G Android SIM Unlock APK</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-best-writing-ever-seen-across-film-genres/"><u>[New] Best Writing Ever Seen Across Film Genres</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-from-basics-to-brilliance-fullscreen-proficiency-in-premiere/"><u>[New] From Basics to Brilliance Fullscreen Proficiency in Premiere</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-revolutionizing-photo-quality-with-auto-and-smart-hdr-features/"><u>[New] In 2024, Revolutionizing Photo Quality with Auto and Smart HDR Features</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-step-by-step-guide-to-android-movie-upturning-for-2024/"><u>[New] Step-by-Step Guide to Android Movie Upturning for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-2019-game-changer-in-vegaspro-for-2024/"><u>[New] The 2019 Game-Changer in VegasPro for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-switch-to-picture-in-picture-while-watching-youtube/"><u>[Updated] In 2024, Switch to Picture in Picture While Watching YouTube</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-unveiling-top-ten-os-agnostic-video-players/"><u>[Updated] Unveiling Top Ten OS-Agnostic Video Players</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/best-3-honor-x9b-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Honor X9b Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/futureproof-choices-expertly-reviewed-filaments-for-3d-printers-in-eetings/"><u>Futureproof Choices: Expertly Reviewed Filaments for 3D Printers in Eetings</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-to-use-chatgpt-to-master-the-art-of-storytelling/"><u>How to Use ChatGPT to Master the Art of Storytelling</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-acid-pro-alternatives-the-ultimate-review-series/"><u>In 2024, ACID Pro Alternatives The Ultimate Review Series</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-forgot-locked-apple-iphone-6s-plus-password-learn-the-best-methods-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Forgot Locked Apple iPhone 6s Plus Password? Learn the Best Methods To Unlock | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-masterful-color-grading-explore-these-7-methods/"><u>In 2024, Masterful Color Grading Explore These 7 Methods</u></a></li>
+<li><a href="https://games-able.techidaily.com/is-the-latest-nvidia-pass-a-boon-for-gamers/"><u>Is the Latest Nvidia Pass a Boon for Gamers?</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unlocking-efficient-google-podcast-postings-for-2024/"><u>Unlocking Efficient Google Podcast Postings for 2024</u></a></li>
 </ul></div>
 

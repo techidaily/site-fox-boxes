@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering the Balance  Visuals and Sound in Media Creation\""
-date: 2024-09-28T02:17:11.598Z
-updated: 2024-10-03T20:16:26.880Z
+date: 2024-10-04T00:07:17.547Z
+updated: 2024-10-09T03:57:40.843Z
 tags: 
   - screen-recording
   - ai video
@@ -49,13 +49,6 @@ But here's the good news: the way you add either option is the same in Filmora.
 
 ![add either option](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to add narration
 
 So the easiest way to add narration is directly to a project. The benefit of this is that you can record your narration inside Filmora while you watch the preview of your edited video.
@@ -63,10 +56,10 @@ So the easiest way to add narration is directly to a project. The benefit of thi
 ![add narration to project](https://images.wondershare.com/filmora/guide/stt-tts-srt-09.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 A good example of this would be narrating a story on top of some still images and video clips from a recent vacation. (In most cases you would want to turn off the sound of the video clip, or at least use ducking to help the viewer focus on the narration.)
@@ -80,6 +73,13 @@ A 3-second countdown will pop up and start recording immediately after this coun
 You can record your narration and click stop.
 
 After recording, you can trim and edit your narration, you can delete it and record it again, and can move it and edit it like any other feature.
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Some Tips for Recording Narration
 
@@ -100,10 +100,10 @@ Practice adding it to your videos to see how it adds depth and dimension to your
 It can also help make a connection with your audience because you can be relating to the images on the screen as they watch them. This is effective in building your YouTube audience.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Always use a good mic
@@ -113,10 +113,10 @@ When adding voiceover or narration to your project, be sure to use a good USB mi
 ![use good microphone](https://images.wondershare.com/filmora/article-images/2022/11/use-good-microphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
@@ -159,14 +159,18 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-streaming-success-recording-roblox-on-apple-devices/"><u>[New] 2024 Approved Streaming Success Recording Roblox on Apple Devices</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-comprehensive-commentary-delving-deep-into-bublcams-360-degree-world/"><u>[New] Comprehensive Commentary Delving Deep Into Bublcam's 360-Degree World</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-immersive-narratives-vr-storytelling-breakthroughs-for-2024/"><u>[New] Immersive Narratives VR Storytelling Breakthroughs for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-professional-analysis-full-potential-of-screenflow-for-mac/"><u>[New] In 2024, Professional Analysis Full Potential of ScreenFlow for Mac</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-mastering-the-craft-of-background-image-acquisition/"><u>[New] Mastering the Craft of Background Image Acquisition</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-streamlined-techniques-for-transforming-vids-on-pinterest-to-mp3s/"><u>[Updated] Streamlined Techniques for Transforming Vids on Pinterest to MP3s</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-top-android-cloud-saving-tools-for-2024/"><u>[Updated] Top Android Cloud Saving Tools for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/best-apple-iphone-se-and-ipad-screen-mirroring-app-drfone-by-drfone-ios/"><u>Best Apple iPhone SE & iPad Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/giggle-guides-essential-websites-for-humorous-ringtones/"><u>Giggle Guides Essential Websites for Humorous Ringtones</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-dual-screening-made-simple-navigating-through-floating-window-functionality-in-netflix/"><u>[New] 2024 Approved Dual Screening Made Simple Navigating Through Floating Window Functionality in Netflix</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-auroras-approach-to-hdv-standing-out-or-same-old/"><u>[New] In 2024, Aurora's Approach to HDV Standing Out or Same Old</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-cracking-the-code-personalized-tiktok-hash-hunt/"><u>[New] In 2024, Cracking the Code Personalized TikTok Hash Hunt</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-optimize-content-delivery-top-12-html5-video-platforms/"><u>[New] Optimize Content Delivery Top 12 HTML5 Video Platforms</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-ultimate-list-best-windows-11-webcams-for-recording/"><u>[Updated] 2024 Approved Ultimate List Best Windows 11 Webcams for Recording</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-detailed-video-capture-using-videoleap-tools/"><u>[Updated] Detailed Video Capture Using Videoleap Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-how-to-sharpen-your-vision-in-the-world-of-roblox-for-2024/"><u>[Updated] How to Sharpen Your Vision in the World of Roblox for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-innovating-photography-the-art-of-crafting-effective-gopro-time-lapse/"><u>[Updated] Innovating Photography The Art of Crafting Effective GoPro Time-Lapse</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-discovering-the-convergence-in-mixed-reality/"><u>2024 Approved Discovering the Convergence in Mixed Reality</u></a></li>
+<li><a href="https://win-answers.techidaily.com/navigating-through-the-maze-of-directx-errors-in-call-of-duty-modern-warfare-2/"><u>Navigating Through the Maze of DirectX Errors in Call of Duty: Modern Warfare 2</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/quick-tips-for-easy-snapchat-screen-captures-on-phones-for-2024/"><u>Quick Tips for Easy Snapchat Screen Captures on Phones for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/rearrange-onedrive-on-win-11-easy-guide/"><u>Rearrange OneDrive on Win 11 – Easy Guide</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-google-frp-lock-on-google-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP lock on Google</u></a></li>
 </ul></div>
 

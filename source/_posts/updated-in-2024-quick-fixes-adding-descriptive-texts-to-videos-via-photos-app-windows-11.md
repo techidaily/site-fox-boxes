@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Quick Fixes  Adding Descriptive Texts to Videos via Photos App (Windows 11)\""
-date: 2024-09-14T21:29:22.073Z
-updated: 2024-09-17T04:12:30.145Z
+date: 2024-10-02T08:21:57.394Z
+updated: 2024-10-09T00:36:29.996Z
 tags: 
   - screen-recording
   - ai video
@@ -56,6 +56,13 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
 The Photos app in Windows 10 is even easier than the old Windows Movie Maker. You do not need a sharp learning curve for using this app and any beginner can use it with ease and comfort. The Photos app has an anchoring system along with the text tool that makes the text move with the video images. Here’s how you can make the text move in Windows 10 Photos app-
@@ -67,6 +74,13 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
@@ -77,6 +91,13 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
 ## Conclusion
@@ -84,6 +105,13 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -108,12 +136,16 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-flash-dramatization-structure/"><u>[New] 2024 Approved Flash Dramatization Structure</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-cutting-edge-mounts-uninterrupted-mobile-shooting/"><u>[Updated] Cutting-Edge Mounts Uninterrupted Mobile Shooting</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/exploring-the-capabilities-of-the-dell-inspiron-16-plus-7630-impressive-specs-meet-budget-friendly-pricing/"><u>Exploring the Capabilities of the Dell Inspiron 16 Plus (7630) - Impressive Specs Meet Budget-Friendly Pricing</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-fix-among-us-voice-chat-not-working-on-pc/"><u>How to Fix Among Us Voice Chat Not Working on PC</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-fostering-an-online-oasis-paving-the-way-for-a-prolific-youtube-presence/"><u>In 2024, Fostering an Online Oasis Paving the Way for a Prolific Youtube Presence</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/optimal-charger-solutions-for-gopro-hero5-genuine-and-imitative-companies/"><u>Optimal Charger Solutions for GoPro Hero5 Genuine & Imitative Companies</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolving-assassins-creed-rogue-freezing-issues-expert-fixing-tips-and-techniques/"><u>Resolving Assassin's Creed Rogue Freezing Issues - Expert Fixing Tips & Techniques</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-art-of-custom-ai-crafting-chatgpt-from-scratch/"><u>The Art of Custom AI: Crafting ChatGPT From Scratch</u></a></li>
+<li><a href="https://driver-error.techidaily.com/touchpad-driver-not-working-in-windows-7-solved/"><u>Touchpad Driver Not Working in Windows 7 [Solved]</u></a></li>
+</ul></div>
 

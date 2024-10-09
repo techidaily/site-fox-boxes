@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Integrating Microsoft's Azure Transcription Service in Code for 2024"
-date: 2024-10-01T18:59:51.635Z
-updated: 2024-10-04T02:50:59.570Z
+date: 2024-10-08T05:39:22.073Z
+updated: 2024-10-08T20:16:22.342Z
 tags: 
   - screen-recording
   - ai video
@@ -44,10 +44,10 @@ If you're not good with programming languages, use Speech CLI, a command tool th
 It is also worth noting that Azure Speech Studio supports keyword recognition or keyword spotting. You can generate keyword recognition models and specify any short phrase or word. Users can also personalize keywords with the correct punctuations. And best of all, there is no extra cost for customizing keywords.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Step by Step Guide to Transcribe Speech to Text with Microsoft Speech Studio
@@ -63,10 +63,10 @@ Step3The program will take a while to deploy an instance. Now tap Keys and endpo
 ![micrsoft azure speech to text copy key and region](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step4Download and install Microsoft Visual C++ and .NET Core 3.1 Runtime. Next, install Speech CL on .NET by running this command “**dotnet tool install -global Microsoft.CognitiveServices.Speech.CLI.**” Alternatively, download and install Speech CLI for Windows PCs as a [ZIP file](https://aka.ms/speech/spx-windows).
@@ -77,14 +77,14 @@ Step6Now it's time to convert speech to text using Azure STT Service. To do that
 
 ![icon note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note:** Click [this video](https://docs.microsoft.com/en-us/shows/one-dev-minute/how-to-use-the-azure-cognitive-services-net-speech-sdk-for-recognition) for a detailed guide on how to use Azure Speech Services with Visual Basic (SDK).
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: What Are the Free Alternatives to the Microsoft Speech to Text Service?
 
@@ -119,10 +119,10 @@ Select the audio asset in the timeline, and click the "Speech-to-Text" icon in t
 ![toolbar stt](https://images.wondershare.com/filmora/guide/guide-win/toolbar-stt.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step 2
@@ -130,13 +130,6 @@ Select the audio asset in the timeline, and click the "Speech-to-Text" icon in t
 Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription
 
 ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Google Docs - Free
 
@@ -185,6 +178,14 @@ In that case, use a more straightforward option like Google Docs to dictate text
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -203,22 +204,15 @@ In that case, use a more straightforward option like Google Docs to dictate text
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-install-and-upgrade-guide-to-the-latest-macos-sierra/"><u>[New] 2024 Approved Install and Upgrade Guide to the Latest macOS Sierra</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-perfect-sound-devices-for-podcasters/"><u>[New] 2024 Approved Perfect Sound Devices for Podcasters</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-big-file-baskets-in-the-cloud-cost-effective-saver-for-2024/"><u>[New] Big File Baskets in the Cloud - Cost-Effective Saver for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/1716069822264-new-in-2024-screen-recording-with-internal-devices-on-huaweis-mate-mate-1020-and-p-p20-p10/"><u>[New] In 2024, Screen Recording with Internal Devices on Huawei’s Mate (Mate 10/20) and P (P20, P10).</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-tapping-humors-potential-with-a-comprehensive-9gag-meme-creation-guide-for-2024/"><u>[New] Tapping Humor's Potential with a Comprehensive 9GAG Meme Creation Guide for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-unveiling-the-secrets-of-montage-image-assembly/"><u>[New] Unveiling the Secrets of Montage Image Assembly</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-updated-guide-leading-camcorders-for-ocean-exploration-for-2024/"><u>[New] Updated Guide Leading Camcorders for Ocean Exploration for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-decoding-the-marketplace-where-to-invest-in-monetized-channels-for-2024/"><u>[Updated] Decoding the Marketplace Where to Invest in Monetized Channels for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-ensure-your-insta-pics-are-real-a-comprehensible-guide/"><u>[Updated] In 2024, Ensure Your Insta Pics Are Real - A Comprehensible Guide</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-expert-analysis-on-slomo-video-softwares-performance/"><u>[Updated] In 2024, Expert Analysis on SloMo Video Software's Performance</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-the-in-depth-evaluation-of-the-next-gen-slomo-video-tool-for-2024/"><u>[Updated] The In-Depth Evaluation of the Next-Gen SloMo Video Tool for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/align-video-content-with-instagram-viewer-preferences/"><u>Align Video Content with Instagram Viewer Preferences</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/inside-the-core-of-vitas-video-editing-a-full-guide-and-critical-review-2024/"><u>Inside the Core of Vita's Video Editing - A Full Guide & Critical Review, 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/is-windows-scrolling-by-itself-heres-how-to-fix-it/"><u>Is Windows Scrolling By Itself? Here's How to Fix It</u></a></li>
-<li><a href="https://howto.techidaily.com/my-videos-arent-playing-on-lava-blaze-pro-5g-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Lava Blaze Pro 5G – What Can I Do? | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/transform-your-videos-with-simple-inshot-techniques-for-2024/"><u>Transform Your Videos with Simple Inshot Techniques for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-steps-restoring-functionality-of-non-working-hp-laptop-webcam-on-windows-10/"><u>Troubleshooting Steps: Restoring Functionality of Non-Working HP Laptop Webcam on Windows 10</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-fog-no-more-secrets-for-crisp-clean-filming/"><u>[New] 2024 Approved Fog No More Secrets for Crisp, Clean Filming</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-drone-innovation-existing-applications-and-upcoming-potential/"><u>[New] Drone Innovation Existing Applications & Upcoming Potential</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-how-to-modify-game-characters-vocal-presence-and-identity-in-free-fire-step-by-step-guide-included-free-for-2024/"><u>[Updated] How to Modify Game Characters' Vocal Presence and Identity in Free Fire (Step-by-Step Guide Included, FREE) for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-smartphone-photographers-handbook/"><u>[Updated] The Smartphone Photographer's Handbook</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-full-guide-to-perfecting-photos-with-facetune/"><u>2024 Approved The Full Guide to Perfecting Photos with Facetune</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-turn-off-find-my-apple-iphone-14-pro-max-when-phone-is-broken-drfone-by-drfone-ios/"><u>How to Turn Off Find My Apple iPhone 14 Pro Max when Phone is Broken? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-quick-aspect-alteration-for-web-design/"><u>In 2024, Quick Aspect Alteration for Web Design</u></a></li>
+<li><a href="https://extra-information.techidaily.com/music-enhanced-whatsapp-expressions/"><u>Music-Enhanced WhatsApp Expressions</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-copy-and-paste-functionality-errors-on-your-windows-11-pc/"><u>Resolving 'Copy & Paste' Functionality Errors on Your Windows 11 PC</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-inspiration-free-soundtracks-to-enhance-projects/"><u>Spark Inspiration - Free Soundtracks to Enhance Projects!</u></a></li>
 </ul></div>
 

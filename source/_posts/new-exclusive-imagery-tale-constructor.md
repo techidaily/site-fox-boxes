@@ -1,7 +1,7 @@
 ---
 title: "[New] Exclusive Imagery Tale Constructor"
-date: 2024-09-29T00:58:24.451Z
-updated: 2024-10-03T23:03:28.872Z
+date: 2024-10-07T02:25:24.767Z
+updated: 2024-10-09T00:35:06.590Z
 tags: 
   - screen-recording
   - ai video
@@ -46,10 +46,10 @@ Wondershare Photo Story Platinum is an intuitive photo slideshow maker which you
 * Directly share on YouTube, Facebook & virtually anywhere.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Use Wondershare Photo Story Platinum for Windows and Mac
@@ -65,13 +65,6 @@ After the mode selection, click the Add Files button to import your photos and v
 
 ![photo story](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Step 2\. Personalize your photo story
 
 Click the Personalize tab. Then you can add transitions, effects, background music and more t create your own gorgeous photo story.
@@ -81,10 +74,10 @@ You can import your photos and videos at one time and arrange the order by dragg
 ![Photo Story Platinum](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Step 3\. Publish your photo story
@@ -97,6 +90,13 @@ The photo story maker provides sorts of methods for you. For example, if you wan
 
 Learn more: [user guide of Photo Story Platinum for Windows](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) here.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Supported Output Formats by Web Converter
 
 * **DVD**: Standard DVD (D5 or D9)
@@ -108,14 +108,20 @@ Learn about the detailed [technical specifications](https://tools.techidaily.com
 
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -142,19 +148,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-navigating-the-maze-to-find-your-ideal-4k-screen/"><u>[New] 2024 Approved Navigating the Maze to Find Your Ideal 4K Screen</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-crafting-the-perfect-tiktok-unbox-video-a-viewership-guide/"><u>[Updated] 2024 Approved Crafting the Perfect TikTok Unbox Video A Viewership Guide</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-insider-strategies-free-access-to-professional-imagery/"><u>[Updated] In 2024, Insider Strategies Free Access to Professional Imagery</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-top-rated-economical-timer-services/"><u>[Updated] In 2024, Top-Rated Economical Timer Services</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-tricks-to-faster-periscope-live-feeds/"><u>[Updated] In 2024, Tricks to Faster Periscope Live Feeds</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-mastering-faces-incorporating-motion-blur-in-photos-with-picsart/"><u>2024 Approved Mastering Faces Incorporating Motion Blur in Photos with Picsart</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/christian-hymnal-options-for-ringtone-customization-for-2024/"><u>Christian Hymnal Options for Ringtone Customization for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-remove-phone-number-from-your-apple-id-from-your-apple-iphone-8-by-drfone-ios/"><u>How To Remove Phone Number From Your Apple ID from Your Apple iPhone 8?</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-compreranly-assessing-ustream-with-equivalent-sites/"><u>In 2024, Compreranly Assessing Ustream with Equivalent Sites</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Motorola Moto G04 | Dr.fone</u></a></li>
-<li><a href="https://app-tips.techidaily.com/leading-10-text-message-services-ranked-top-picks-for-iphones-and-android-smartphones/"><u>Leading 10 Text Message Services Ranked: Top Picks for iPhones and Android Smartphones</u></a></li>
-<li><a href="https://win-cheats.techidaily.com/strategies-for-overcoming-action-error-107-in-system-operations/"><u>Strategies for Overcoming 'Action Error 107' In System Operations</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/top-rated-protective-covers-for-iphone-13-ultimate-guide/"><u>Top-Rated Protective Covers for iPhone 13 - Ultimate Guide</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/ultimate-guide-to-the-finest-video-converters-on-android-devices-optimize-your-phonetablet-experience/"><u>Ultimate Guide to the Finest Video Converters on Android Devices: Optimize Your Phone/Tablet Experience</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-integrating-end-screen-elements-with-vimeo/"><u>[New] 2024 Approved Integrating End Screen Elements with Vimeo</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-pro-level-strategies-for-stunningly-pinning-messages-in-discord/"><u>[New] 2024 Approved Pro-Level Strategies for Stunningly Pinning Messages in Discord</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-cropping-photos-why-does-imovie-adjust-video-sizes-in-2024/"><u>[New] Cropping Photos Why Does iMovie Adjust Video Sizes, In 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-easy-editing-unlimited-canon-lut-choices-for-2024/"><u>[New] Easy Editing - Unlimited Canon LUT Choices for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-decide-your-videoclip-layout-fbs-dilemma/"><u>[New] In 2024, Decide Your Videoclip Layout FB’s Dilemma</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-iphone-guide-jpegpng-to-pdf-conversion-techniques/"><u>[New] In 2024, IPhone Guide JPEG/PNG to PDF Conversion Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-the-ultimate-ringers-guide-shaping-iphone-sounds/"><u>[Updated] 2024 Approved The Ultimate Ringer's Guide Shaping iPhone Sounds</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-intuitive-audio-fading-strategies-with-garageband/"><u>[Updated] Intuitive Audio Fading Strategies with Garageband</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-disc-replay-a-look-at-the-goofy-giggle-fest/"><u>2024 Approved Disc Replay A Look at 'The Goofy Giggle-Fest'</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-redefine-your-sonic-world-with-sony-ps4ps5/"><u>2024 Approved Redefine Your Sonic World with Sony PS4/PS5</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unveiling-6-video-techniques-that-grab-eyes/"><u>2024 Approved Unveiling 6 Video Techniques That Grab Eyes</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/a-comprehensive-walkthrough-of-youtube-timestamping-techniques/"><u>A Comprehensive Walkthrough of YouTube Timestamping Techniques</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/erhohen-sie-die-videoqualitat-schnell-durch-winxvideo-ki-der-ultimative-ansatz/"><u>Erhöhen Sie Die Videoqualität Schnell Durch Winxvideo KI – Der Ultimative Ansatz</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/exceptional-14-visual-text-motion-examples-for-2024/"><u>Exceptional 14 Visual Text Motion Examples for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/free-fires-audio-transformation-tricks/"><u>Free Fire's Audio Transformation Tricks</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-oppo-a18-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Oppo A18? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-chromebook-linux-installation-tutorial-the-ultimate-guide/"><u>New 2024 Approved Chromebook Linux Installation Tutorial The Ultimate Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-subtle-art-of-easing-audio-intensity-garageband-for-2024/"><u>The Subtle Art of Easing Audio Intensity (Garageband) for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/wonderfox-dvd-to-video-conversion-exclusive-discounts-and-gifts-for-gemaste-readers/"><u>WonderFox DVD-to-Video Conversion: Exclusive Discounts and Gifts for Gemaste Readers</u></a></li>
 </ul></div>
 
