@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Orchestrate Acoustics Within Presentation PPTS for 2024"
-date: 2024-09-11T03:35:22.977Z
-updated: 2024-09-17T10:28:19.267Z
+date: 2024-10-10T16:01:05.363Z
+updated: 2024-10-15T16:19:47.963Z
 tags: 
   - screen-recording
   - ai video
@@ -131,6 +131,13 @@ You can import music media to the Media Library and then directly drag and drop 
 
 ![add transitions filmora](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 There are multiples of transitions available in Filmora to choose among. You can apply a particular transition between each selected photo or apply random transitions as per your interests.
 
 Filmora features 30 plus transitions, especially for Slideshow or PowerPoint presentations, such as cross split, cross merge, swap, and sweep clockwise. You can also use 3D transition, speed blur, or ripple and dissolve transitions.
@@ -148,85 +155,92 @@ Filmora features the voiceover recording tool, which assists you in recording yo
 ![add background music filmora](https://images.wondershare.com/filmora/article-images/create-music-slideshow-filmora9.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+##### Step5 Export and Save
+
+Now, it's time to save and export the music slideshow as you see fit. You have several options where you can save the final project within your PC in different formats, or you can share it to various social media platforms directly, or you can burn it to DVD.
+
+Why choose Filmora to add music to the PowerPoint presentation?
+
+● Compatibility with different formats.
+
+● It helps you crop, zoom, and pan the PowerPoint slideshow automatically or manually by applying Pan & Zoom Photo Placement.
+
+● It has a massive library of sound effects, music tracks, stunning transitions, elements presets, and effects.
+
+● Here, you can record your voiceover and apply fade-in and fade-out effects.
+
+### Conclusion
+
+So, we're now concluding on how to add music to PowerPoint along with describing the most straightforward yet proficient way of making things simpler. We've discussed a quick yet straightforward to absorb step-by-step guide on how to put music in PowerPoint. If you wish to add a fully edited video directly into the PowerPoint presentation, try using Wondershare Filmora and enjoy your greatest wonders!
+
+02 [Can I play music automatically on PowerPoint](#Part 2)
+
+03 [Get music to play throughout a PowerPoint](#Part 3)
+
+04 [Add more songs to a PowerPoint presentation](#Part 4)
+
+## Part 1 How to add music to PowerPoint?
+
+Before you add music to PowerPoint, note specific points.
+
+Your presentation size will increase by the size of the MP3 music file you add after the audio files are embedded directly into PPT.
+
+For instance, the size of your presentation will magnify by 17MB if you add a song of 17MB to the presentation.
+
+So, the solution is that you need to compress your file size accordingly.
+
+![add music to ppt 1](https://images.wondershare.com/filmora/article-images/2022/02/add-music-to-ppt-1.jpg)
+
+### Steps on how to insert music in PowerPoint presentation
+
+##### Step1 Navigate to your Title slide (or wherever you want your music to start)
+
+##### Step2 Click the Insert tab
+
+##### Step3 Open the Audio drop-down (in the Media group)
+
+##### Step4 Select Audio on My PC
+
+##### Step5 Visit the folder on your computer
+
+##### Step6 Select the Audio file
+
+##### Step7 Hit the Insert tab
+
+Consequently, the audio file gets embedded in your presentation.
+
+![ppt audio options](https://images.wondershare.com/filmora/article-images/2022/02/ppt-audio-options.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+After the music embeds in your presentation, anyone who opens the presentation can access and play the music inside PowerPoint.
+
+Your song will play within the Click Sequence of your presentation by default.
+
+After inserting music into your presentation, you can then convert your entire presentation into a video and share it with your colleagues.
+
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-##### Step5 Export and Save
-
-Now, it's time to save and export the music slideshow as you see fit. You have several options where you can save the final project within your PC in different formats, or you can share it to various social media platforms directly, or you can burn it to DVD.
-
-Why choose Filmora to add music to the PowerPoint presentation?
-
-● Compatibility with different formats.
-
-● It helps you crop, zoom, and pan the PowerPoint slideshow automatically or manually by applying Pan & Zoom Photo Placement.
-
-● It has a massive library of sound effects, music tracks, stunning transitions, elements presets, and effects.
-
-● Here, you can record your voiceover and apply fade-in and fade-out effects.
-
-### Conclusion
-
-So, we're now concluding on how to add music to PowerPoint along with describing the most straightforward yet proficient way of making things simpler. We've discussed a quick yet straightforward to absorb step-by-step guide on how to put music in PowerPoint. If you wish to add a fully edited video directly into the PowerPoint presentation, try using Wondershare Filmora and enjoy your greatest wonders!
-
-02 [Can I play music automatically on PowerPoint](#Part 2)
-
-03 [Get music to play throughout a PowerPoint](#Part 3)
-
-04 [Add more songs to a PowerPoint presentation](#Part 4)
-
-## Part 1 How to add music to PowerPoint?
-
-Before you add music to PowerPoint, note specific points.
-
-Your presentation size will increase by the size of the MP3 music file you add after the audio files are embedded directly into PPT.
-
-For instance, the size of your presentation will magnify by 17MB if you add a song of 17MB to the presentation.
-
-So, the solution is that you need to compress your file size accordingly.
-
-![add music to ppt 1](https://images.wondershare.com/filmora/article-images/2022/02/add-music-to-ppt-1.jpg)
-
-### Steps on how to insert music in PowerPoint presentation
-
-##### Step1 Navigate to your Title slide (or wherever you want your music to start)
-
-##### Step2 Click the Insert tab
-
-##### Step3 Open the Audio drop-down (in the Media group)
-
-##### Step4 Select Audio on My PC
-
-##### Step5 Visit the folder on your computer
-
-##### Step6 Select the Audio file
-
-##### Step7 Hit the Insert tab
-
-Consequently, the audio file gets embedded in your presentation.
-
-![ppt audio options](https://images.wondershare.com/filmora/article-images/2022/02/ppt-audio-options.jpg)
-
-After the music embeds in your presentation, anyone who opens the presentation can access and play the music inside PowerPoint.
-
-Your song will play within the Click Sequence of your presentation by default.
-
-After inserting music into your presentation, you can then convert your entire presentation into a video and share it with your colleagues.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2 Can I play music automatically on PowerPoint
@@ -240,13 +254,6 @@ Yes, you can start the audio in the click sequence or immediately.
 ##### Step2 Choose Automatically or In Click Sequence in the Start list within the Audio Options of Audio Tools Playback tab
 
 ![play automatic ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-automatic-ppt.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##### Step3 Remember that the In Click Sequence function is only available in PowerPoint 2016 and the latest versions
 
@@ -362,6 +369,13 @@ Consequently, the audio file gets embedded in your presentation.
 
 ![ppt audio options](https://images.wondershare.com/filmora/article-images/2022/02/ppt-audio-options.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 After the music embeds in your presentation, anyone who opens the presentation can access and play the music inside PowerPoint.
 
 Your song will play within the Click Sequence of your presentation by default.
@@ -386,11 +400,31 @@ Click From Beginning to test the sound over the Slide Show tab.
 
 Reminder: It would help if you keep your computer equipped with speakers or sound cards to hear sounds or music.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3 Get music to play throughout a PowerPoint
 
 You can add music to your PowerPoint and play it across slides in the slide show background.
 
 If you wish to add audio or music from the web, you have to download it to your computer before using it in a presentation.
+
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Steps to play a song across slides
 
@@ -401,13 +435,6 @@ If you wish to add audio or music from the web, you have to download it to your 
 ##### Step3 Select Play in Background within the audio icon chosen over the slide
 
 ![ppt playback](https://images.wondershare.com/filmora/article-images/2022/02/ppt-playback.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Play in Background helps automatically start the audio file during a slide show and makes the audio play throughout the multiple slides.
 
@@ -444,13 +471,6 @@ You can select the sound effect or background music from the inbuilt audio libra
 Filmora features the voiceover recording tool, which assists you in recording your voice easily.
 
 ![add background music filmora](https://images.wondershare.com/filmora/article-images/create-music-slideshow-filmora9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##### Step5 Export and Save
 
@@ -513,6 +533,19 @@ After the music embeds in your presentation, anyone who opens the presentation c
 Your song will play within the Click Sequence of your presentation by default.
 
 After inserting music into your presentation, you can then convert your entire presentation into a video and share it with your colleagues.
+
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2 Can I play music automatically on PowerPoint
 
@@ -624,5 +657,19 @@ So, we're now concluding on how to add music to PowerPoint along with describing
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/fun-for-the-whole-family-revisiting-a-goofy-movie/"><u>'Fun for the Whole Family' Revisiting a 'Goofy Movie'</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-best-10-action-ready-microphones-reviewed/"><u>[New] 2024 Approved Best 10 Action-Ready Microphones Reviewed</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-unveiling-the-next-gen-cinema-through-vr-for-2024/"><u>[New] Unveiling the Next Gen Cinema Through VR for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-pushing-boundaries-with-photomosaic-artistry/"><u>[Updated] 2024 Approved Pushing Boundaries with PhotoMosaic Artistry</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-mastering-the-art-of-thumbnail-design-with-your-mac/"><u>[Updated] Mastering the Art of Thumbnail Design with Your Mac</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-broadcasting-to-the-household-watching-facebook-videos/"><u>2024 Approved Broadcasting to the Household Watching Facebook Videos?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-nokia-g42-5g-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Nokia G42 5G Without PUK Codes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-ions-innovation-showcased-action-camera-review-of-pro-3-model/"><u>In 2024, ION's Innovation Showcased Action Camera Review of Pro 3 Model</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-precision-is-key-perfecting-close-up-videos-in-videoleap/"><u>In 2024, Precision Is Key Perfecting Close-Up Videos in Videoleap</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-apple-iphone-11-fixed-drfone-by-drfone-virtual-ios/"><u>In 2024, Why is iPogo not working On Apple iPhone 11? Fixed | Dr.fone</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/resolve-the-boot-camp-cannot-partition-error-a-comprehensive-guide/"><u>Resolve the 'Boot Camp Cannot Partition' Error: A Comprehensive Guide</u></a></li>
+<li><a href="https://win-latest.techidaily.com/the-ultimate-guide-to-personalizing-iphone-message-how-do-you-calculate-the-area-of-a-circle-given-only-its-circumference/"><u>The Ultimate Guide to Personalizing iPhone # Message: How Do You Calculate the Area of a Circle Given only Its Circumference?</u></a></li>
+</ul></div>
 

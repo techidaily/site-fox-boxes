@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, LG VR 360 Review  A New Dimension of Gaming\""
-date: 2024-10-06T06:12:52.712Z
-updated: 2024-10-09T03:32:57.445Z
+date: 2024-10-13T16:07:32.645Z
+updated: 2024-10-15T17:16:09.869Z
 tags: 
   - screen-recording
   - ai video
@@ -33,22 +33,15 @@ thumbnail: https://thmb.techidaily.com/443fa3d21137649dff0319f1c3c3070702e32a7b2
 
 ## First Impression of LG 360 VR
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Design of LG 360 VR
 
  The 360 VR does not look like other headsets present in the market and in this occurrence, this is not a good feature. Certainly, it is tough, maybe terrible even, to make someone look cool while having a VR headset on their head. But with the design of 360 VR, it is quite sure that engineers have made no attempt to resolve this issue. The headset sports a look similar to what common in the 1980s imagined a futuristic invention would look like. It actually looks like a product with a low-cost, NHS-prescribed article for modifying poor vision.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Accessories of LG 360 VR
@@ -67,15 +60,22 @@ thumbnail: https://thmb.techidaily.com/443fa3d21137649dff0319f1c3c3070702e32a7b2
 * Other than that, the headset will connect to the phone if the battery of your phone is too low or the phone is too hot.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### LG 360 VR Performance
 
  When you ponder that it is the LG G5 phone that is actually doing all the work in terms of actually driving the 360 VR's practices, you would at least assume steady performance. We know that the G5 is one of the most influential smartphones present in the market, including an Adreno 530 GPU, Snapdragon 820 and a 4GB RAM. Unfortunately, the first experience with the 360 VR’s performance is unsatisfactory to say the minimum. Having a 920 x 720 resolution per eye, this headset provides a much lower resolution rate as compared to all other virtual reality headsets present in the market. Although using it is a rollercoaster ride through various mixed experiences.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Key features of the LG 360 VR headset
 
@@ -116,13 +116,6 @@ thumbnail: https://thmb.techidaily.com/443fa3d21137649dff0319f1c3c3070702e32a7b2
 | Compatibility | Works with LG G5                        | Works with Samsung Galaxy S6, S6 Edge, S6 Edge+, Note 5, S7 and S7 Edge |
 | Resolution    | 960x720 pixels at 693ppi                | 1,280x1,440 pixels, at 518-577ppi also depends on phone                 |
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### More about LG 360 VR headset
 
  LG 360 VR is a virtual reality device designed by LG. It was actually released with LG G5 and used to promote this phone. LG 360 VR has an internal built-in display, unlike the Gear VR designed by Samsung, which also provides a unit plugging for power directly to the phone. The headset can be controlled from the smartphone screen by just tapping and swiping. LG, however, designed this device to enjoy the virtual reality experience, but the device is not up to the mark. If you haven’t bought this device yet, it is highly advised not to buy this one. It is not a very good design and its performance is also not very good.
@@ -132,6 +125,13 @@ thumbnail: https://thmb.techidaily.com/443fa3d21137649dff0319f1c3c3070702e32a7b2
  In crux, LG’s this device isn't somewhat you'd want to attire in public, and when you ponder that one of the assistances of a mobile headset is that you are not tied to a luxurious gaming rig, LG certainly should have put in some more energy when it comes to the design of 360 VR. If we are going to turn out to be a realm of VR zombies with headsets continually tied to our skulls, then we would probably want those units which let us live in style.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -158,22 +158,24 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-elevating-aerial-photography-with-gopro-karma/"><u>[New] 2024 Approved Elevating Aerial Photography with GoPro Karma</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-securing-the-title-top-5-hmds-for-drone-pilots/"><u>[New] 2024 Approved Securing the Title Top 5 HMDs for Drone Pilots</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-beyond-wirecast-a-guide-to-alternative-software-for-2024/"><u>[New] Beyond WireCast A Guide to Alternative Software for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-from-zero-to-twitter-an-instagram-guide/"><u>[New] From Zero to Twitter An Instagram Guide</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-ideal-online-platforms-for-youtube-promotion-for-2024/"><u>[New] Ideal Online Platforms for YouTube Promotion for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-premier-music-selections-for-movie-making/"><u>[New] In 2024, Premier Music Selections for Movie Making</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-superior-scripting-fx-vaults-for-2024/"><u>[New] Superior Scripting FX Vaults for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-essential-tips-streamline-mac-screen-captures-using-keyboard-tricks/"><u>[Updated] 2024 Approved Essential Tips Streamline Mac Screen Captures Using Keyboard Tricks</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-a-comprehensive-guide-to-implementing-and-using-high-dynamic-range-auto-hdr-in-windows-11-for-2024/"><u>[Updated] A Comprehensive Guide to Implementing and Using High Dynamic Range (Auto HDR) in Windows 11 for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-craft-corporate-emblems-from-available-graphic-samples/"><u>[Updated] Craft Corporate Emblems From Available Graphic Samples</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-solving-the-puzzle-of-nonexistent-facebook-video-suggests/"><u>[Updated] In 2024, Solving the Puzzle of Nonexistent Facebook Video Suggests</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitter-gif-retrieval-3-easy-methods-for-pcs-for-2024/"><u>[Updated] Twitter Gif Retrieval 3 Easy Methods for PCs for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-mastering-close-up-techniques-for-film-clarity/"><u>2024 Approved Mastering Close-Up Techniques for Film Clarity</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-zte-nubia-z60-ultra-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On ZTE Nubia Z60 Ultra</u></a></li>
-<li><a href="https://techidaily.com/how-to-repair-apple-iphone-se-2020-system-issues-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair Apple iPhone SE (2020) System Issues? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-honor-x7b-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Honor X7b Phone Hassle-Free</u></a></li>
-<li><a href="https://extra-support.techidaily.com/take-portrait-photo-with-your-old-iphone-x8-plus7-plus-for-2024/"><u>Take Portrait Photo with Your Old iPhone X/8 Plus/7 Plus for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-cutting-edge-strategies-for-voice-documentation/"><u>[New] 2024 Approved Cutting-Edge Strategies for Voice Documentation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-the-archivists-guide-reviving-yesteryears-vhs-artistry-in-todays-editing-space/"><u>[New] 2024 Approved The Archivist's Guide Reviving Yesteryear’s VHS Artistry in Today's Editing Space</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-top-10-screenshot-enhancers-ios-and-android-sticker-edition/"><u>[New] 2024 Approved Top 10 Screenshot Enhancers IOS & Android Sticker Edition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-understanding-whatsapps-voice-communication-system/"><u>[New] 2024 Approved Understanding WhatsApp's Voice Communication System</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-crafting-cinematic-magic-advanced-kinemaster-techniques/"><u>[New] Crafting Cinematic Magic Advanced Kinemaster Techniques</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-revealing-graphic-excellence-our-top-10-design-tool-list/"><u>[New] Revealing Graphic Excellence Our Top 10 Design Tool List</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-beat-the-bad-guys-top-kung-fu-action-puzzle-games/"><u>[Updated] 2024 Approved Beat the Bad Guys Top Kung Fu Action Puzzle Games</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-enhancing-your-video-conferencing-essential-tips-for-using-zoom-in-win10/"><u>[Updated] 2024 Approved Enhancing Your Video Conferencing Essential Tips for Using Zoom in Win10</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-livestream-audiovideo-creators-hub/"><u>[Updated] In 2024, LiveStream Audio/Video Creators Hub</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-movie-magic-on-mobile-ioss-best-free-and-paid-film-apps-for-2024/"><u>[Updated] Movie Magic on Mobile IOS's Best Free and Paid Film Apps for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-optimal-spectrum-adjuster/"><u>[Updated] Optimal Spectrum Adjuster</u></a></li>
+<li><a href="https://windows11.techidaily.com/empowered-scripting-in-windows-mastering-execution-policies/"><u>Empowered Scripting in Windows: Mastering Execution Policies</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-full-guide-to-iphone-11-icloud-bypass-by-drfone-ios/"><u>In 2024, Full guide to iPhone 11 iCloud Bypass</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/iphones-ultimate-strategy-for-seamless-podcast-downloading-for-2024/"><u>IPhone's Ultimate Strategy for Seamless Podcast Downloading for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mastering-youtube-channel-aesthetics-essential-size-and-dimension-tips/"><u>Mastering YouTube Channel Aesthetics Essential Size and Dimension Tips</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/peak-commercial-sky-storage-providers-for-2024/"><u>Peak Commercial Sky-Storage Providers for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/sky-symphony-top-10-websites-presenting-dynamic-hdr-imagery-for-2024/"><u>Sky Symphony - Top 10 Websites Presenting Dynamic HDR Imagery for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unlocking-solutions-for-your-ipad-instructions-on-initiating-recovery-mode/"><u>Unlocking Solutions for Your iPad: Instructions on Initiating Recovery Mode</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-vivo-s17t-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Vivo S17t Phone Network-Ready</u></a></li>
 </ul></div>
 

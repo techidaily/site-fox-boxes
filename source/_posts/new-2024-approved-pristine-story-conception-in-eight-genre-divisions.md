@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Pristine Story Conception in Eight Genre Divisions\""
-date: 2024-09-10T07:12:25.643Z
-updated: 2024-09-17T09:59:31.907Z
+date: 2024-10-10T17:04:30.297Z
+updated: 2024-10-15T16:06:25.155Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,13 @@ As aspiring screenwriters, it is important for us to focus on markets where we c
 
 ## Part 2\. Scripts examples from 8 genre
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Best horror scripts
 
 **_1\. Annabelle_**
@@ -65,6 +72,13 @@ The screenplay was written by [**Gary Dauberman**](https://en.wikipedia.org/wiki
 **_2\. Halloween_**
 
 ![halloween](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Writer:** John Carpenter and Debra Hill
 
@@ -148,6 +162,13 @@ A short video (usually animated) that explains ideas, products, or services in a
 
 This template begins with a scene where a character is struggling with the same problem your audience is facing. Once you've established a connection, you present the solution, show how it works and the results it delivers, and wrap it up with a call to action.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Best short drama scripts
 
 _**1\. A GIFT – TEN MINUTE PLAY FOR TWO ACTORS**_
@@ -194,13 +215,6 @@ When Jack meets Esther in the park one day, he swears she looks familiar. Althou
 
 **Download the script here:** <http://offthewallplays.com/wp-content/uploads/2018/12/WALK-IN-PARK-half-script-1.pdf>
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Best action scripts
 
 **_1\. 2 Guns_**
@@ -216,13 +230,6 @@ This screenplay explores the relationship between two criminals – Denzel Washi
 _**2\. Casino Royale**_
 
 ![casino royale](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-12.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Writers:** Robert Wade and Paul Haggis
 
@@ -280,6 +287,19 @@ Like any child of the 90s, I admit to having a soft spot for The Lion King. The 
 
 **Download the script here:** <https://www.studiobinder.com/blog/the-lion-king-script-screenplay-pdf-download/>
 
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3\. Make your own short movie now
 
 Have you ever stored various videos and photos on a memory card or on the computer? Why not create a movie to show them off? Once finish making a great movie, you can share it with others in a variety of ways including on YouTube, Facebook, and Instagram. Your followers will be amazed at the extraordinarily delightful works. In fact, making a movie using your own photos, videos and audio is easy.
@@ -301,13 +321,6 @@ The 4K editing support feature enables users to edit and export videos at a reso
 The [color tuning](https://tools.techidaily.com/wondershare/filmora/download/) feature enables users to adjust the white balance and dynamic range of their clips. The audio mixer feature enables changing the audio of each track. The advanced text editor allows editing the color, size, font, and even animation of the text. The screen recording feature enables recording the screen of the computer and webcam efficiently. The video stabilization feature eliminates the effects of camera shake.
 
 ![color tuning](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-18.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -353,13 +366,6 @@ Part of its enduring appeal is the simplicity of its concept: A kid who murdered
 
 **Download the script here:** <https://www.studiobinder.com/blog/halloween-script-screenplay-pdf-download/>
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Best comedy scripts
 
 **_1\. 21 Jump Street_**
@@ -433,13 +439,6 @@ _**2\. Explainer**_
 A short video (usually animated) that explains ideas, products, or services in a memorable way. There are three popular explainer video script formulas:
 
 This template begins with a scene where a character is struggling with the same problem your audience is facing. Once you've established a connection, you present the solution, show how it works and the results it delivers, and wrap it up with a call to action.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Best short drama scripts
 
@@ -515,6 +514,13 @@ Secret Agent James Bond sets out on a mission as 007 in a screenplay that can sh
 
 ![primer](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-13.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Writer:** Shane Carruth
 
 Probably the least known of the thriller scripts on this list, this low-budget sci-fi thriller from 2004 has a plot so convoluted that most people need a schematic to unravel it, but that's what makes it so impressive.
@@ -529,6 +535,13 @@ Download the script here: <https://www.takarabio.com/documents/User%20Manual/RR0
 
 ![unbreakable](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-14.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Writer:** M. Night Shyamalan
 
 Night Shyamalan (not necessarily a name you'd expect on a list of 'thriller screenplays you should read') has been praised as much for THE SIXTH SENSE as he is criticized for everything that isn't THE SIXTH SENSE, but UNBREAKABLE is a film that ironically, it breaks the mold.
@@ -542,6 +555,19 @@ The film stands out in the now crowded genre by avoiding any cataclysmic showdow
 **_1\. Cinderella_(1950)**
 
 ![cinderella 1950](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-15.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Writers:** William Peet, Ted Sears, Homer Brightman, Kenneth Anderson, Erdman Penner, Winston Hibler, Harry Reeves, Joe Rinaldi
 
@@ -575,6 +601,13 @@ The key features offered by [Wondershare Filmora](https://tools.techidaily.com/w
 
 ![make a video with wondershare filmora](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-17.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The 4K editing support feature enables users to edit and export videos at a resolution of up to 4K. The GIF support feature allows importing, editing, and exporting of GIF files. The noise removal feature facilitates removal of unwanted background noise readily.
 
 The [color tuning](https://tools.techidaily.com/wondershare/filmora/download/) feature enables users to adjust the white balance and dynamic range of their clips. The audio mixer feature enables changing the audio of each track. The advanced text editor allows editing the color, size, font, and even animation of the text. The screen recording feature enables recording the screen of the computer and webcam efficiently. The video stabilization feature eliminates the effects of camera shake.
@@ -607,5 +640,23 @@ Creating video content that can potentially go viral is no longer a complicated 
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevate-youtube-content-advanced-editing-using-wm-maker/"><u>[New] 2024 Approved Elevate YouTube Content Advanced Editing Using WM Maker</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-how-to-make-killer-youtube-channel-art/"><u>[New] 2024 Approved How to Make Killer YouTube Channel Art</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-envelop-your-senses-in-virtual-realms-the-best-vr-playback-systems-for-pc-for-2024/"><u>[New] Envelop Your Senses in Virtual Realms The Best VR Playback Systems for PC for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-hide-face-details-picart-privacy-mode/"><u>[New] Hide Face Details PicArt Privacy Mode</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-turning-down-igtv-on-insta/"><u>[New] In 2024, Turning Down IGTV on Insta</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-srt-innovations-the-future-explained-today/"><u>[Updated] 2024 Approved SRT Innovations The Future Explained Today</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-top-10-hidden-strategies-in-canvas-image-design-toolkit/"><u>[Updated] 2024 Approved Top 10 Hidden Strategies in Canva's Image Design Toolkit</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-add-panache-to-videos-border-magic-on-insta-for-2024/"><u>[Updated] Add Panache to Videos Border Magic on Insta for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-ghostly-movie-editing-hacks/"><u>[Updated] Ghostly Movie Editing Hacks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-deciphering-trillers-unique-positioning-amidst-social-media-titles/"><u>[Updated] In 2024, Deciphering Triller's Unique Positioning Amidst Social Media Titles</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-purerecorder-capturing-life-in-games-without-cost/"><u>[Updated] PureRecorder Capturing Life in Games Without Cost</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-5-innovative-yt-tales-share-your-life-journey/"><u>2024 Approved 5 Innovative YT Tales Share Your Life Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/germanys-favorite-language-site-mondly-reigns-supreme/"><u>Germany’s Favorite Language Site, Mondly Reigns Supreme!</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-unraveling-the-mystery-choosing-music-for-movie-trailers/"><u>In 2024, Unraveling the Mystery Choosing Music for Movie Trailers</u></a></li>
+<li><a href="https://howto.techidaily.com/play-store-not-working-on-oneplus-11r-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On OnePlus 11R? 8 Solutions Inside | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-itel-s23-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Itel S23? Here Is the Answer | Dr.fone</u></a></li>
+</ul></div>
 

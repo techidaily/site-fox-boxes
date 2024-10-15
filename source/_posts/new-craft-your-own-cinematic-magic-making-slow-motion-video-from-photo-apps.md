@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Craft Your Own Cinematic Magic  Making Slow Motion Video From Photo Apps\""
-date: 2024-10-08T06:32:24.856Z
-updated: 2024-10-09T03:05:43.143Z
+date: 2024-10-13T16:49:00.424Z
+updated: 2024-10-15T16:03:03.437Z
 tags: 
   - screen-recording
   - ai video
@@ -47,6 +47,19 @@ Navigate to the folder where your video file is located and right click on it. Y
 
 If you do not see the option anywhere on your Photos app, there is a chance you are running an outdated version of Windows 10 on your computer. All you need to do is navigate to Windows Update through your system menu. When all the updates install, you will have the latest Photos app with this feature.
 
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2：Customizing the Slow Motion Effect
 
 When you are using the Photos app to add a slow motion effect to your videos, you can tweak it to your liking. You will be able to select the speed using a slider, which lets you get the precise slow motion effect that you desire.
@@ -64,22 +77,15 @@ You can even create multiple versions of the file with the slow motion effect ap
 **You may also like:** [How to Use Story Remix to Edit a Video in Windows 10 Photos >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Edit in Slow Motion Online
 
 If you are not able to access a Windows computer, you may want a solution that can be used online. The good news is that you can use some [online video speed changers](https://tools.techidaily.com/wondershare/filmora/download/)to add a slow motion effect to your content.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### [EZGif](https://ezgif.com/video-speed)
 
@@ -93,13 +99,6 @@ Click on the “upload video” button so that it can be added into the database
 
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/ezgif-change-videos-speed-import.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3: Output**
 
 The program will let you adjust the video speed to your liking. Then you will get a URL for the output video, which will have been slowed down according to your settings. There is even an option to keep the audio track at the same speed, but you can slow down the audio at the same rate as the video if you want.
@@ -107,10 +106,10 @@ The program will let you adjust the video speed to your liking. Then you will ge
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/change-video-speed-ezgif-edit.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -118,6 +117,13 @@ The program will let you adjust the video speed to your liking. Then you will ge
 Now that you have understood how to add the effect of slow motion in Windows 10 Photos, you will be able to tweak your videos even more. The Photos application has many other features that you may want to check out, which will help you edit images and videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -144,24 +150,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-upgrade-clips-adding-effects-to-videos-pcmobile/"><u>[New] 2024 Approved Upgrade Clips Adding Effects to Videos (PC/Mobile)</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-pros-choice-a-list-of-17-superior-video-to-text-converters/"><u>[New] In 2024, The Pro's Choice A List of 17 Superior Video-to-Text Converters</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-pivot-and-merge-videos-with-ease-on-android-gadgets-for-2024/"><u>[New] Pivot and Merge Videos with Ease on Android Gadgets for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-ideas-on-boosting-gopro-energy-retention/"><u>[Updated] 2024 Approved Ideas on Boosting GoPro Energy Retention</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-the-ultra-hd-spectacle-sw320-monitor-review-edition/"><u>[Updated] 2024 Approved The Ultra HD Spectacle Sw320 Monitor Review Edition</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-best-10-free-image-transformers-jpg-to-gif-edition/"><u>[Updated] Best 10 FREE Image Transformers JPG to GIF Edition</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-exploring-the-tech-marvel-of-lg-ud88-w-monitors/"><u>[Updated] Exploring the Tech Marvel of LG UD88-W Monitors</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-cutting-through-the-facade-real-vs-pretend-facebook-followers/"><u>[Updated] In 2024, Cutting Through the Facade Real vs Pretend Facebook Followers</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-professional-portrait-maker-for-passports-desktop-and-online-access-only/"><u>[Updated] In 2024, Professional Portrait Maker for Passports – Desktop & Online Access Only</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-new-wins-for-windows-11-users/"><u>2024 Approved New Wins for Windows 11 Users</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-step-by-step-guide-to-crafting-stunning-tiktok-edits/"><u>2024 Approved Step-by-Step Guide to Crafting Stunning TikTok Edits</u></a></li>
-<li><a href="https://techidaily.com/complete-tutorial-for-xiaomi-redmi-note-12-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Xiaomi Redmi Note 12 5G Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-best-8-free-4k-uhd-video-player-software-for-windows-pcandmac/"><u>In 2024, Best 8 Free 4K UHD Video Player Software for Windows PC&Mac</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-capture-and-convert-photos-into-dynamic-videos-in-pixiz/"><u>In 2024, Capture and Convert Photos Into Dynamic Videos in Pixiz</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-oneplus-nord-n30-5g-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock OnePlus Nord N30 5G Phone without Any Data Loss</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-measuring-video-storage-space-64128gb-hard-drive-analysis/"><u>In 2024, Measuring Video Storage Space - 64/128GB Hard Drive Analysis</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/no-cost-audio-nirvana-with-oneplus-buds-unveiled/"><u>No-Cost Audio Nirvana with OnePlus Buds Unveiled</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/preventive-measures-such-as-protective-eyewear-can-significantly-reduce-the-risk-of-ocular-trauma/"><u>Preventive Measures Such as Protective Eyewear Can Significantly Reduce the Risk of Ocular Trauma</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/reel-in-success-top-drone-video-editors-for-every-stage-of-learning-for-2024/"><u>Reel in Success Top Drone Video Editors for Every Stage of Learning for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-caption-crusaders-top-10-writing-tools-for-image-capture-iosandroid/"><u>[New] 2024 Approved Caption Crusaders Top 10 Writing Tools for Image Capture (iOS/Android)</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-masterful-moments-made-simple-the-snapchat-lens-guide/"><u>[New] 2024 Approved Masterful Moments Made Simple The Snapchat Lens Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-transform-your-visuals-master-11-key-techniques-for-color-correction/"><u>[New] 2024 Approved Transform Your Visuals Master 11 Key Techniques for Color Correction</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-ideal-steadicams-for-captivating-high-quality-shoots-on-your-dslr-camera/"><u>[New] In 2024, Ideal Steadicams for Captivating, High-Quality Shoots on Your DSLR Camera</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-food-filmmakers-blueprint-techniques-and-tricks/"><u>[New] The Food Filmmaker’s Blueprint Techniques and Tricks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-time-tagging-in-picture-editing-software/"><u>[New] Time Tagging in Picture Editing Software</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-crafting-compelling-compositions-effects-on-text/"><u>[Updated] 2024 Approved Crafting Compelling Compositions Effects on Text</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-how-to-choose-a-live-streaming-platform-with-10-tips/"><u>[Updated] How to Choose a Live Streaming Platform with 10 Tips?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-master-the-skill-of-learning-behind-screen-scenes/"><u>[Updated] Master the Skill of Learning Behind Screen Scenes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-essentials-for-a-powerful-metaverse-experience-top-7/"><u>[Updated] The Essentials for a Powerful Metaverse Experience (Top 7)</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-free-versatile-laptop-software-to-watch-dvds/"><u>2024 Approved Free, Versatile Laptop Software to Watch DVDs</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/elevating-your-book-ideas-with-these-9-techniques-using-chatgpt/"><u>Elevating Your Book Ideas with These 9 Techniques Using ChatGPT</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-begin-with-class-in-every-screen-best-intro-editor-app/"><u>In 2024, Begin with Class in Every Screen Best Intro Editor App</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-top-software-for-game-recordings/"><u>In 2024, Top Software for Game Recordings</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/movavi-online-dpx-to-tiff-web/"><u>Movavi에서 Online DPX to TIFF 전환: 비용 효율적인 Web 기술에 대한 탁월한 해결책 - 무료 제공</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-speech-driven-augmented-interface/"><u>Premier Speech-Driven Augmented Interface</u></a></li>
+<li><a href="https://win-blog.techidaily.com/reconnecting-with-blizzard-titles-overcoming-server-connection-issues-easily/"><u>Reconnecting with Blizzard Titles: Overcoming Server Connection Issues Easily</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-motorola-moto-g14-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Motorola Moto G14 to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-best-free-vob-video-editor-options-ranked/"><u>Updated Best Free VOB Video Editor Options Ranked</u></a></li>
 </ul></div>
 

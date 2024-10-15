@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Theta S Revealed  An Extensive Product Evaluation\""
-date: 2024-09-15T08:40:59.112Z
-updated: 2024-09-17T00:45:51.345Z
+date: 2024-10-11T16:42:22.438Z
+updated: 2024-10-15T16:56:02.158Z
 tags: 
   - screen-recording
   - ai video
@@ -75,6 +75,13 @@ The picture quality is simply outstanding and is rated to be much better than al
 
 As this device provides easy connectivity to other iOS, Android devices as well as to PCs so it becomes much easier to transfer captured images and videos for further editing. Theta App allows users to create wonders out of spherical imaging where panning and zooming features are commonly used. The desktop version of Theta app limits users to just view and share their data without any editing feature whereas the third app known as Theta+ Video is capable enough to work for editing on iOS devices.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2 Pros and Cons at a glance
 
 | Pros                                                                                   | Cons                                                                  |
@@ -87,6 +94,19 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | Great still image quality                                                              |                                                                       |
 | Cloud service for image sharing                                                        |                                                                       |
 | Remote control (via App)                                                               |                                                                       |
+
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3 Basic specs of Ricoh Theta S
 
@@ -105,10 +125,16 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | **Image format**         | JPEG (EXIF 2.3)- The most commonly used format.           | **Video File Format** | Live streaming via HDMI supported (L:1920x1080/30fps M: 1280x720/30fps S: 720x480/30fps); Live streaming (USB): MP4 (video: MPEG-4 AVC); Motion JPEG (1280x720/15fps) |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4 Should I buy Ricoh Theta S
@@ -120,10 +146,10 @@ Theta S is one of the most useful products for photography lovers whether they a
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -149,5 +175,17 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-what-are-the-best-site-to-promote-youtube-videos/"><u>[New] 2024 Approved What Are the Best Site to Promote YouTube Videos</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-emoji-enhancement-techniques-converting-graphics-into-chat-app-stickers/"><u>[New] In 2024, Emoji Enhancement Techniques Converting Graphics Into Chat App Stickers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-premier-images-backup-portals/"><u>[New] In 2024, Premier Images Backup Portals</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-troubleshooting-iphone-camera-failing-to-autofocus/"><u>[Updated] In 2024, Troubleshooting iPhone Camera Failing to Autofocus</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-king-of-construction-showdown-thieye-t5-or-sjcam-s6-for-2024/"><u>[Updated] King of Construction Showdown Thieye T5 or SJCAM S6 for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mosaic-masterpieces-elevating-your-living-space/"><u>In 2024, Mosaic Masterpieces Elevating Your Living Space</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 5 Car Locator Apps for Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/metaverse-joke-ology-building-your-own-hilarious-memes-for-2024/"><u>Metaverse Joke-Ology Building Your Own Hilarious Memes for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/overcoming-obstacles-with-your-firestick-remote-quick-fixes-for-common-glitches/"><u>Overcoming Obstacles with Your Firestick Remote – Quick Fixes for Common Glitches</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-realme-gt-neo-5-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Realme GT Neo 5 Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
+</ul></div>
 

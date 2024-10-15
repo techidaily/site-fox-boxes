@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Speedy File Assessment on Windows PCs\""
-date: 2024-10-07T04:39:20.529Z
-updated: 2024-10-08T23:23:29.003Z
+date: 2024-10-09T16:45:07.161Z
+updated: 2024-10-15T16:01:03.289Z
 tags: 
   - screen-recording
   - ai video
@@ -46,10 +46,10 @@ Step3 After successfully installing QuickLook, head to File Explorer and select 
 Unfortunately, you won’t preview the content inside the document file. Instead, you’ll only see details like the file type/format, size, image name, and more. You can also directly choose the opening app. As for videos and audio, the media file will automatically play on the QuickLook media player. But don’t fret because the following section will teach you to read your documents, presentations, PDFs, and other files on QuickLook without opening the file.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Get the App on GitHub
@@ -62,16 +62,16 @@ Step1 Visit the [QuickLook GitHub](https://github.com/QL-Win/QuickLook) page and
 
 ![click the latest quicklook for windows version](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 Scroll down and download the .msi file. After downloading the installation file successfully, install it on your computer.
 
 ![install the quicklook for windows msi](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://github.com/QL-Win/QuickLook/wiki/Available-Plugins). Then, download the plugins to add additional preview capabilities to Microsoft QuickLook. For example, install the FontViewer, FFmpeg, and OfficeViewer plugins by clicking the respective “Link” buttons.
 
@@ -90,10 +90,10 @@ Meanwhile, it’s expected that QuickLook will come with a small preview screen.
 In other related news, Microsoft will be answering the prayers of their loyal patrons to get tabbed browsing. This is another feature similar to what you currently have on macOS, where you can open new tabs for numerous file locations. In return, this makes moving and copying files more straightforward. This easy-to-navigate addition will definitely make Microsoft Windows users more productive than before.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: Frequently Asked Questions
@@ -111,10 +111,10 @@ Unfortunately, Microsoft QuickLook doesn’t offer native support for E-books. B
 Now this is one of the primary advantages of using the Mac QuickLook. You can trim video and audio clips, rotate photos, and use markups directly on the program. We hope that the Windows version will add these convenient features as well.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -151,17 +151,21 @@ This guidepost is another testament that your PC has massive hidden abilities. W
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-syncing-images-pc-to-iphone-file-sharing/"><u>[New] 2024 Approved Syncing Images PC-to-iPhone File Sharing</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-top-10-gif-utilities-compatible-with-ios-devices/"><u>[New] 2024 Approved Top 10 GIF Utilities Compatible with iOS Devices</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-how-to-safely-obtain-vlc-player-at-no-charge-on-macos/"><u>[New] How to Safely Obtain VLC Player at No Charge on MacOS</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-the-hook-it-game-winning-podcast-beginnings/"><u>[New] The Hook-It Game Winning Podcast Beginnings</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-pioneering-the-future-of-aerial-film-craftsmanship/"><u>[Updated] Pioneering the Future of Aerial Film Craftsmanship</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-insiders-guide-to-recording-and-livestreaming-sports-events/"><u>2024 Approved Insider's Guide to Recording and Livestreaming Sports Events</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/bulk-up-your-library-no-cost-methods-to-change-videos-to-itunes-on-apple-computers/"><u>Bulk Up Your Library: No-Cost Methods to Change Videos to iTunes on Apple Computers</u></a></li>
-<li><a href="https://fox-that.techidaily.com/how-to-improve-image-quality-when-iphone-captures-lower-mp-shots/"><u>How to Improve Image Quality When iPhone Captures Lower MP Shots?</u></a></li>
-<li><a href="https://article-posts.techidaily.com/how-to-secure-free-fcp-software/"><u>How to Secure Free FCP Software</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/key-steps-for-applying-fades-in-digital-audio-editing-for-2024/"><u>Key Steps for Applying Fades in Digital Audio Editing for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/scaling-up-likes-in-tiktok-unboxing-videos-for-2024/"><u>Scaling up 'Likes' In TikTok Unboxing Videos for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/sound-design-strategies-integrating-youtube-music-into-visual-media/"><u>Sound Design Strategies Integrating YouTube Music Into Visual Media</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-lightning-lens-work-efficiently-producing-google-collage-shots/"><u>[New] 2024 Approved Lightning Lens Work Efficiently Producing Google Collage Shots</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-windows-hd-color-find-out-how-to-watch-and-edit-hdr-videos-on-your-pc/"><u>[New] 2024 Approved Windows HD Color Find Out How to Watch and Edit HDR Videos on Your PC</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-expert-reviews-top-5-masterful-motion-capture-devices/"><u>[New] In 2024, Expert Reviews Top 5 Masterful Motion Capture Devices</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-from-monotonous-to-magical-applying-video-effects-in-zoom/"><u>[New] In 2024, From Monotonous to Magical Applying Video Effects in Zoom</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-legal-music-archives-top-10-websites-for-game-playlists/"><u>[New] In 2024, Legal Music Archives Top 10 Websites for Game Playlists</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-uav-connoisseurs-guide-to-essential-equipment/"><u>[New] In 2024, The UAV Connoisseur's Guide to Essential Equipment</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-trail-the-echoes-of-de-follows-in-instagram-land/"><u>[New] In 2024, Trail the Echoes of De-Follows in Instagram Land</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-top-7-budget-friendly-high-res-4k-cameras-for-2024/"><u>[New] Top 7 Budget-Friendly High-Res 4K Cameras for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-peacock-party-patter/"><u>[Updated] Peacock Party Patter</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/elite-2023-leading-8-stealthy-video-download-tools/"><u>Elite 2023 Leading 8 Stealthy Video Download Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/innovation-meets-opportunity-the-leading-7-nft-generation-tools-for-2024/"><u>Innovation Meets Opportunity The Leading 7 NFT Generation Tools for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/innovative-approaches-to-capturing-moments-with-zooms-snaps-for-2024/"><u>Innovative Approaches to Capturing Moments with Zoom's Snaps for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/sharing-your-ipad-display-with-a-mac-3-effective-methods-featuring-movavi/"><u>Sharing Your iPad Display with a Mac: 3 Effective Methods Featuring Movavi</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-5-essentials-for-elevating-ai-responses-with-chatgpt-prompts/"><u>Top 5 Essentials for Elevating AI Responses with ChatGPT Prompts</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unstuck-in-portrait-enabling-your-iphones-rotate-screen-function/"><u>Unstuck in Portrait: Enabling Your iPhone's Rotate Screen Function</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-elevating-windows-speaker-output-three-effective-costless-strategies/"><u>Updated Elevating Windows Speaker Output Three Effective, Costless Strategies</u></a></li>
 </ul></div>
 

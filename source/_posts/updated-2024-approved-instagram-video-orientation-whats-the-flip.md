@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Instagram Video Orientation - What's the Flip?\""
-date: 2024-10-08T02:46:00.099Z
-updated: 2024-10-08T21:28:15.929Z
+date: 2024-10-13T16:49:00.397Z
+updated: 2024-10-15T17:24:27.301Z
 tags: 
   - screen-recording
   - ai video
@@ -67,19 +67,6 @@ When you're happy, click export. You can alter the format of your work right her
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-4.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Veed.io
 
 Compatibility: Online
@@ -132,13 +119,6 @@ Then tap Start editing on the video you wish to fix.
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3: Rotate the video**
 
 Tap the Rotate symbol on your Android device to rotate a video. It will counterclockwise rotate your movie by 90 degrees. Continue tapping the icon until you get the desired outcome.
@@ -153,20 +133,14 @@ Tap the Save button after previewing your video. It's as simple as that! With Mo
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-11.jpg)
 
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-12.jpg)
-
 <!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-12.jpg)
 
 ### 4\. VLC Media Player
 
@@ -181,6 +155,13 @@ Step 1: Open the VLC media player and load the video you want to rotate.
 Step 2: Select Effects and Filters from the Tools menu. Then go to the Video Effects menu to rotate your videos.
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-14.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 3: Select Geometry from the Video Effects subtab. To rotate in a specific direction, check the Transform box. You have the option to rotate 180, 90, or 270 degrees. In addition, you can rotate the movie at a specific angle.
 
@@ -277,17 +258,10 @@ Tap the Save button after previewing your video. It's as simple as that! With Mo
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. VLC Media Player
@@ -308,13 +282,6 @@ Step 3: Select Geometry from the Video Effects subtab. To rotate in a specific d
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-15.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Note: These settings are retained when you start a new movie, so remember to uncheck the rotation.
 
 Bottom Line:
@@ -327,6 +294,13 @@ Double-click the video clip on the timeline to open the video editing window. Un
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 By dragging the "Scale" button, you can make the image a full screen or alter the position, size, shape, and other aspects of the image directly in the Viewer panel.
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-3.jpg)
@@ -336,6 +310,13 @@ By dragging the "Scale" button, you can make the image a full screen or alter th
 When you're happy, click export. You can alter the format of your work right here, or you can upload it to YouTube.
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Veed.io
 
@@ -350,6 +331,13 @@ Click on 'browse video' to choose a video file from your computer to upload.
 Whether or not you have a VEED account, you can upload and edit your video. You can also record a new video or use other upload mechanisms like Dropbox or a YouTube URL using VEED.
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 2: Rotate the video:**
 
@@ -403,13 +391,6 @@ Tap the Save button after previewing your video. It's as simple as that! With Mo
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-11.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-12.jpg)
 
 ### 4\. VLC Media Player
@@ -430,13 +411,6 @@ Step 3: Select Geometry from the Video Effects subtab. To rotate in a specific d
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-15.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Note: These settings are retained when you start a new movie, so remember to uncheck the rotation.
 
 Bottom Line:
@@ -452,6 +426,13 @@ Double-click the video clip on the timeline to open the video editing window. Un
 By dragging the "Scale" button, you can make the image a full screen or alter the position, size, shape, and other aspects of the image directly in the Viewer panel.
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 3: Export the video**
 
@@ -478,6 +459,13 @@ Whether or not you have a VEED account, you can upload and edit your video. You 
 Allow time for the upload to complete. The rotating button will display above the image when you click it. To change the direction of your movie, drag this button. Under the 'Adjust' menu, you may also write the exact rotation angle.
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 3: Export the rotated video:**
 
@@ -575,19 +563,17 @@ You can easily rotate your videos according to the guidelines of the social medi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-effortless-image-incorrante-on-instagram/"><u>[New] 2024 Approved Effortless Image Incorrante on Instagram</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-navigating-video-submission-from-pcmobile-devices-to-youtube-shorts/"><u>[New] 2024 Approved Navigating Video Submission From PC/Mobile Devices to YouTube Shorts</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-the-art-of-replaying-twitch-live-streams/"><u>[New] 2024 Approved The Art of Replaying Twitch Live Streams</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-global-iptv-connectivity-solutions/"><u>[New] Global IPTV Connectivity Solutions</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-making-sense-of-creative-commons-licensing-and-usage/"><u>[New] Making Sense of Creative Commons Licensing & Usage</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-revolutionizing-text-design-top-10-after-effects-templates/"><u>[New] Revolutionizing Text Design Top 10 After Effects Templates</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-the-editors-toolkit-elevating-your-video-with-inshot-transitions-for-2024/"><u>[New] The Editor's Toolkit Elevating Your Video with Inshot Transitions for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-from-startup-to-success-skyrocketing-youtube-subs/"><u>[Updated] From Startup to Success Skyrocketing Youtube Subs</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-no-8-advanced-online-photographic-merge-suite/"><u>[Updated] In 2024, No. 8 Advanced Online Photographic Merge Suite</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-unboxing-marketing-strategy/"><u>[Updated] In 2024, Unboxing Marketing Strategy</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-discovery-unearthing-the-best-videos-from-fbs-sphere/"><u>2024 Approved Discovery Unearthing the Best Videos From FB's Sphere</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/exploring-cutting-edge-computing-at-toms-hardware-store/"><u>Exploring Cutting-Edge Computing at Tom's Hardware Store</u></a></li>
-<li><a href="https://program-issues.techidaily.com/fixing-windows-11-and-10-how-to-troubleshoot-and-enable-missing-spatial-audio-features/"><u>Fixing Windows 11 & 10: How to Troubleshoot and Enable Missing Spatial Audio Features</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-photos-from-tecno-by-fonelab-android-recover-photos/"><u>How to Rescue Lost Photos from Tecno ?</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-90-funniest-2-minute-tiktoks-ever/"><u>[New] 2024 Approved 90 Funniest 2-Minute TikToks Ever</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-from-novice-to-pro-comprehensible-periscope-steps/"><u>[New] 2024 Approved From Novice to Pro Comprehensible Periscope Steps</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-the-ultimate-catalog-of-remarkable-education-websites/"><u>[New] 2024 Approved The Ultimate Catalog of Remarkable Education Websites</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-best-way-to-use-obs-live-stream-to-facebook-for-2024/"><u>[New] Best Way to Use OBS Live Stream to Facebook for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-streamline-your-experience-with-youtubes-comment-features/"><u>[New] Streamline Your Experience with YouTube's Comment Features</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-easily-obtain-unique-epilogue-audio-files-online/"><u>[Updated] 2024 Approved Easily Obtain Unique Epilogue Audio Files Online</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-art-of-crafting-dynamic-luts/"><u>[Updated] In 2024, The Art of Crafting Dynamic LUTs</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-top-8-techniques-for-capturing-pc-audio-and-mic-sounds/"><u>2024 Approved Top 8 Techniques for Capturing PC Audio & Mic Sounds</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-master-the-art-of-excluding-commercial-videos-from-social-media/"><u>In 2024, Master the Art of Excluding Commercial Videos From Social Media</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-professional-8-stream-enhancers-for-video-sharpening/"><u>In 2024, Professional 8 Stream Enhancers for Video Sharpening</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sleek-and-durable-discover-the-full-potential-of-ankere-powercoreplus-26800-battery-pack-expert-review-inside/"><u>Sleek & Durable? Discover the Full Potential of Anker'e PowerCore+ 26800 Battery Pack - Expert Review Inside!</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/step-by-step-guide-transforming-wmv-files-into-avi-format/"><u>Step-by-Step Guide: Transforming WMV Files Into AVI Format</u></a></li>
 </ul></div>
 

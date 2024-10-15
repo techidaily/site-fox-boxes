@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Textual Transformation in Adobe After Effects"
-date: 2024-10-02T09:48:22.506Z
-updated: 2024-10-08T17:35:12.942Z
+date: 2024-10-12T16:02:20.225Z
+updated: 2024-10-15T16:45:36.728Z
 tags: 
   - screen-recording
   - ai video
@@ -55,10 +55,10 @@ Adobe After Effects provides a ton of families of fonts that can be added and us
 Some of the most famous fonts such as "typewriter", "Cursive Handwriting" and many more are categorized under their family of fonts and are very easy to access. Along with this, you can also select fonts with different character strokes and can alter their features while adding to your videos.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3\. How to use text effects in After Effects?
@@ -68,13 +68,6 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 * First, select the project video that you want to edit. Then navigate to "effects and presets" and search for the presets of the texts that you want to edit.
 
 ![effects and presets adobe](https://images.wondershare.com/filmora/article-images/2022/07/effects-and-presets-adobe.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Now, add that text effect to your video by clicking on it and dragging and dropping it on your video. Then select any animation preset for your text from "Adobe Bridge".
 * Then slide the keyframes to set the text effect on the section of the video where you want to add your text. You can also compose the text by clicking on it and editing it for adjusting its content, height, width, opacity, and color.
@@ -92,6 +85,13 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
@@ -102,6 +102,13 @@ These features also include adding texts and changing the fonts of those texts o
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -113,16 +120,16 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
@@ -130,13 +137,6 @@ These features also include adding texts and changing the fonts of those texts o
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -166,20 +166,17 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-pioneering-video-content-creation-via-google-trends-study/"><u>[New] 2024 Approved Pioneering Video Content Creation via Google Trends Study</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-visionaryvideoeditor-thorough-breakdown-and-opinions/"><u>[New] VisionaryVideoEditor Thorough Breakdown & Opinions</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-mastering-choice-optimal-free-srt-translation-services/"><u>[Updated] 2024 Approved Mastering Choice Optimal Free SRT Translation Services</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-free-photos-for-every-project-an-exclusive-list-of-top-12-online-sources/"><u>[Updated] Free Photos for Every Project - An Exclusive List of Top 12 Online Sources</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-troubleshooting-steps-for-windows-10-photos-freeze/"><u>[Updated] Troubleshooting Steps for Windows 10 Photos Freeze</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-ultimate-video-guide-from-youtube-to-twitter-for-2024/"><u>[Updated] Ultimate Video Guide From YouTube to Twitter for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/banishing-disruptions-essential-strategies-for-tackling-new-world-network-hiccups/"><u>Banishing Disruptions: Essential Strategies for Tackling New World Network Hiccups</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/free-and-easy-hp-officejet-pro-8715-driver-download-for-windows-operating-systems-win10-win11-win8/"><u>Free and Easy: HP Officejet Pro 8715 Driver Download for Windows Operating Systems (Win10, Win11, Win8)</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/how-to-fade-out-audio-in-logic-pro-for-2024/"><u>How To Fade Out Audio In Logic Pro for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-tips-for-accurate-age-input-in-tiktok-profiles/"><u>In 2024, Tips for Accurate Age Input in TikTok Profiles</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/new-2024-approved-top-9-free-tv-streaming-services-or-sites-to-use/"><u>New 2024 Approved Top 9 Free TV Streaming Services or Sites To Use</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/securing-your-gaming-victories-through-fbx/"><u>Securing Your Gaming Victories Through FBX</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/the-isolated-earbuds-fix-manual/"><u>The Isolated Earbuds Fix Manual</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/transform-tasks-using-auto-gpt-discover-8-game-changing-techniques/"><u>Transform Tasks Using Auto-GPT: Discover 8 Game-Changing Techniques</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/what-is-periscope-for-2024-is-it-free-and-how-to-sign-up-it/"><u>What Is Periscope for 2024 Is It Free and How to Sign up It?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-stream-with-clarity-ranking-the-best-6-microphones-today/"><u>[New] 2024 Approved Stream with Clarity Ranking the Best 6 Microphones Today</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-top-screen-capture-apps-for-idevices/"><u>[New] In 2024, Top Screen Capture Apps for iDevices</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unleash-your-full-potential-in-the-metaverse/"><u>[Updated] 2024 Approved Unleash Your Full Potential in the Metaverse</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-pro-rated-screen-capture-software-top-11-selections/"><u>[Updated] In 2024, Pro-Rated Screen Capture Software Top 11 Selections</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-learn-to-leverage-telegram-a-comprehensive-online-tutorial-for-2024/"><u>[Updated] Learn to Leverage Telegram A Comprehensive Online Tutorial for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-olympic-spirits-2022s-short-track-feat/"><u>[Updated] Olympic Spirits 2022'S Short-Track Feat</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-ultimate-auditory-interface-win-for-2024/"><u>[Updated] Ultimate Auditory Interface, WIN for 2024</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/boost-your-conversions-by-turning-pdf-brochures-into-engaging-digital-flipbooks-with-flipbuildercom/"><u>Boost Your Conversions by Turning PDF Brochures Into Engaging Digital Flipbooks with FlipBuilder.com</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/from-pixels-to-prints-master-snapseed-fundamentals/"><u>From Pixels to Prints Master Snapseed Fundamentals</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/step-by-step-guide-to-linking-obs-and-streamlabs-mac/"><u>Step-by-Step Guide to Linking OBS & Streamlabs (Mac)</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722965423877-techkey-universal-bluetooth-receiver-install-the-latest-drivers-for-windows-users-now/"><u>Techkey Universal Bluetooth Receiver: Install the Latest Drivers for Windows Users Now!</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/your-personal-roadmap-to-mastering-artificial-intelligence-15-costless-e-learning-options-from-lifewire/"><u>Your Personal Roadmap to Mastering Artificial Intelligence - 15 Costless E-Learning Options From Lifewire</u></a></li>
 </ul></div>
 

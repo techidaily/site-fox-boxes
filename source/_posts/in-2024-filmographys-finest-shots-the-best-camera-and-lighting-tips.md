@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Filmography's Finest Shots  The Best Camera & Lighting Tips\""
-date: 2024-10-03T03:20:27.232Z
-updated: 2024-10-08T16:04:54.123Z
+date: 2024-10-10T16:58:16.662Z
+updated: 2024-10-15T17:23:14.090Z
 tags: 
   - screen-recording
   - ai video
@@ -41,13 +41,6 @@ Step 1 Attach your phone to the side of a door using duct tape or any strong tap
 
 Step 2 Now open and close the door to get smooth camera movement.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tip 2\. DIY Light Focus and Control
 
 Shaping light is a crucial component of filmmaking, requiring command over creating and guiding shadows. You need to focus the light on the subjects rather than the background. Use the following methods to focus light on the point of interest.
@@ -70,13 +63,6 @@ Alright! Let's check out how it looks in the video below.
 
 ![diy led panel](https://images.wondershare.com/filmora/article-images/2022/12/diy-led-panel.gif)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### DIY Light Flag
 
 Black color does not reflect light, so a black fabric can be used to make a DIY Light Flag. Here is a step-by-step guide to creating a light flag at home.
@@ -96,16 +82,23 @@ Let us see how it looks;
 ![diy light flag](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-flag.gif)
 
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### DIY Black Wrap
@@ -129,6 +122,13 @@ Step 5 Put the bulb on the lamp and turn it on the lamp.
 Here is a GIF attached for a better understanding of the steps.
 
 ![diy black wrap](https://images.wondershare.com/filmora/article-images/2022/12/diy-black-wrap.gif)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### DIY Light Reflector
 
@@ -171,22 +171,15 @@ For a better understanding of the steps, watch the GIF attached below.
 ![diy light diffuser](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-diffuser.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tip 4\. Reveal Movement and 180° Presentation
 
 The most commonly used cinematic movements are the reveal and 180° presentation movements. A gimbal is needed to record these movements.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Reveal Movement
 
@@ -205,6 +198,19 @@ Step 4 Locking mode is best for recording reveal movement shots.
 Here is a video showing how to record reveal movement.
 
 ![reveal movement](https://images.wondershare.com/filmora/article-images/2022/12/reveal-movement.gif)
+
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 180° Presentation Movement
 
@@ -225,16 +231,17 @@ A sample video attached below shows how to record 180 presentation movements.
 ![180 presentation movement](https://images.wondershare.com/filmora/article-images/2022/12/180-presentation-movement.gif)
 
 <!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tip 5\. Create a Barrel Roll Shot
@@ -256,13 +263,6 @@ Step 4 Turn on the power drill at low speed and record the barrel roll shot.
 The video attached below will help you to understand these steps.
 
 ![barrel roll shot](https://images.wondershare.com/filmora/article-images/2022/12/barrel-roll-shot.gif)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -300,18 +300,21 @@ After filming the videos, edit them using [Wondershare Filmora](https://tools.te
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-affordable-flight-masters-top-drone-selections-below-500/"><u>[New] In 2024, Affordable Flight Masters Top Drone Selections Below $500</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-metaverse-reflections-a-pioneering-collection-of-thoughts/"><u>[Updated] 2024 Approved Metaverse Reflections A Pioneering Collection of Thoughts</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-complete-guide-mastering-voice-recognition-in-google-documents/"><u>[Updated] Complete Guide Mastering Voice Recognition in Google Documents</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-horizon-hurdlers-celebrating-the-most-staying-power-drones/"><u>[Updated] Horizon Hurdlers Celebrating the Most Staying Power Drones</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-twitch-writers-picks-5-ultimate-cams-for-gameplay-broadcasting/"><u>[Updated] Twitch' Writers’ Picks 5 Ultimate Cams for Gameplay Broadcasting</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-construct-memetic-mirth/"><u>2024 Approved Construct Memetic Mirth</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/canon-sx420-the-ultimate-travel-camera-with-max-zoom-capabilities/"><u>Canon SX420: The Ultimate Travel Camera with Max Zoom Capabilities</u></a></li>
-<li><a href="https://win11.techidaily.com/clearing-up-local-device-misnaming-on-windows-systems/"><u>Clearing Up Local Device Misnaming on Windows Systems</u></a></li>
-<li><a href="https://win-dash.techidaily.com/dell-sm-bus-control-device-firmware-upgrade-instructions-and-benefits/"><u>Dell SM Bus Control Device - Firmware Upgrade Instructions and Benefits</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-grateful-reels-exclusive-free-and-paid-otus/"><u>In 2024, Grateful Reels Exclusive Free & Paid OTUs</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-vivo-t2-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Vivo T2 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-sky-surfing-in-hd-with-the-yuneec-drone-review/"><u>In 2024, Sky Surfing in HD with the Yuneec Drone Review</u></a></li>
-<li><a href="https://extra-support.techidaily.com/premium-webcam-options-tailored-for-efficient-zoom-meetings-for-2024/"><u>Premium Webcam Options Tailored for Efficient Zoom Meetings for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-unleashing-potential-with-the-q500-drone/"><u>[New] 2024 Approved Unleashing Potential with the Q500 Drone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-mastering-the-art-of-crafting-engaging-spotify-promos-for-2024/"><u>[New] Mastering the Art of Crafting Engaging Spotify Promos for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-excellent-quality-hd-video-preservers/"><u>[Updated] Excellent Quality HD Video Preservers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-crafting-the-perfect-soundscape-with-googles-ringtone/"><u>[Updated] In 2024, Crafting the Perfect Soundscape with Google's Ringtone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-rapid-growth-tactics-hit-and-maintain-a-stellar-10000-views-mark/"><u>[Updated] In 2024, Rapid Growth Tactics Hit and Maintain a Stellar 10,000 Views Mark</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-simplified-live-mastery-one-channel-broadcast-strategies/"><u>[Updated] Simplified LIVE Mastery One-Channel Broadcast Strategies</u></a></li>
+<li><a href="https://fox-links.techidaily.com/color-your-skies-dji-mini-2-and-air-2s-luts-complimentary-offer/"><u>Color Your Skies – DJI Mini 2 & Air 2S LUTS Complimentary Offer</u></a></li>
+<li><a href="https://article-tips.techidaily.com/deciphering-the-multifaceted-nature-of-mixed-reality-for-2024/"><u>Deciphering the Multifaceted Nature of Mixed Reality for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/diagnosing-and-repairing-spotify-crashes-in-win11/"><u>Diagnosing and Repairing Spotify Crashes in Win11</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-latest-broadcom-bluetooth-drivers-for-windows-operating-systems-windows-10-8-and-7/"><u>Get the Latest Broadcom Bluetooth Drivers for Windows Operating Systems (Windows 10, 8, and 7)</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-adapt-video-dimensions-anytime-anywhere/"><u>In 2024, Adapt Video Dimensions Anytime, Anywhere</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-professional-portrait-maker-for-passports-desktop-and-online-access-only/"><u>In 2024, Professional Portrait Maker for Passports – Desktop & Online Access Only</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-proven-subtitle-editors-the-comprehensive-top-10-list-online/"><u>In 2024, Proven Subtitle Editors – The Comprehensive Top 10 List (Online)</u></a></li>
+<li><a href="https://driver-install.techidaily.com/opengl-shader-programming-tutorial/"><u>OpenGL Shader Programming Tutorial</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/transform-your-images-basic-tips-with-lunapic-for-2024/"><u>Transform Your Images Basic Tips with LunaPic for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-fitbit-charge-nreview-trendy-looks-meet-robust-performance/"><u>Unveiling the Fitbit Charge nReview : Trendy Looks Meet Robust Performance</u></a></li>
 </ul></div>
 
