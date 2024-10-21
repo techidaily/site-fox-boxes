@@ -1,7 +1,7 @@
 ---
 title: "Phantom Slow Motion Masterclass"
-date: 2024-10-08T16:23:16.886Z
-updated: 2024-10-15T17:09:48.023Z
+date: 2024-10-15T21:57:08.436Z
+updated: 2024-10-21T00:03:42.276Z
 tags: 
   - screen-recording
   - ai video
@@ -73,13 +73,6 @@ Once you have all of the necessary equipment, you will need to set up your camer
 
 Depending on the length of the video you want to create, you may need to take thousands of pictures. Once you have all of the pictures, you will need to use a time-lapse video editing software to put them all together.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to edit time-lapse video on a computer
 
 If you've ever been to a nature preserve, you know that the best way to see it is with your own eyes. But what if you don't have time to go out and look at the wildlife? What if you're stuck in traffic or at work? What if there's a storm? Or what if it's dark out and you can't see anything?
@@ -110,19 +103,6 @@ You can easily install Filmora for free, after installing click on it three opti
 
 ![open filmora and create a new project](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step2 Add some media to edit
 
 After creating a new project, there is an option to add media you can your the video which you want to edit.
@@ -130,10 +110,10 @@ After creating a new project, there is an option to add media you can your the v
 ![add media to library on filmora](https://images.wondershare.com/filmora/article-images/2022/11/add-media-to-library-on-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step3 Drop the media to timeline
@@ -143,10 +123,10 @@ Drag and drop your videos on the timeline to start the editing. Once you placed 
 ![drag media into timeline filmora](https://images.wondershare.com/filmora/article-images/2022/11/drag-media-into-timeline-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step4 Add titles, effects, and transitions to your video
@@ -162,10 +142,10 @@ When you want to save your video or share it on social media just click on the e
 ![export to your desktop](https://images.wondershare.com/filmora/guide/overview-export-win-3.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -195,6 +175,13 @@ It is important to pick something that will move slowly or that you can control 
 The camera will then capture the movement in slow motion, allowing you to see the beauty of the movement that would otherwise be missed.
 
 ![shoot video with phantom camera](https://images.wondershare.com/filmora/article-images/2022/11/shoot-video-with-phantom-camera.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Why do we need a phantom slow-motion camera?
 
@@ -247,6 +234,13 @@ You can easily install Filmora for free, after installing click on it three opti
 
 ![open filmora and create a new project](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step2 Add some media to edit
 
 After creating a new project, there is an option to add media you can your the video which you want to edit.
@@ -258,13 +252,6 @@ After creating a new project, there is an option to add media you can your the v
 Drag and drop your videos on the timeline to start the editing. Once you placed your videos on timelines put the video header at the front.
 
 ![drag media into timeline filmora](https://images.wondershare.com/filmora/article-images/2022/11/drag-media-into-timeline-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##### Step4 Add titles, effects, and transitions to your video
 
@@ -279,10 +266,17 @@ When you want to save your video or share it on social media just click on the e
 ![export to your desktop](https://images.wondershare.com/filmora/guide/overview-export-win-3.png)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -319,14 +313,18 @@ As filmmakers and video lovers, we have come up with some solid examples of time
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-expert-strategies-for-choosing-ideal-youtube-banner-dimensions/"><u>[New] 2024 Approved Expert Strategies for Choosing Ideal YouTube Banner Dimensions</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-from-tiktok-to-twitter-a-step-by-step-guide/"><u>[New] 2024 Approved From TikTok to Twitter A Step-by-Step Guide</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-stellar-stories-celebrating-youtubes-best-narratives/"><u>[New] In 2024, Stellar Stories Celebrating YouTube's Best Narratives</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-the-essential-e-steps-your-pathway-from-preparation-to-production-in-a-reviews-channel/"><u>[New] The Essential E-Steps Your Pathway From Preparation to Production in a Reviews Channel</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-revamp-iphone-photos-effective-red-eye-removal-for-free/"><u>[Updated] 2024 Approved Revamp iPhone Photos Effective Red-Eye Removal for FREE</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-fitness-forward-6-video-concepts-to-energize-your-online-community/"><u>[Updated] In 2024, Fitness Forward 6 Video Concepts to Energize Your Online Community</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-leveraging-ai-for-dynamic-gaming-video-coverage/"><u>[Updated] In 2024, Leveraging AI for Dynamic Gaming Video Coverage</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-sculpting-light-and-shadow-the-photoshop-hdr-way/"><u>[Updated] In 2024, Sculpting Light and Shadow The Photoshop HDR Way</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/the-role-of-vector-databases-in-advancing-artificial-intelligence-technologies/"><u>The Role of Vector Databases in Advancing Artificial Intelligence Technologies</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-podcast-logo-basics-key-principles-for-striking-art/"><u>[New] 2024 Approved Podcast Logo Basics Key Principles for Striking Art</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-step-by-step-audio-transformation-tips-for-enhanced-competitive-play-in-free-fire/"><u>[New] Step-by-Step Audio Transformation Tips for Enhanced Competitive Play in Free Fire</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-rhythm-and-recording-in-snapchat/"><u>[Updated] 2024 Approved Rhythm & Recording in Snapchat</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-8-top-tier-filters-to-elevate-your-live-feed/"><u>2024 Approved 8 Top-Tier Filters to Elevate Your Live Feed</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-beyond-ustream-an-examination-of-video-streaming/"><u>2024 Approved Beyond Ustream An Examination of Video Streaming</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-essential-vr-companies-for-the-next-decade/"><u>2024 Approved Essential VR Companies for the Next Decade</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-path-to-youtube-prosperity-unlocking-monetization-with-500plus-views/"><u>2024 Approved Path to YouTube Prosperity Unlocking Monetization with 500+ Views</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-essence-of-effortless-live-broadcasts-with-one-device-use/"><u>2024 Approved The Essence of Effortless Live Broadcasts with One-Device Use</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-top-ten-ios-slideshow-creation-software/"><u>2024 Approved Top Ten iOS Slideshow Creation Software</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-contacts-from-rog-phone-7-ultimate-by-fonelab-android-recover-contacts/"><u>Best Android Data Recovery - Retrieve Lost Contacts from ROG Phone 7 Ultimate.</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/bikes-viewing-experience-5050-of-the-ultimate-helmet-cam-tech-for-2024/"><u>Bike's Viewing Experience - 50/50 of the Ultimate Helmet Cam Tech for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-nokia-c02-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Nokia C02 | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-steps-for-when-armored-core-vi-wont-start/"><u>Troubleshooting Steps for When Armored Core VI Won't Start</u></a></li>
 </ul></div>
 

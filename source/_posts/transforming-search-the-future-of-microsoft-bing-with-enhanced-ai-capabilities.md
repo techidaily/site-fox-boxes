@@ -1,7 +1,7 @@
 ---
 title: "Transforming Search: The Future of Microsoft Bing with Enhanced AI Capabilities"
-date: 2024-10-12T16:48:56.759Z
-updated: 2024-10-15T17:20:41.185Z
+date: 2024-10-14T22:25:33.745Z
+updated: 2024-10-20T23:48:11.871Z
 tags:
   - chatgpt
   - open-ai
@@ -54,13 +54,6 @@ thumbnail: https://thmb.techidaily.com/e0d972d2fcbdfdcba3e132e48f8036c4f80fa7e20
 
  Claude AI clearly got this one. We tried a few more tricky problems, and both chatbots had a fair share of successes and failures in dealing with them. Considering the outcome we observed, it might be fair to say that while ChatGPT has an edge, both chatbots are not too far apart in common sense and logical reasoning abilities.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## ChatGPT vs. Claude AI: Math Skills
 
  Even if you never plan to use ChatGPT or Claude AI to solve your Algebra homework, their mathematical abilities have far-reaching implications. For AI chatbots, math is the key to understanding real-world logic, identifying flawed thinking, and admitting mistakes.
@@ -73,9 +66,29 @@ ChatGPT also cracked the problem as well.
 
 ![ChatGPT solves maths problem on productivity](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/chatgpt-solves-maths-problem-on-productivity.jpg)
 
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Moving on, we asked both chatbots to solve**8/a-1 = 20/3a-1** , a fairly straightforward math problem with a surprisingly high failure rate among AI chatbots. ChatGPT was able to solve it, providing a correct answer of**\-3** at the first attempt.
 
 ![ChatGPT solves a math problem](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/chatgpt-solves-a-math-problem.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Claude AI failed at the first attempt, but when we prompted it to solve the problem step by step (which forces it to think through every step of its logic) it was able to crack it.
 
@@ -93,27 +106,20 @@ ChatGPT also cracked the problem as well.
 
 ![ChatGPT composes a rap lyrics](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/chatgpt-composes-a-rap-lyrics.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  We then fed the same prompt to Claude AI, and it gave it a fair shot as well.
 
 ![Claude AI composes a rap lyrics](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/claude-ai-composes-a-rap-lyrics.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Both lyrics are good, but ChatGPT seemed to have an edge here. It had better rhyming, and we had the result we needed on the first trial. We had to try three times before Claude AI could produce lyrics that rhymed. We'll give this one to ChatGPT.
 
  After trying out a few more creative tasks, Claude AI seemed to excel in writing-related tasks and was able to write more natural-sounding content like a human writer would do. Although[ChatGPT was better at overcoming more complex creative tasks](https://www.makeuseof.com/creative-ways-to-use-chatgpt-openai/) , it sometimes couldn't shake off that AI chatbot feeling in the text it generated. Our verdict? Both ChatGPT and Claude AI are creative in their own right.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## ChatGPT vs. Claude AI: Coding Skills
 
@@ -125,18 +131,18 @@ ChatGPT also cracked the problem as well.
 
 ![to-do list app by ChatGPT](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/to-do-list-app-by-chatgpt.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Moving on to Claude AI, the chatbot wrote clearly intelligible code. The structure and logic all seemed fine. Unfortunately, despite repeated attempts, Claude AI kept missing some critical logic to make the code actually run on a browser. It's a fail on this one.
 
  After Claude AI failed the last test, we tried a different kind of coding task, one that was more about analyzing code and less about writing new code. We uploaded five PHP files that represent the complete backend for a website and asked both Claude AI and ChatGPT where we would need to edit in all the uploaded files to ensure we get a mail once a new user registers on the site.
 
 ![Claude AI analyzing multiple PHP files](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/claude-ai-analyzing-multiple-php-files.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Surprisingly, ChatGPT, despite seemingly having superior coding skills, failed at this despite repeated attempts. Claude AI, on the other hand, was able to analyze the code proficiently while identifying the right places that needed to be edited to achieve the desired results.
 
@@ -163,17 +169,24 @@ ChatGPT also cracked the problem as well.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-step-into-vlogging-fundamental-gear-and-applications-for-2024/"><u>[New] Step Into Vlogging Fundamental Gear and Applications for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-the-secrets-to-hassle-free-background-hocus-pocus-on-zoom/"><u>[Updated] 2024 Approved The Secrets to Hassle-Free Background Hocus Pocus on Zoom</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-audiovisual-conjuring-apples-artistic-blend-for-2024/"><u>[Updated] Audiovisual Conjuring Apple's Artistic Blend for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-high-tide-gear-surfing-camera-innovations-of-2023/"><u>[Updated] High Tide Gear Surfing Camera Innovations of 2023</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-building-a-powerful-brand-presence-with-instagrams-biz-tools/"><u>[Updated] In 2024, Building a Powerful Brand Presence with Instagram's Biz Tools</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-shadowy-time-lapse-recording-methods/"><u>[Updated] Shadowy Time-Lapse Recording Methods</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-tips-on-troubleshooting-frozen-obs-fullscreen-problem/"><u>2024 Approved Tips on Troubleshooting Frozen OBS Fullscreen Problem</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-ideal-suggestions-superior-mobile-melody-designers/"><u>In 2024, Ideal Suggestions Superior Mobile Melody Designers</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-top-cinema-teasers-compilation/"><u>In 2024, Top Cinema Teasers Compilation</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/mastering-the-art-of-tagging-instas-top-25-must-use-tags/"><u>Mastering the Art of Tagging Insta's Top 25 Must-Use Tags</u></a></li>
-<li><a href="https://win-dash.techidaily.com/microsoft-windows-compatible-bluetooth-driver-free-download-and-updates-for-windows-10-11-8-7/"><u>Microsoft Windows Compatible Bluetooth Driver: Free Download and Updates for Windows 10, 11, 8, 7</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/uncover-earths-wonders-with-these-top-10-vids-for-2024/"><u>Uncover Earth's Wonders with These Top 10 Vids for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-top-10-female-youtubers/"><u>[New] 2024 Approved Top 10 Female YouTubers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-creating-cash-flow-on-youtube-an-ad-free-blueprint-for-income-for-2024/"><u>[Updated] Creating Cash Flow on YouTube An Ad-Free Blueprint for Income for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-easy-reverse-video-method-for-android-users-for-2024/"><u>[Updated] Easy Reverse Video Method for Android Users for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-guide-to-scripting-engaging-youtube-videos/"><u>[Updated] Step-by-Step Guide to Scripting Engaging YouTube Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-androvid-video-editor-complete-review/"><u>2024 Approved AndroVid Video Editor – Complete Review</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-assessing-gopro-hero5-session-quality/"><u>2024 Approved Assessing GoPro Hero5 Session Quality</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-bebop-unleashed-the-parrots-aerial-showcase-review/"><u>2024 Approved Bebop Unleashed The Parrot's Aerial Showcase Review</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-elite-5-background-swap-apps-compatible-with-iphones-x-7-8/"><u>2024 Approved Elite 5 Background Swap Apps Compatible with iPhones (X, 7, 8)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-smooth-silence-integration-in-audio-post-production-audacity-style/"><u>2024 Approved Smooth Silence Integration in Audio Post-Production - Audacity Style</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-step-by-step-soundscapes-for-iphone-customization/"><u>2024 Approved Step-by-Step Soundscapes for iPhone Customization</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-oppo-k11x-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Oppo K11x to Roku | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/apex-creative-workspace-report-in-depth-studio-analysis-2023/"><u>Apex Creative Workspace Report In-Depth Studio Analysis, 2023</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/bridging-content-and-commerce-a-youtubers-guide-to-sponsorship-for-2024/"><u>Bridging Content and Commerce A Youtuber's Guide to Sponsorship for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/complete-review-of-the-latest-slomo-capture-application-for-2024/"><u>Complete Review of the Latest SloMo Capture Application for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/creating-soft-music-endings-in-adobe-premiere-video-editing/"><u>Creating Soft Music Endings in Adobe Premiere Video Editing</u></a></li>
+<li><a href="https://program-issues.techidaily.com/diagnosing-and-solving-no-audio-in-discord-video-calls-with-screen-sharing/"><u>Diagnosing and Solving No Audio in Discord Video Calls with Screen Sharing</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/getting-the-newest-driver-update-for-your-epson-xp-640-in-windows-1087/"><u>Getting the Newest Driver Update for Your Epson XP-640 in Windows 10/8/7</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-remove-mdm-from-iphone-14-pro-by-drfone-ios-unlock-ios-unlock/"><u>How to Remove MDM from iPhone 14 Pro?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-guide-how-to-check-icloud-activation-lock-status-from-your-iphone-8-plus-by-drfone-ios/"><u>In 2024, New Guide How To Check iCloud Activation Lock Status From Your iPhone 8 Plus</u></a></li>
 </ul></div>
 

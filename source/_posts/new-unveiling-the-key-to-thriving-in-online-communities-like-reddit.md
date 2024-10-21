@@ -1,7 +1,7 @@
 ---
 title: "[New] Unveiling the Key to Thriving in Online Communities Like Reddit"
-date: 2024-10-10T17:08:01.527Z
-updated: 2024-10-15T16:13:35.009Z
+date: 2024-10-15T19:48:42.106Z
+updated: 2024-10-21T02:48:50.173Z
 tags: 
   - screen-recording
   - ai video
@@ -43,6 +43,13 @@ Step1 Go to reddit.com and click on "Create Post"
 
 ![post on reddit](https://images.wondershare.com/filmora/article-images/2023/01/create-reddit-post.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Then, choose a community to post in. This is also known as a subreddit
 
 ![select subreddit to post](https://images.wondershare.com/filmora/article-images/2023/01/choose-community.png)
@@ -53,6 +60,13 @@ Step4 If you want to add images or videos, select "Images & Video" and upload yo
 
 ![reddit images and videos](https://images.wondershare.com/filmora/article-images/2023/01/images-and-videos.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5 The next section is titled "Link". Here, you can add a website you want your post to lead to
 
 Step6 You can also select the "Poll" option and give users the chance to vote on something
@@ -60,13 +74,6 @@ Step6 You can also select the "Poll" option and give users the chance to vote on
 When you're done creating your post, scroll down and click "Post." It will immediately appear in the subreddit you've chosen.
 
 If nothing is violating the [subreddit's guidelines](#%5FSubreddits), the mods will let it sit there without removing it.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Post on Mobile App
 
@@ -77,10 +84,10 @@ Step1 Click on the "+" button at the bottom of your screen
 ![post on reddit mobile](https://images.wondershare.com/filmora/article-images/2023/01/reddit-home.PNG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2 Add your title, message, images, links, and anything else you may want
@@ -97,18 +104,18 @@ Step5 Check if everything looks good, add the appropriate tags
 
 Step6 Hit Post
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Essential Tips That WILL Help You When Posting on Reddit
 
 Reddit, like any platform, has its own rules. Its algorithm that, when followed, rewards you with excellent results.
 
 That said, here's absolutely everything you should know before posting on Reddit.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Subreddits
 
@@ -120,6 +127,19 @@ Some important rules to follow:
 * You must post relevant content in each subreddit. For example, if you want to post something related to food, you should find a subreddit related to food, e.g., r/food.
 * Most subreddits have their own rules and guidelines within. This is usually displayed on the right-hand side of the page.
 
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Reddiquettes
 
 Simply put, etiquettes refer to Reddit etiquette. They are the dos and don'ts of Reddit. Reddit has posted an[official list of the proper reddiquettes](https://www.reddithelp.com/hc/en-us/articles/205926439) all users should always try and stick to.
@@ -127,13 +147,6 @@ Simply put, etiquettes refer to Reddit etiquette. They are the dos and don'ts of
 The goal behind this is to make Reddit a safer and more enjoyable platform to use. However, if you do not follow proper reddiquette, you will usually see the adverse effects in your Karma points. In other words, your Reddit Karma will decrease.
 
 And we all know that the opinion of users without sufficient Karma isn't as valued as those who have a lot of it. So, if you want to be a valued and influential member of Reddit, follow proper reddiquette.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Karma
 
@@ -164,13 +177,6 @@ The only way to get good and learn how to post on Reddit is with practice. So, u
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -204,16 +210,18 @@ The only way to get good and learn how to post on Reddit is with practice. So, u
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-enhancing-video-presentation-utilize-bb-and-lc-techniques-on-facebook/"><u>[Updated] Enhancing Video Presentation Utilize BB and LC Techniques on Facebook</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-dynamic-editing-mastering-effects-on-tiktok-content/"><u>[Updated] In 2024, Dynamic Editing Mastering Effects on TikTok Content</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-streamline-audio-podcasts-made-easy-for-iphones-for-2024/"><u>[Updated] Streamline Audio Podcasts Made Easy for iPhones for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-streamline-your-cloud-strategy-expert-recommendations-for-top-20-free-providers-for-2024/"><u>[Updated] Streamline Your Cloud Strategy Expert Recommendations for Top 20 Free Providers for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-unleash-creativity-with-these-10-ae-text-setups/"><u>[Updated] Unleash Creativity with These 10 AE Text Setups</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Tecno Spark 10 Pro? | Dr.fone</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/download-fixes-resolve-stuck-downloads-for-ios-versions-18-17-16-and-15/"><u>Download Fixes: Resolve Stuck Downloads for iOS Versions 18, 17, 16 & 15</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-cross-platform-video-uploading-twittertumblr/"><u>In 2024, Cross-Platform Video Uploading Twitter/Tumblr</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/premium-innovation-best-desktop-computers/"><u>Premium Innovation Best Desktop Computers</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/still-using-pattern-locks-with-samsung-galaxy-s23-ultra-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Samsung Galaxy S23 Ultra? Tips, Tricks and Helpful Advice</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-performance-of-google-wireless-nest-doorbells-batteries/"><u>Unveiling the Performance of Google Wireless Nest Doorbells (Batteries)</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-how-to-optimize-your-media-with-simple-video-spin-techniques-in-vlc-for-2024/"><u>[Updated] How to Optimize Your Media with Simple Video Spin Techniques in VLC for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-free-tools-for-digital-video-capture-top-picks/"><u>[Updated] In 2024, Free Tools for Digital Video Capture - Top Picks</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-prime-mac-animation-extractor-for-2024/"><u>[Updated] Prime Mac Animation Extractor for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-peering-into-the-future-with-asuss-4k-uxga-mg28uq-screen/"><u>2024 Approved Peering Into the Future with ASUS's 4K UXGA MG28UQ Screen</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-top-10-tips-for-sound-fade-effects-in-premiere-pro/"><u>2024 Approved Top 10 Tips for Sound Fade Effects in Premiere Pro</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-visual-excellence-with-these-leading-grid-software/"><u>2024 Approved Visual Excellence with These Leading Grid Software</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/5-easy-steps-to-resolve-windows-interface-errors-quickly/"><u>5 Easy Steps to Resolve Windows' Interface Errors Quickly</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/balancing-main-and-supplemental-filmmaking-elements/"><u>Balancing Main & Supplemental Filmmaking Elements</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/dial-up-your-digital-influence-nine-simple-steps-on-instagram-for-2024/"><u>Dial Up Your Digital Influence Nine Simple Steps on Instagram for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/exclusive-scoop-on-apples-revolutionary-foldable-phone-price-insights-pre-order-dates-and-specs-breakdown/"><u>Exclusive Scoop on Apple's Revolutionary Foldable Phone - Price Insights, Pre-Order Dates & Specs Breakdown</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-a-step-by-step-guide-to-finding-your-apple-id-from-your-apple-iphone-14-pro-by-drfone-ios/"><u>In 2024, A Step-by-Step Guide to Finding Your Apple ID From Your Apple iPhone 14 Pro</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-disabling-iphone-12-mini-parental-restrictions-withwithout-password-by-drfone-ios/"><u>In 2024, Disabling iPhone 12 mini Parental Restrictions With/Without Password</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-from-followers-to-fans-5-essential-instagram-tactics-for-influencers/"><u>In 2024, From Followers to Fans 5 Essential Instagram Tactics for Influencers</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Old Tech, New Memories  Portraits From iPhone X for 2024\""
-date: 2024-10-13T16:08:10.547Z
-updated: 2024-10-15T16:07:54.526Z
+date: 2024-10-17T17:34:40.578Z
+updated: 2024-10-20T20:58:04.289Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,13 @@ In this article, we are going to show you how to take photos in Portrait Mode, o
 * [Part 1: For iPhone 7 Plus/8 Plus/X users](#part1)
 * [Part 1: For iPhone 8, 7 or older iPhones users](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### For iPhone 7 Plus/8 Plus/X users
 
  **Using the Portrait Mode on an iPhone**
@@ -50,13 +57,6 @@ However, the Portrait Mode is only featured on iOS 10.1 or some more recent vers
 
 ![portrait-mode-iphone](https://images.wondershare.com/filmora/article-images/portrait-mode-iphone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Image resource: 9to5mac
 
 Portrait mode enables you to set the timer, turn off the flash or apply photo filters, but it doesn't allow its users to create live photos. When using this mode you only have to apply basic photography rules, like don't point your camera in the direction from which the light is coming from and do your best to get within a reasonable distance from the subject of your photos. If you decide to take photos in this mode indoors, you may get slightly underwhelming results because it still doesn't perform great in low-light conditions.
@@ -66,13 +66,6 @@ Portrait mode enables you to set the timer, turn off the flash or apply photo fi
 The iPhone X can also take Portrait selfies thanks to the TrueDepth front camera system. Unlike the rear camera system, the front-facing camera doesn't have multiple physical camera lenses; instead, it uses sensors from the TrueDepth system to measure a precise depth map.
 
 ![portrait-mode-selfie-iphone-x](https://images.wondershare.com/filmora/article-images/portrait-mode-selfie-iphone-x.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Image resource: imore
 
@@ -91,10 +84,10 @@ If there is not enough light or if you are too far away from the camera, the app
 ![ezy-watermark-lite-photo](https://images.wondershare.com/filmora/article-images/ezy-watermark-lite-photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Older iPhone models may not have a twin-lens system, but with the aid of a camera app such as FabFocus, iPhone photographers can easily take photos with smooth blurry backgrounds. The Automatic Depth of Field and Bokeh options enable you to add as much blur as you want to your photos and create DSLR-like images. The app also contains basic photo editing tools that can be used to touch-up the photo before you share it with your friends.
@@ -106,6 +99,13 @@ Older iPhone models may not have a twin-lens system, but with the aid of a camer
 **Compatible with:** iOS 8.0 or later
 
 ![iwatermark-watermark-photos](https://images.wondershare.com/filmora/article-images/iwatermark-watermark-photos.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Advertised as the best depth-of-field app for iPhones on the market today, Tadaa SLR sets high photography standards. To make things even better, the app is so easy to use that you just need to set the focal point of the photo and tap on the shutter button to snap a photo. However, Tadaa SLR is only a camera app that doesn't offer a lot of photo editing options.
 
@@ -127,16 +127,16 @@ The term Bokeh comes from the Japanese language and it represents the aesthetic 
 
 ![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -163,19 +163,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-ethereal-escapes-slick-action-recorders-for-2024/"><u>[New] Ethereal Escapes Slick Action Recorders for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-10-best-classic-family-vacation-movie-for-this-summer-for-2024/"><u>[Updated] 10 Best Classic Family Vacation Movie for This Summer for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-detailed-guide-to-mastering-recordings-with-audacity/"><u>[Updated] Detailed Guide to Mastering Recordings with Audacity</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-discover-the-top-10-historically-rich-youtube-tutorials-for-2024/"><u>[Updated] Discover the Top 10 Historically Rich YouTube Tutorials for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-step-by-step-strategies-downloading-audio-on-iphones-for-2024/"><u>[Updated] Step-by-Step Strategies Downloading Audio on iPhones for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-engine-power-clash-thieye-t5-against-jcb-xs30/"><u>2024 Approved Engine Power Clash Thieye T5 Against JCB XS30?</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-seamless-streaming-tips-for-uninterrupted-broadcasts/"><u>2024 Approved Seamless Streaming Tips for Uninterrupted Broadcasts</u></a></li>
-<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-apple-iphone-12-pro-max-to-enjoy-more-fun-drfone-by-drfone-virtual-ios/"><u>Change Location on Yik Yak For your Apple iPhone 12 Pro Max to Enjoy More Fun | Dr.fone</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/cutting-edge-capture-8-latency-free-tools-for-2024/"><u>Cutting-Edge Capture 8 Latency-Free Tools for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/elevate-visuals-through-artificial-intelligence-interpolation-improve-fps-and-seamless-motion-for-unparalleled-gaming-experience/"><u>Elevate Visuals Through Artificial Intelligence Interpolation – Improve FPS & Seamless Motion for Unparalleled Gaming Experience</u></a></li>
-<li><a href="https://blog-min.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Use Life360 on Windows PC For Apple iPhone SE? | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/proven-methods-for-downloading-a-thousand-tiktoks-at-once/"><u>Proven Methods for Downloading a Thousand TikToks at Once</u></a></li>
-<li><a href="https://windows11.techidaily.com/resolving-unreachable-issues-with-malwarebytes-on-win11/"><u>Resolving Unreachable Issues with Malwarebytes on Win11</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-inquiry-collection-for-podcast-appeal/"><u>Updated Inquiry Collection for Podcast Appeal</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-champions-tech-the-ultimate-gaming-toolkit/"><u>[New] 2024 Approved Champion's Tech The Ultimate Gaming Toolkit</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-dissecting-instagrams-per-post-video-quota/"><u>[New] 2024 Approved Dissecting Instagram's Per-Post Video Quota</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-boost-your-video-subtitle-skills-using-these-top-online-aids/"><u>2024 Approved Boost Your Video Subtitle Skills Using These Top Online Aids</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-cinematic-quality-the-leading-10-smartphones-with-outstanding-4k-cameras/"><u>2024 Approved Cinematic Quality The Leading 10 Smartphones with Outstanding 4K Cameras</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-iphone-laughs-and-lightheartedness/"><u>2024 Approved IPhone Laughs & Lightheartedness</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-mastering-altitude-with-djis-new-gadget/"><u>2024 Approved Mastering Altitude with DJI's New Gadget</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-mastering-the-art-of-youtube-video-submissions-for-maximum-reach/"><u>2024 Approved Mastering the Art of YouTube Video Submissions for Maximum Reach</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-motion-control-in-vr-keeping-nausea-at-bay/"><u>2024 Approved Motion Control in VR Keeping Nausea at Bay</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-redefining-cinematic-boundaries-with-360-video/"><u>2024 Approved Redefining Cinematic Boundaries with 360 Video</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-reimagine-fuzzy-images-selecting-the-ultimate-10-internet-tools/"><u>2024 Approved Reimagine Fuzzy Images Selecting the Ultimate 10 Internet Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/boost-story-impact-with-customized-video-speed-settings/"><u>Boost Story Impact with Customized Video Speed Settings</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/creating-thriving-giveaways-a-facebook-marketers-blueprint-for-2024/"><u>Creating Thriving Giveaways A Facebook Marketer's Blueprint for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/essential-antivirus-software-for-your-iphone-discover-the-top-picks/"><u>Essential Antivirus Software for Your iPhone - Discover the Top Picks</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-the-latest-upgrade-scansnap-s1e-driver-downloads-for-quick-setup/"><u>Get the Latest Upgrade: ScanSnap S1e Driver Downloads for Quick Setup</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-quick-camouflage-blurring-faces-on-demand/"><u>In 2024, Quick Camouflage Blurring Faces on Demand</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-transform-vimeo-footage-into-visual-wonders-easily/"><u>In 2024, Transform Vimeo Footage Into Visual Wonders Easily</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-unparalleled-audio-capture-top-9-online-microphone-systems-in-23/"><u>In 2024, Unparalleled Audio Capture Top 9 Online Microphone Systems in '23</u></a></li>
+<li><a href="https://network-issues.techidaily.com/rectifying-disabled-display-options-on-windows/"><u>Rectifying Disabled Display Options on Windows</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/samsung-ubd-k8500-review-2023-update/"><u>Samsung UBD-K8500 Review - 2023 Update</u></a></li>
 </ul></div>
 

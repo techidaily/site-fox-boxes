@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Secrets to a Reliable Windows 11 Photo Viewer"
-date: 2024-10-10T16:34:40.022Z
-updated: 2024-10-15T17:08:31.078Z
+date: 2024-10-18T04:35:34.528Z
+updated: 2024-10-21T04:48:21.561Z
 tags: 
   - screen-recording
   - ai video
@@ -47,13 +47,6 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 
 ## How to fix Windows 10 Photos app crashes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Solution 1: Use the Troubleshooter
 
 The Windows Troubleshooter is an inbuilt troubleshooting feature embedded with Windows 10 computers. It allows a simple interface to help you choose any application for troubleshooting. Windows Troubleshooter resolves basic issues with the Windows computer so that users can seamlessly use all Windows 10 system features and functionalities.
@@ -65,15 +58,15 @@ Here is how to troubleshoot –
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Solution 2: Restore Default Libraries
 
@@ -86,13 +79,20 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Solution 3: Reset it
@@ -136,10 +136,16 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -167,16 +173,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-echoes-in-images-selfie-with-your-x-phone/"><u>[New] 2024 Approved Echoes in Images Selfie with Your X Phone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-launching-videos-efficiently-with-free-intros/"><u>[New] In 2024, Launching Videos Efficiently with FREE Intros</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-photopea-guide-to-clean-image-canvases-for-2024/"><u>[New] Photopea Guide to Clean Image Canvases for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-quitting-linkedin-how-to-close-your-account-properly-for-2024/"><u>[New] Quitting LinkedIn How To Close Your Account Properly for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-the-ultimate-instructions-for-prolonged-iphone-shots/"><u>[Updated] 2024 Approved The Ultimate Instructions for Prolonged iPhone Shots</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-best-free-screen-cast-options-on-windows-ranked-1-to-5/"><u>[Updated] Best Free Screen Cast Options on Windows, Ranked #1 to #5</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/free-access-to-dall-e-3-through-microsofts-bing-a-step-by-step-guide/"><u>Free Access to DALL-E 3 Through Microsoft's Bing - A Step by Step Guide</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-an-elaborate-review-unveiling-lgs-ultrafine-4k-wonders/"><u>In 2024, An Elaborate Review Unveiling LG's UltraFine 4K Wonders</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-ideal-tactic-fusing-gopro-footage-into-a-unified-360-video-experience/"><u>In 2024, Ideal Tactic Fusing GoPro Footage Into a Unified 360 Video Experience</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/mastering-forza-horizon-4-startup-problems-top-fixes-and-strategies-for-a-smooth-experience/"><u>Mastering Forza Horizon 4 Startup Problems: Top Fixes and Strategies for a Smooth Experience</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/navigating-the-world-of-videomosaic-androids-8-freepaid-selection-for-2024/"><u>Navigating the World of Videomosaic Android's #8-Free/Paid Selection for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-step-by-step-revamping-the-look-of-your-tiktok-screenshots/"><u>[Updated] 2024 Approved Step-by-Step Revamping the Look of Your TikTok Screenshots</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-film-lovers-ultimate-selection-of-stop-motion-works/"><u>[Updated] Film Lovers' Ultimate Selection of Stop-Motion Works</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-essential-retro-filters-to-polish-video-pieces/"><u>2024 Approved Essential Retro Filters to Polish Video Pieces</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-excellent-series-of-animated-type-options/"><u>2024 Approved Excellent Series of Animated Type Options</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-samsungs-opponent-the-finest-non-gear-360-cameras/"><u>2024 Approved Samsung's Opponent The Finest Non-Gear 360 Cameras</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-secrets-of-9-high-quality-webcam-enhancements/"><u>2024 Approved Secrets of 9 High-Quality Webcam Enhancements</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-your-roadmap-to-creating-top-notch-srt-files/"><u>2024 Approved Your Roadmap to Creating Top-Notch SRT Files</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/bebop-unfurled-in-flight-form-the-secondary-parrot-review-for-2024/"><u>Bebop Unfurled in Flight Form – The Secondary Parrot Review for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/creative-video-overlays-top-10-essentials/"><u>Creative Video Overlays Top 10 Essentials</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/easy-steps-download-the-most-recent-amd-gpio-driver-today/"><u>Easy Steps: Download the Most Recent AMD GPIO Driver Today</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/guide-to-troubleshooting-and-correcting-iframedll-error-messages/"><u>Guide to Troubleshooting and Correcting iFrame.dll Error Messages</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-can-we-unlock-our-tecno-camon-30-pro-5g-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Tecno Camon 30 Pro 5G Phone Screen?</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-stop-garrys-mod-from-crashing-expert-solutions-revealed/"><u>How To Stop Garry's Mod From Crashing - Expert Solutions Revealed!</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-streamlined-scheduling-making-the-most-of-zoom-calls/"><u>In 2024, Streamlined Scheduling Making the Most of Zoom Calls</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Vivo Y200e 5G | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-tips-resolving-non-functional-integrated-webcams-in-windows-os/"><u>Troubleshooting Tips: Resolving Non-Functional Integrated Webcams in Windows OS</u></a></li>
 </ul></div>
 

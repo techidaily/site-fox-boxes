@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Mastering Your Mac  A Complete Guide to Leveraging Preview Features\""
-date: 2024-10-08T16:21:51.800Z
-updated: 2024-10-15T16:05:21.137Z
+date: 2024-10-16T00:17:43.552Z
+updated: 2024-10-20T22:42:11.869Z
 tags: 
   - screen-recording
   - ai video
@@ -42,16 +42,10 @@ Being the default image editor for Mac, Apple tried to make the **Preview app** 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
 
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to View and Edit Photos in Preview on Mac
@@ -68,6 +62,13 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -81,13 +82,6 @@ Click the **Show Markup Toolbar** icon present at the upper-right area to reveal
 Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup Toolbar**.
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Crop in Preview
 
@@ -116,6 +110,13 @@ Use the method explained above to open the photo in Preview.
 **Step 2: Rotate the Image**
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Add Text to Image in Preview
 
@@ -149,13 +150,6 @@ Once the background portion of the image gets selected (colored in red), without
 
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Combine Images into One
 
 This process is generally used to place an object present in one image over the background of the other photo. A good example could be to place a picture of a fish on to a second photo that has a sea or river. The **Preview app** lets you do this easily using the following steps:
@@ -185,16 +179,10 @@ After opening an image, click **File** from the menu bar at the top, and click *
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
@@ -256,17 +244,19 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-dull-to-delightful-text-that-tumbles-and-twirls/"><u>[New] 2024 Approved From Dull to Delightful Text that Tumbles and Twirls</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-the-ultimate-uav-upgrade-path-key-parts-and-add-ons/"><u>[New] 2024 Approved The Ultimate UAV Upgrade Path Key Parts and Add-Ons</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-conquer-live-streaming-a-stepwise-guide-to-excellence/"><u>[New] In 2024, Conquer Live Streaming A Stepwise Guide to Excellence</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-cut-the-clutter-advanced-techniques-for-windows-11-videos-for-2024/"><u>[Updated] Cut the Clutter Advanced Techniques for Windows 11 Videos for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-digital-renaissance-spotlight-on-six-trailblazers-of-nfts/"><u>[Updated] In 2024, Digital Renaissance Spotlight on Six Trailblazers of NFTs</u></a></li>
-<li><a href="https://app-tips.techidaily.com/boosting-software-development-success-with-agile-awareness-explore-6-key-principles/"><u>Boosting Software Development Success with Agile Awareness: Explore 6 Key Principles</u></a></li>
-<li><a href="https://win-blog.techidaily.com/bug-free-gaming-solutions-for-recurrent-samurai-warriors-5-pc-game-crashes/"><u>Bug Free Gaming: Solutions for Recurrent Samurai Warriors 5 PC Game Crashes</u></a></li>
-<li><a href="https://windows11.techidaily.com/dism-mastery-in-windows-11-system-image-repair/"><u>Dism Mastery in Windows 11 System Image Repair</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/drop-in-price-alert-phrozen-high-resolution-8k-ss-resin-3d-printer-now-available-for-just-325/"><u>Drop in Price Alert: Phrozen High-Resolution 8K sS Resin 3D Printer Now Available for Just $325</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-itel-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Itel S23+ | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-how-to-capture-your-linkinscape-content-top-6-tools-for-it/"><u>In 2024, How to Capture Your Linkinscape Content Top 6 Tools for It</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/in-2024-the-new-era-facebook-video-autoplay-explained/"><u>In 2024, The New Era Facebook Video Autoplay Explained</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unleashing-potential-learning-to-race-with-drones-and-best-models-for-2024/"><u>[New] Unleashing Potential Learning to Race with Drones and Best Models for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-capacity-limit-how-many-vids-in-128gb/"><u>[Updated] Capacity Limit How Many Vids in 128GB?</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-direct-technique-swap-film-direction-in-media-player/"><u>[Updated] Direct Technique Swap Film Direction in Media Player</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-ultimate-iphone-strategies-for-flawless-audio-downloads/"><u>[Updated] Ultimate iPhone Strategies for Flawless Audio Downloads</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-unlocking-64128gbs-full-potential-for-video-storing/"><u>[Updated] Unlocking 64/128GB's Full Potential for Video Storing</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unlocking-optimal-flight-the-lipo-selection-saga/"><u>[Updated] Unlocking Optimal Flight The LiPo Selection Saga</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-expert-pathway-for-webp-to-jpg-transformation/"><u>2024 Approved Expert Pathway for WebP-to-JPG Transformation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-high-performance-low-price-excellent-asmr-mics/"><u>2024 Approved High Performance, Low Price Excellent ASMR Mics</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-ranking-the-best-8-websites-with-shimmering-3d-and-text/"><u>2024 Approved Ranking the Best 8 Websites with Shimmering 3D & Text</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-ranking-the-greats-top-15-stop-motion-masterpieces/"><u>2024 Approved Ranking the Greats - Top 15 Stop Motion Masterpieces</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/accelerated-learning-quick-start-to-becoming-a-lut-expert-for-2024/"><u>Accelerated Learning Quick Start to Becoming a LUT Expert for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-poco-c55-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Poco C55 | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-motorola-razr-40-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Motorola Razr 40 to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Realme 12+ 5G? | Dr.fone</u></a></li>
 </ul></div>
 

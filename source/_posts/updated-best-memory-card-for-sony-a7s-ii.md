@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Best Memory Card for Sony A7S II"
-date: 2024-10-09T16:00:42.925Z
-updated: 2024-10-15T16:30:19.212Z
+date: 2024-10-16T02:55:38.959Z
+updated: 2024-10-21T03:30:48.082Z
 tags: 
   - screen-recording
   - ai video
@@ -73,10 +73,10 @@ thumbnail: https://thmb.techidaily.com/9841b29c6cea5f5f780b6eadf9d0ee4bcbe0f046f
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Best Memory Cards for Sony A7S II
@@ -120,10 +120,10 @@ thumbnail: https://thmb.techidaily.com/9841b29c6cea5f5f780b6eadf9d0ee4bcbe0f046f
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -151,17 +151,18 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-tunepiercer-screen-capture-app-review/"><u>[New] 2024 Approved TunePiercer Screen Capture App Review</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-expedite-tech-advancement-how-to-embrace-macos-11-big-sur-for-2024/"><u>[New] Expedite Tech Advancement How to Embrace macOS 11 Big Sur for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-the-basics-of-dynamic-media-artistry/"><u>[New] The Basics of Dynamic Media Artistry</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-craft-your-photos-in-minutes-learning-lunapic/"><u>[Updated] 2024 Approved Craft Your Photos in Minutes Learning LunaPic</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-how-to-edit-youtube-videos-in-windows-movie-maker/"><u>[Updated] 2024 Approved How to Edit YouTube Videos in Windows Movie Maker</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-safeguarding-photos-best-software-guide-uncovered/"><u>[Updated] 2024 Approved Safeguarding Photos Best Software Guide Uncovered</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-cinematic-crafts-win8/"><u>[Updated] Cinematic Crafts Win8</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-discovering-virtual-mastery-kinemasters-android-journey/"><u>[Updated] In 2024, Discovering Virtual Mastery KineMaster's Android Journey</u></a></li>
-<li><a href="https://howto.techidaily.com/android-screen-stuck-general-motorola-moto-g73-5g-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Motorola Moto G73 5G Partly Screen Unresponsive | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/asus-data-retrieval-tool-restore-lost-data-from-asus-rog-phone-7-by-fonelab-android-recover-data/"><u>Asus Data Retrieval tool – restore lost data from Asus ROG Phone 7</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/future-frames-the-years-top-cinematographic-innovations-2024/"><u>Future Frames The Year's Top Cinematographic Innovations - 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-implementing-photography-snippets-from-videos/"><u>[Updated] 2024 Approved Implementing Photography Snippets From Videos</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-universal-guide-hulu-recording-on-pc-apple-ios-and-android/"><u>[Updated] In 2024, Universal Guide Hulu Recording on PC, Apple, iOS & Android</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-air-vs-pro-with-m1-optimal-laptop-for-your-needs/"><u>2024 Approved Air Vs. Pro with M1 Optimal Laptop for Your Needs?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-enriching-listening-activities-for-the-modern-ear-podder/"><u>2024 Approved Enriching Listening Activities for the Modern Ear-Podder</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-expert-techniques-for-enhanced-minecraft-zooms/"><u>2024 Approved Expert Techniques for Enhanced Minecraft Zooms</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-flawless-syncing-adding-soundtracks-to-inshot/"><u>2024 Approved Flawless Syncing Adding Soundtracks to Inshot</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-softening-system-sounds-a-comprehensive-guide/"><u>2024 Approved Softening System Sounds A Comprehensive Guide</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/bert-gpt-and-beyond-nlps-pioneering-models-explored/"><u>BERT, GPT, and Beyond: NLP's Pioneering Models Explored</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1722999071895-easy-fix-battlefield-5-wont-launch-issue-2024-guide/"><u>Easy Fix Battlefield 5 Won't Launch Issue - 2024 Guide</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-15-plus-to-other-iphone-15-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 15 Plus to other iPhone 15 devices? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-itel-p40plus-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Itel P40+ Phone? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/meme-masters-at-your-fingertips-app/"><u>Meme Masters at Your Fingertips (App)</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-motorola-moto-g84-5g-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Motorola Moto G84 5G Phone</u></a></li>
 </ul></div>
 

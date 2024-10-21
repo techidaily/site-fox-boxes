@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Syma X8C Performance Breakdown\""
-date: 2024-10-10T16:22:11.303Z
-updated: 2024-10-15T17:43:21.949Z
+date: 2024-10-14T07:13:11.471Z
+updated: 2024-10-20T18:13:58.112Z
 tags: 
   - screen-recording
   - ai video
@@ -78,6 +78,13 @@ thumbnail: https://thmb.techidaily.com/9a7e28e8568427a787263a138246015aa54bad807
 
 ![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If we consider the appearance then it looks close to the Phantom drone but no doubt to say that few variations exists and they make it unique. The overall dimension of this drone unit is 20x20x6.5 whereas maximum weight goes up to 450 grams thus it cannot be called as a tiny drone. When weighted with camera and prop guards, then this unit has overall weight of 600 grams. This dimension and weight makes this drone much stable in air.
 
  This device can also be used without propeller guards because they do not have much role to play in its flights but the added benefit is that removal of prop guards leads to reduced weight and hence flight time gets little improved. The overall length of propeller is about 9” and they are designed of very high quality material.
@@ -95,10 +102,16 @@ thumbnail: https://thmb.techidaily.com/9a7e28e8568427a787263a138246015aa54bad807
 ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
@@ -107,26 +120,13 @@ thumbnail: https://thmb.techidaily.com/9a7e28e8568427a787263a138246015aa54bad807
 
 ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
 
 <!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -136,16 +136,10 @@ thumbnail: https://thmb.techidaily.com/9a7e28e8568427a787263a138246015aa54bad807
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -173,24 +167,19 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-jubilant-join-and-disconnect-protocols/"><u>[New] In 2024, Jubilant Join & Disconnect Protocols</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-optimize-your-talk-on-chrome-best-web-based-speech-conversion-services/"><u>[New] Optimize Your Talk on Chrome Best Web-Based Speech Conversion Services</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/hrifty-filmmaker-best-economical-camera-lineup/"><u>[New] Thrifty Filmmaker Best Economical Camera Lineup</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unveiling-how-to-activate-windows-11-written-for-high-dynamic-range-auto-hdr/"><u>[Updated] 2024 Approved Unveiling How to Activate Windows 11' Written for High Dynamic Range (Auto HDR)</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-bright-horizons-pioneering-light-in-video-production-for-2024/"><u>[Updated] Bright Horizons Pioneering Light in Video Production for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-elevate-cinematic-quality-introducing-device-based-filters-for-2024/"><u>[Updated] Elevate Cinematic Quality Introducing Device-Based Filters for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-streamlined-editing-best-apps-compatible-with-macos-big-sur-for-2024/"><u>[Updated] Streamlined Editing Best Apps Compatible with macOS Big Sur for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-visual-upgrade-engine-windows-mac-and-online-edition/"><u>2024 Approved Visual Upgrade Engine – Windows, Mac & Online Edition</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/aerial-capture-face-off-dji-mavic-2-vs-hero6-black-for-2024/"><u>Aerial Capture Face-Off DJi Mavic 2 vs Hero6 Black for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/excellent-phones-apps-for-masterful-gopro-edits/"><u>Excellent Phones' Apps for Masterful GoPro Edits</u></a></li>
-<li><a href="https://change-location.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-vivo-s17-pro-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Vivo S17 Pro | Dr.fone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/how-to-achieve-inverted-movie-time-in-a-snap-for-2024/"><u>How to Achieve Inverted Movie Time in a Snap for 2024</u></a></li>
-<li><a href="https://win-great.techidaily.com/how-to-create-and-use-windows-image-backup-effectivement-un-guide-complet/"><u>How to Create and Use Windows Image Backup Effectivement - Un Guide Complet</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-from-vivo-s18-pro-by-drfone-android/"><u>In 2024, How to Bypass FRP from Vivo S18 Pro?</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-which-motorsport-cam-is-supreme-hero4-or-ghost-s/"><u>In 2024, Which Motorsport Cam Is Supreme? Hero4 or Ghost-S</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/srt-subtitle-translation-tools-and-techniques-for-2024/"><u>SRT Subtitle Translation Tools and Techniques for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/stylish-selfies-with-iosandroid-the-leading-10-sticker-apps/"><u>Stylish Selfies with iOS/Android The Leading 10 Sticker Apps</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/top-10-ingenious-ae-techniques-for-headline-hype-for-2024/"><u>Top 10 Ingenious AE Techniques for Headline Hype for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/vision-quest-identifying-top-tier-slow-motion-cameras-for-2024/"><u>Vision Quest Identifying Top-Tier Slow Motion Cameras for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-upload-youtube-shorts-video-from-computer-and-mobile-in-2024/"><u>[New] How to Upload YouTube Shorts Video From Computer and Mobile, In 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-innovations-that-make-av1-superior-to-vp9/"><u>[New] The Innovations That Make AV1 Superior to VP9</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-the-enchanted-realm-of-bygone-writings-a-literary-pilgrimage/"><u>[Updated] 2024 Approved The Enchanted Realm of Bygone Writings A Literary Pilgrimage</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-free-and-secure-3-ways-to-extract-youtube-music-content-for-2024/"><u>[Updated] Free and Secure 3 Ways to Extract YouTube Music Content for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/1-swift-techniques-for-removing-empty-cells-in-microsoft-excel/"><u>1. Swift Techniques for Removing Empty Cells in Microsoft Excel</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-fpv-fantasy-a-closer-look-at-the-hubsan-h501x4/"><u>2024 Approved FPV Fantasy A Closer Look at the Hubsan H501X4</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-full-analysis-and-how-to-the-ultimate-picsart-experience/"><u>2024 Approved Full Analysis and How-To The Ultimate PicsArt Experience</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-inspirational-cinema-collection-10-movie-gems/"><u>2024 Approved Inspirational Cinema Collection 10 Movie Gems</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-selecting-soundtracks-perfecting-trailers-atmosphere/"><u>2024 Approved Selecting Soundtracks Perfecting Trailers' Atmosphere</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-cutting-edge-of-vid-extraction-top-5-free-fast-pinterest-tools/"><u>2024 Approved The Cutting Edge of Vid Extraction Top 5 Free, Fast Pinterest Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-key-to-unlocking-the-best-video-production-talents/"><u>2024 Approved The Key to Unlocking the Best Video Production Talents</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/brief-blueprints-iphone-content-for-desktop/"><u>Brief Blueprints IPhone Content for Desktop</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-photos-from-12-proplus-5g-by-fonelab-android-recover-photos/"><u>How to Rescue Lost Photos from 12 Pro+ 5G?</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/the-ultimate-guide-to-asrocks-z79-1-lightning-wi-fi-features-review-a-surprising-blend-of-miniaturization-and-power/"><u>The Ultimate Guide to ASRock's Z79 1 Lightning Wi-Fi Features Review: A Surprising Blend of Miniaturization and Power</u></a></li>
 </ul></div>
 
