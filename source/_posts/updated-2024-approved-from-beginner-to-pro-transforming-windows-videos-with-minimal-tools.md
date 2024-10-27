@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  From Beginner to Pro  Transforming Windows Videos with Minimal Tools\""
-date: 2024-09-11T07:17:52.061Z
-updated: 2024-09-12T07:17:52.061Z
+date: 2024-10-25T23:10:47.015Z
+updated: 2024-10-26T22:17:21.901Z
 tags: 
   - screen-recording
   - ai video
@@ -33,27 +33,10 @@ The in-built editor in Windows 10 Photos can do that for you. Through this artic
 * [**Part1: How to trim video in Windows 10 Photos**](#part1)
 * [**Part2: How to trim video in Windows 10 with VLC**](#part2)
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Part 1: How to trim video in Windows 10 Photos
 
@@ -67,39 +50,18 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/photos-trim.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 **Step 3**: On the bottom part of the screen, there are three circles. The start and end of the markers clips are represented by two small white circles. For chopping off the unwanted portions you need to drag and adjust the marker circles. The movement of markers shows a text denoting the total selected length of the clip over the marker. The larger marker represents the present spot of your video clip. Make sure to drag around and adjust the video for including all the important parts within the video.
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/start-trim-photos.jpg)
 
 **Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Part 2: How to trim video in Windows 10 with VLC
 
@@ -113,39 +75,18 @@ Here comes the step by step guide to trim video in VLC –
 
 ![trim videos in windows 10 using VLC](https://images.wondershare.com/filmora/article-images/vlc-trim-video.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 1. Upon activation of the 'Advanced controls' option, four additional buttons appear over the VLC media player's play/pause button. Now, you got to add the video by 'Open File'. Well, you can also do that by dragging and dropping the video as well.
 2. Select the position from where you want to keep the video and hit the play and record button together.
 3. Now, tap the 'Record' button again where you want to stop the recording. This clip automatically gets saved as an MP4 media file. You can find it within the 'Libraries/Videos' folder if it's a Windows 7 PC.
 
 Note: You won't be trimmed by cutting the video here, rather recording the desired part using the inbuilt VLC decoder. Using the 'Frame by frame' button found under the 'Advanced control' section (the last button from the left) move to the exact frame you wish to begin your recording.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Conclusion
 
@@ -153,27 +94,21 @@ From the above article, we found that **trimming video in VLC and Windows 10 Pho
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -198,12 +133,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-pros-secret-insights-into-windows-11/"><u>[New] 2024 Approved Pro's Secret Insights Into Windows 11</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-breaking-ice-the-peak-of-chinas-sports-showcase-2022/"><u>[New] Breaking Ice The Peak of China's Sports Showcase, 2022</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-current-state-of-vr-hardware/"><u>[New] Current State of VR Hardware</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-essential-scripts-for-advanced-affects-workflows-for-2024/"><u>[New] Essential Scripts for Advanced Affects Workflows for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-digital-paintbrushes-at-your-fingertips-explore-11-color-correction-essentials/"><u>[Updated] 2024 Approved Digital Paintbrushes at Your Fingertips Explore 11 Color Correction Essentials</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-action-camera-showdown-our-top-7-4k-picks/"><u>[Updated] Action Camera Showdown Our Top 7 4K Picks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-2023-ultimate-guide-sj7s-4k-star-cam-reviews/"><u>[Updated] In 2024, 2023 Ultimate Guide SJ7's 4K Star Cam Reviews</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-dive-into-the-digital-realm-the-most-exquisite-pc-vr-players/"><u>[Updated] In 2024, Dive Into the Digital Realm The Most Exquisite PC VR Players</u></a></li>
+<li><a href="https://win-community.techidaily.com/server-2008-r2/"><u>如何从 Server 2008 R2恢复丢失文件：三种有效技巧</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/adjust-macs-screenshot-stash-location-for-2024/"><u>Adjust Mac's Screenshot Stash Location for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/comprehensive-2024-video-showcase-analysis/"><u>Comprehensive 2024 Video Showcase Analysis</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/frei-verfugbare-methoden-zum-konvertieren-von-mov-dateien-zu-mp4-unter-windows-mac-os-und-online-services/"><u>Frei Verfügbare Methoden Zum Konvertieren Von MOV-Dateien Zu MP4 Unter Windows, Mac OS Und Online Services</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-lava-yuva-2-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Lava Yuva 2</u></a></li>
+<li><a href="https://driver-error.techidaily.com/how-to-successfully-reinstall-the-hcmon-driver-and-avoid-common-mistakes/"><u>How To Successfully Reinstall The Hcmon Driver and Avoid Common Mistakes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/image-framing-essentials-top-apps-and-websites-creators/"><u>Image Framing Essentials Top Apps & Websites Creators</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-a-step-by-step-approach-for-using-zoom-in-email-apps-like-gmail/"><u>In 2024, A Step-by-Step Approach for Using Zoom in Email Apps Like Gmail</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-blending-beats-posting-tunes-on-digital-diaries/"><u>In 2024, Blending Beats Posting Tunes on Digital Diaries</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/in-2024-talking-photo-feature/"><u>In 2024, Talking Photo Feature</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/insiders-guide-to-superior-apps-for-vocal-transformation-for-2024/"><u>Insider's Guide to Superior Apps for Vocal Transformation for 2024</u></a></li>
+</ul></div>
 

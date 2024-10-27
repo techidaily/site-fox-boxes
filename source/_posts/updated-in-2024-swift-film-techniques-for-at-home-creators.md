@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Swift Film Techniques for At-Home Creators\""
-date: 2024-10-15T03:21:33.013Z
-updated: 2024-10-20T23:59:52.716Z
+date: 2024-10-22T00:24:28.885Z
+updated: 2024-10-26T23:14:49.988Z
 tags: 
   - screen-recording
   - ai video
@@ -31,18 +31,25 @@ When we set up the light near the subject, the light might be leaked onto the ba
 
 On film sets and studios, the professionals use flags to absorb and make shapes of light. A flag is a thick black fabric that does not reflect light. To make your flag at home, you can try cardboard and a black t-shirt.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. A Cardboard
 
 You can buy it from a nearby stationery store. Ensure the cardboard is not too big to fit the t-shirt around the board.
 
 ![cardboard used for diy flag](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. A Black T-shirt
 
@@ -50,18 +57,18 @@ For the black t-shirt, you can use an old t-shirt that you don't wear anymore. Y
 
 ![black t-shirt for lighting control](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 After managing all the required things, you must wrap and secure the t-shirt around the board. If the size of the t-shirt is larger than cardboard, tie the sleeves to secure the t-shirt. Or you can also use tape to secure the t-shirt and fasten it on the backside.
 
 ![process for making diy flag](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-3.png)
 
 With this DIY flag, you can now easily give shape and block the light while filming at home. **Warnings:** Some fabrics are not fireproof, so always keep an eye on the flag.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Final Results for the Flag Light Shaping
 
@@ -70,10 +77,10 @@ After filming the video, see the precise results before using the flag, when the
 ![results after using diy flag for lighting control](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-4.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2\. Hack. DIY Black Wrap or Cinewrap
@@ -82,18 +89,25 @@ The black wrap is used in professional studios and set up to block and shape lig
 
 The aluminum foils used in households have the same characteristics as a black wrap, so that you can use it as an alternative. Look at the following requirement to make it! To make a black wrap, you need two household tools. There is no need to get pricey things from the market. For this, follow the below outlines of the tools!
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. A Light Bulb
 
 You can take any LED bulb present at our home. Ensure that the bulb size is manageable to avoid any issues handling it.
 
 ![lightbulb used for cinewrap](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-5.png)
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Foil Paper
 
@@ -109,13 +123,6 @@ Step2 Then, you need to install the bulb on the lamp.
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note:** During wrapping, you don't have to allow the foil to touch the bottom part of the bulb.
 
 Step3 Leave a small part of the bulb open from the top and cover the part from the side.
@@ -125,13 +132,6 @@ Step4 Ensure the lamp switch is off, and install the light bulb.
 ![process of creating a black wrap](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-7.png)
 
 When you turn on the lamp, the light has been shaped into a smaller light source.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Final Results for the Black Wrap or Cinewrap
 
@@ -168,22 +168,18 @@ When applied to flat surfaces, the foil has a reflective surface. It makes it th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-current-state-of-vr-hardware/"><u>[New] 2024 Approved Current State of VR Hardware</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-hymn-based-ringtone-options-for-every-believer/"><u>[New] Hymn-Based Ringtone Options for Every Believer</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-top-picks-scrutinizing-active-and-leading-recorders-feats/"><u>[New] In 2024, Top Picks Scrutinizing Active and Leading Recorder's Feats</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-photoshop-color-adjustments-for-beginners-for-2024/"><u>[New] Photoshop Color Adjustments for Beginners for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-expert-insights-into-magix-video-pro-xs-design/"><u>[Updated] Expert Insights Into Magix Video Pro X's Design</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-how-to-delete-youtube-comments-effortlessly/"><u>[Updated] How to Delete YouTube Comments Effortlessly?</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-effective-online-channels-for-youtube-advertising/"><u>[Updated] In 2024, Effective Online Channels for YouTube Advertising</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-who-takes-the-crown-of-video-broadcast-twitch-or-youtube-for-2024/"><u>[Updated] Who Takes the Crown of Video Broadcast? Twitch or YouTube for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-windows-10-apps-and-games-to-explore-and-download-for-2024/"><u>[Updated] Windows 10 Apps and Games to Explore and Download for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-and-install-the-right-drivers-for-your-csr-bluetooth-hardware-today/"><u>Download and Install the Right Drivers for Your CSR Bluetooth Hardware Today</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1723262308646-exploring-the-latest-in-technology-with-toms-hardware-top-gadgets-reviewed/"><u>Exploring the Latest in Technology with Tom's Hardware - Top Gadgets Reviewed!</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-advanced-techniques-for-bio-linking-on-tiktok/"><u>In 2024, Advanced Techniques for Bio Linking on TikTok</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-exploring-the-huawei-p10s-user-interface-and-usability/"><u>In 2024, Exploring the Huawei P10's User Interface & Usability</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-step-into-the-world-of-incredible-ig-filmmaking/"><u>In 2024, Step Into the World of Incredible IG Filmmaking</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-12-prominent-oneplus-12-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent OnePlus 12 Fingerprint Not Working Solutions</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/premium-6-choices-for-cost-effective-4k-projection/"><u>Premium 6 Choices for Cost-Effective 4K Projection</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/seeking-optimal-video-player-vlc-meets-mx/"><u>Seeking Optimal Video Player VLC Meets MX</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-the-novices-route-to-revenue-in-the-youtube-realm/"><u>[New] 2024 Approved The Novice's Route to Revenue in the YouTube Realm</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-essential-guide-to-rapid-signature-removal/"><u>[New] Essential Guide to Rapid Signature Removal</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-advanced-livestream-software-arsenal/"><u>[Updated] 2024 Approved Advanced Livestream Software Arsenal</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-the-ultimate-resource-for-advanced-periscope-techniques/"><u>[Updated] 2024 Approved The Ultimate Resource for Advanced Periscope Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-the-art-of-monetization-with-ajey-carryminati-for-2024/"><u>[Updated] Mastering the Art of Monetization with Ajey (CarryMinati) for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-rewind-with-ease-iphone-video-restoration-methods-for-2024/"><u>[Updated] Rewind with Ease IPhone Video Restoration Methods for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-snapchat-profitability-techniques/"><u>In 2024, Snapchat Profitability Techniques</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unleash-creativity-design-your-own-logos-using-template-assets-free/"><u>In 2024, Unleash Creativity Design Your Own Logos Using Template Assets (Free)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/instagrams-sideways-scenario-a-visual-glitch-examined/"><u>Instagram's Sideways Scenario A Visual Glitch Examined</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/master-your-gadgets-with-innovative-solutions-from-toms-hardware-experts/"><u>Master Your Gadgets with Innovative Solutions From Tom's Hardware Experts</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/real-time-streaming-with-manycam-ultimate-live-video-editing-suite/"><u>Real-Time Streaming with ManyCam: Ultimate Live Video Editing Suite</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/simple-tale-creation-guide-for-2024/"><u>Simple Tale Creation Guide for 2024</u></a></li>
 </ul></div>
 

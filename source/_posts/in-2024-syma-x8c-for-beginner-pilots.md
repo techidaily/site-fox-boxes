@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Syma X8C for Beginner Pilots"
-date: 2024-10-15T21:03:01.592Z
-updated: 2024-10-21T04:33:10.923Z
+date: 2024-10-21T19:51:26.289Z
+updated: 2024-10-27T00:49:34.379Z
 tags: 
   - screen-recording
   - ai video
@@ -61,10 +61,10 @@ thumbnail: https://thmb.techidaily.com/ee671cfb7ee587015883db0a3fbeb82905b8663f1
  There are loads of pros as well as cons related Syma H8C device but they appear different to various kinds of users. Professionals may be worried about its camera quality whereas beginners will find its controls little complex. But in case if you need something at low price with all acceptable features then Syma H8C is really a good choice for your needs.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Complete Review
@@ -85,19 +85,6 @@ thumbnail: https://thmb.techidaily.com/ee671cfb7ee587015883db0a3fbeb82905b8663f1
 
 ![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  If we consider the appearance then it looks close to the Phantom drone but no doubt to say that few variations exists and they make it unique. The overall dimension of this drone unit is 20x20x6.5 whereas maximum weight goes up to 450 grams thus it cannot be called as a tiny drone. When weighted with camera and prop guards, then this unit has overall weight of 600 grams. This dimension and weight makes this drone much stable in air.
 
  This device can also be used without propeller guards because they do not have much role to play in its flights but the added benefit is that removal of prop guards leads to reduced weight and hence flight time gets little improved. The overall length of propeller is about 9” and they are designed of very high quality material.
@@ -114,20 +101,27 @@ thumbnail: https://thmb.techidaily.com/ee671cfb7ee587015883db0a3fbeb82905b8663f1
 
 ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
 
 #### 6\.  Camera
 
 ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -167,14 +161,15 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-big-sur-essentials-system-and-hardware-upgrade/"><u>[New] 2024 Approved Big Sur Essentials System and Hardware Upgrade</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-the-definitive-iphone-hdr-technique/"><u>[Updated] 2024 Approved The Definitive iPhone HDR Technique</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-micro-movies-on-facebook-galore/"><u>[Updated] Micro-Movies on Facebook Galore</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-wintry-wonderland-olympic-moments-from-beijing-2022-for-2024/"><u>[Updated] Wintry Wonderland Olympic Moments From Beijing 2022 for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/download-and-install-driving-game-support-for-your-xbox-360-controller/"><u>Download and Install Driving Game Support for Your Xbox 360 Controller</u></a></li>
-<li><a href="https://win11.techidaily.com/how-to-conjure-imagination-in-ai-art-forms-using-paint-cocreator-and-windows-11/"><u>How to Conjure Imagination in AI Art Forms Using Paint Cocreator and Windows 11</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-drones-demystified-crucial-considerations-before-buying/"><u>In 2024, Drones Demystified Crucial Considerations Before Buying</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-photo-fusion-mastery-windows-users-guide/"><u>In 2024, Photo Fusion Mastery Windows Users Guide</u></a></li>
-<li><a href="https://games-able.techidaily.com/unveiling-the-secrets-behind-cozy-game-enjoyment/"><u>Unveiling the Secrets Behind Cozy Game Enjoyment</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-embrace-enhanced-viewing-picture-in-picture-on-ms-edge/"><u>[New] In 2024, Embrace Enhanced Viewing Picture-in-Picture on MS Edge</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-harmony-hunters-dive-into-free-online-beat-tracker/"><u>[New] In 2024, Harmony Hunters Dive Into Free, Online Beat Tracker</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-premiere-pros-finest-10-text-plans-for-2024/"><u>[New] Premiere Pro's Finest 10 Text Plans for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-pioneering-changes-to-your-pubg-characters-speech/"><u>[Updated] 2024 Approved Pioneering Changes to Your PUBG Character's Speech</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-exploring-virtual-landscapes-with-android-vr360/"><u>[Updated] In 2024, Exploring Virtual Landscapes with Android (VR/360)</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-full-breakdown-razers-hd-webcam-experience/"><u>[Updated] In 2024, Full Breakdown Razer's HD Webcam Experience</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/airpods-and-quest-3-unite-without-a-ruckus-a-discreet-pairing-guide-techhowto/"><u>AirPods and Quest 3 Unite Without a Ruckus: A Discreet Pairing Guide | TechHowTo</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/discover-the-latest-in-pc-components-with-toms-hardware-hub/"><u>Discover the Latest in PC Components with Tom's Hardware Hub</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-infinix-hot-40-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Infinix Hot 40 Phones with/without a PC</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/solved-problem-with-lenovo-disengaged-screen/"><u>Solved Problem with Lenovo Disengaged Screen</u></a></li>
 </ul></div>
 
