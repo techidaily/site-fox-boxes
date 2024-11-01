@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Cutting-Edge Ways of Shooting with a Fisheye Lens\""
-date: 2024-10-23T18:29:39.057Z
-updated: 2024-10-26T23:52:46.771Z
+date: 2024-10-25T19:33:01.466Z
+updated: 2024-11-01T20:58:19.068Z
 tags: 
   - screen-recording
   - ai video
@@ -42,10 +42,10 @@ thumbnail: https://thmb.techidaily.com/e9e9b7ca60047014bff6bb18f8c482a86a228fe45
 ![Panohead for Fisheye lens](https://images.wondershare.com/filmora/article-images/panohead-for-fishlens.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. Leveling and rotating
@@ -53,6 +53,13 @@ thumbnail: https://thmb.techidaily.com/e9e9b7ca60047014bff6bb18f8c482a86a228fe45
  Other than setting up and calibrating the equipment in the right manner, it is important to keep the camera steady and leveled as you make the rotations to take shots. For leveling, it is recommended to use an appropriate leveling base, while for rotation, using a panning clamp on top of the ballhead is highly recommended.
 
 ![Panning clam on ballhead](https://images.wondershare.com/filmora/article-images/panning-clam-on-ballhead.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3. The actual shooting
 
@@ -66,13 +73,6 @@ thumbnail: https://thmb.techidaily.com/e9e9b7ca60047014bff6bb18f8c482a86a228fe45
 
  In normal photography, it always pays to remember what to include and what to exclude in your shots. When it comes to shooting 360s, it becomes more complicated since everything is included. For you to take successful 360s with fisheye therefore, you need to consider keenly where you stand. The fisheye lens will introduce a lot of space between you and the subject, hence you must consider how close or far away you are from the subject so that the pieces of the compositional puzzle will fall in place smoothly both in the horizontal and vertical planes.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Stitching 360 degrees panoramas after shooting
 
  To stitch 360s taken by fisheye lenses after shooting, you will need panorama software like [Autopano Pro](http://www.kolor.com/) or [PTGui](https://www.ptgui.com/). For Autopano Pro, you begin by importing the images into the software and ensuring that the EXIF are displayed correctly on the program. With the right settings in place, the next step is to launch the direct stitching feature if you don’t want to go the manual way. Once the stitching is done, it will be important to present the output online. This can be done using [Pano2VR](http://www.ggnome.com/pano2vr) or you could simply upload the finished panoramas to [360cities](https://www.360cities.net/) for online viewing.
@@ -82,10 +82,10 @@ thumbnail: https://thmb.techidaily.com/e9e9b7ca60047014bff6bb18f8c482a86a228fe45
 [How to stitch GoPro clips into 360 videos >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What's fisheye lenses
@@ -98,18 +98,18 @@ thumbnail: https://thmb.techidaily.com/e9e9b7ca60047014bff6bb18f8c482a86a228fe45
 
 ![create 360 photos with fisheye lens](https://images.wondershare.com/filmora/article-images/fisheye-lens-image.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Conclusion
 
  Fisheye lenses have been around for a while now and the process of creating 360 panoramas with them may not be very challenging, but great results are achieved through practice and proper stitching. Once the photos are taken, you can use premium panorama software like Autopano Pro or you can use free options like the Microsoft ICE or Hugin. Ones stitching are done, it is imperative to have the final works uploaded online for others to view.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -136,20 +136,22 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-exclusive-access-to-pinnacle-android-viewer/"><u>[New] Exclusive Access to Pinnacle Android Viewer</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-perfect-slomo-videography-tool-analysis-revised-2024/"><u>[New] Perfect SloMo Videography Tool Analysis - Revised 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-the-ultimate-guide-to-personalizing-your-whatsapp-ringtone-iphonesandroids-included/"><u>[New] The Ultimate Guide to Personalizing Your WhatsApp Ringtone - iPhones/Androids Included</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-innovative-groups-shaping-future-of-vr-worlds/"><u>[Updated] 2024 Approved Innovative Groups Shaping Future of VR Worlds</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-quick-guide-to-mp3-from-instagram-videos/"><u>[Updated] 2024 Approved Quick Guide to MP3 From Instagram Videos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-alternative-windows-filmmakers-for-2024/"><u>[Updated] Alternative Windows Filmmakers for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-elevating-virtual-reality-premium-rift-player-analysis/"><u>[Updated] In 2024, Elevating Virtual Reality Premium Rift Player Analysis</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-how-to-automate-iphones-video-repetition/"><u>2024 Approved How to Automate iPhone's Video Repetition</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-perfect-your-titles-and-descriptions-for-top-ranked-igtv-videos/"><u>2024 Approved Perfect Your Titles & Descriptions for Top-Ranked IGTV Videos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/best-iphone-camera-apps-for-pro-shots-and-free-use-for-2024/"><u>Best iPhone Camera Apps for Pro Shots and Free Use for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-remove-passcode-from-iphone-11-pro-complete-guide-drfone-by-drfone-ios/"><u>In 2024, How To Remove Passcode From iPhone 11 Pro? Complete Guide | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/innovative-techniques-for-captivating-ae-titles-for-2024/"><u>Innovative Techniques for Captivating AE Titles for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/leveling-web-speeds-for-seamless-experience/"><u>Leveling Web Speeds for Seamless Experience</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolving-windows-key-issues-in-windows-11-easy-step-by-step-solutions/"><u>Resolving Windows Key Issues in Windows 11 - Easy Step-by-Step Solutions</u></a></li>
-<li><a href="https://win-answers.techidaily.com/solution-guide-restoring-access-to-your-steam-contacts-network/"><u>Solution Guide: Restoring Access to Your Steam Contacts Network</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-top-7-nft-generators-to-turn-your-artwork-into-nfts/"><u>[New] 2024 Approved Top 7 NFT Generators to Turn Your Artwork Into NFTs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-5-groundbreaking-advice-points-from-successful-marketers-online-for-2024/"><u>[New] 5 Groundbreaking Advice Points From Successful Marketers Online for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-capture-calls-iphones-vision/"><u>[New] Capture Calls IPhone's Vision</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-subtle-music-level-decrease-for-pcmac-users/"><u>[New] In 2024, Subtle Music Level Decrease for PC/Mac Users</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unlocking-creative-potential-a-compreeved-guide-to-appending-text-in-photos-on-pc-and-mac-for-2024/"><u>[New] Unlocking Creative Potential A Compreeved Guide to Appending Text in Photos on PC & Mac for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-choosing-your-camera-companion-for-editing-hero-session-x-vs-cube/"><u>[Updated] 2024 Approved Choosing Your Camera Companion for Editing Hero Session X V/S Cube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-melodies-meet-graphics-adding-soundtracks-to-powerpoint/"><u>[Updated] Melodies Meet Graphics Adding Soundtracks to PowerPoint</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-the-art-of-mastering-funimate/"><u>[Updated] The Art of Mastering Funimate</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-foremost-gallery-storage-solutions/"><u>2024 Approved Foremost Gallery Storage Solutions</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fix-and-enable-your-realtek-microphone-effective-techniques-inside/"><u>Fix and Enable Your Realtek Microphone: Effective Techniques Inside</u></a></li>
+<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-lava-agni-2-5g-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/how-to-address-windows-drivers-not-installing-properly/"><u>How to Address Windows Drivers Not Installing Properly</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-fix-the-cannot-start-sea-of-thieves-problem-quickly/"><u>How to Fix the 'Cannot Start Sea of Thieves' Problem Quickly</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unveiling-the-essentials-an-in-depth-review-of-lightroom-for-android/"><u>In 2024, Unveiling the Essentials An In-Depth Review of Lightroom for Android</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-the-ultimate-list-of-free-avi-video-rotators-for-all-devices-for-2024/"><u>New The Ultimate List of Free AVI Video Rotators for All Devices for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/uniting-sections-smoothly-inshot-transition-essentials/"><u>Uniting Sections Smoothly Inshot Transition Essentials</u></a></li>
+<li><a href="https://driver-install.techidaily.com/universal-printer-driver-epson-et-2650-installer-kit/"><u>Universal Printer Driver: Epson ET-2650 Installer Kit</u></a></li>
 </ul></div>
 

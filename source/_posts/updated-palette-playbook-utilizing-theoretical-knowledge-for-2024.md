@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Palette Playbook  Utilizing Theoretical Knowledge for 2024\""
-date: 2024-10-22T20:13:09.165Z
-updated: 2024-10-26T21:29:05.154Z
+date: 2024-10-27T17:18:18.661Z
+updated: 2024-11-01T19:32:09.834Z
 tags: 
   - screen-recording
   - ai video
@@ -40,26 +40,26 @@ Using red, green and blue as primary colors we can mix the colors to one another
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Color Harmony
 
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
@@ -76,10 +76,10 @@ You may still be unsure as to how to implement color theory into your videos. Le
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
@@ -89,10 +89,10 @@ As you can see from this example the base color for the scene is a dark blue/pur
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
@@ -131,18 +131,16 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-exploring-8-top-tier-free-video-communication-tools-for-enterprises/"><u>[New] 2024 Approved Exploring 8 Top-Tier Free Video Communication Tools for Enterprises</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-ditch-the-viewfinder-top-6-non-periscope-video-platforms-for-2024/"><u>[New] Ditch the Viewfinder Top 6 Non-Periscope Video Platforms for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-easy-access-unlimited-tones-choose-from-4-sites/"><u>[Updated] In 2024, Easy Access, Unlimited Tones Choose From 4 Sites</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-leading-8-ultimate-tripods-for-4k-video-capture/"><u>[Updated] In 2024, Leading 8 Ultimate Tripods for 4K Video Capture</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-symphony-of-well-being-learn-from-asmr/"><u>[Updated] In 2024, The Symphony of Well-Being – Learn From ASMR</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-insta-marketing-dynamo-crafting-winning-strategies-with-videos-on-social-media-for-2024/"><u>[Updated] Insta-Marketing Dynamo Crafting Winning Strategies with Videos on Social Media for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/best-5-gopro-filters-for-underwater-video-shooting-for-2024/"><u>Best 5 GoPro Filters for Underwater Video Shooting for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/tial-steps-to-implement-video-card-anchors-on-youtube-for-2024/"><u>Essential Steps to Implement Video Card Anchors on YouTube for 2024</u></a></li>
-<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-zte-nubia-z60-ultra-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on ZTE Nubia Z60 Ultra Devices | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Apple iPhone 14 | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-turning-pics-into-time-capsules-with-videos/"><u>In 2024, Turning Pics Into Time Capsules With Videos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/top-picks-comprehensive-list-of-no-cost-webm-streaming-tools/"><u>Top Picks Comprehensive List of No-Cost WebM Streaming Tools</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/unveiling-new-tech-marvels-the-toms-hardware-encyclopedia/"><u>Unveiling New Tech Marvels - The Tom's Hardware Encyclopedia</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-substitutes-for-winmovie-new-windows-editors/"><u>[Updated] 2024 Approved Substitutes for WinMovie New Windows Editors</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-instagram-video-magic-techniques-to-elevate-your-social-media-impact/"><u>[Updated] In 2024, Instagram Video Magic Techniques to Elevate Your Social Media Impact</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-fusing-frequencies-smoothly-with-logic-pro-x-methods/"><u>2024 Approved Fusing Frequencies Smoothly with Logic Pro X Methods</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-leap-forward-with-xsplits-substitute-software/"><u>2024 Approved Leap Forward with Xsplit's Substitute Software</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-tuneful-texts-musical-infusion-on-whatsapp/"><u>2024 Approved Tuneful Texts Musical Infusion on WhatsApp</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unlock-your-creative-potential-the-leading-12-sites-for-accessible-stock-photos/"><u>2024 Approved Unlock Your Creative Potential - The Leading 12 Sites for Accessible Stock Photos</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/boost-your-indoor-digital-broadcast-quality-how-to-optimize-your-antenna-for-perfect-reception/"><u>Boost Your Indoor Digital Broadcast Quality: How To Optimize Your Antenna for Perfect Reception</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/critical-look-at-outstanding-online-streams/"><u>Critical Look at Outstanding Online Streams</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/delving-into-detail-with-minecraft-views-for-2024/"><u>Delving Into Detail with Minecraft Views for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/secrets-of-success-in-capturing-breathtaking-gopro-time-lapse-for-2024/"><u>Secrets of Success in Capturing Breathtaking GoPro Time-Lapse for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/transformacion-gratuita-de-archivos-opus-a-formato-mp3-desde-la-comodidad-del-hogar-usando-movavi/"><u>Transformación Gratuita De Archivos OPUS a Formato MP3 Desde La Comodidad Del Hogar Usando Movavi</u></a></li>
 </ul></div>
 

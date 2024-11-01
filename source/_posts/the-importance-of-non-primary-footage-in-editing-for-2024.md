@@ -1,7 +1,7 @@
 ---
 title: "\"The Importance of Non-Primary Footage in Editing for 2024\""
-date: 2024-10-20T22:05:47.381Z
-updated: 2024-10-27T01:52:46.771Z
+date: 2024-10-26T16:00:34.560Z
+updated: 2024-11-01T21:49:46.978Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,13 @@ B roll can be utilized for establishing shots as well as close-ups of items. It 
 
 For instance, wider shots are frequently used when someone is giving a speech while seated behind a podium so that we can see both them and their surroundings, such as audience members standing close and applauding or security personnel.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Methods to use b roll
 
 Now that there are so many stock footage platforms, you have a lot of choices when you need just the right scene for your project. Most of the time, filmmakers don't use B roll footage. One good way to use it is to use it as a way to move from one scene to the next. It can also be used to set the mood for an event or show what time of day it is when filming.
@@ -46,10 +53,10 @@ The ideal way to use B roll is to put it behind interviews. This kind of footage
 On the other hand, cutaways can show how different people react to what is being said in an interview. After all, transitions are commonly used to switch from one person's experience with a certain topic to another person's experience with the same topic. All of these different kinds of footage give filmmakers and videographers more freedom to tell their stories without relying too much on dialogue or narration.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. What types of b roll are there?
@@ -60,27 +67,26 @@ We'll examine the top 5 uses for B rolls across a variety of video genres and di
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
 
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Visual detail b roll footage
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Storytelling b roll footage
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Undirected b roll footage
 
@@ -103,10 +109,10 @@ If flaws were discovered during primary photography, the directors could have re
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -143,14 +149,21 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-overcoming-fullscreen-malfunctions-in-obs/"><u>[New] In 2024, Overcoming Fullscreen Malfunctions in OBS</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-unmatched-recording-alternatives-for-modern-gaming-enthusiasts/"><u>[New] In 2024, Unmatched Recording Alternatives for Modern Gaming Enthusiasts</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-inside-spaces-weaving-in-the-essence-of-daylight/"><u>[New] Inside Spaces Weaving in the Essence of Daylight</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-reducing-sound-levels-gradually-with-easy-steps-in-lumafusion/"><u>[New] Reducing Sound Levels Gradually with Easy Steps in Lumafusion</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-video-editing-made-easy-how-to-proficiently-use-movie-maker-in-win11/"><u>[New] Video Editing Made Easy How to Proficiently Use Movie Maker in Win11</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-blending-primary-and-b-roll-for-smooth-transitions-for-2024/"><u>[Updated] Blending Primary and B-Roll for Smooth Transitions for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-instagram-live-broadcasting-unseen-and-unknown/"><u>2024 Approved Instagram Live Broadcasting Unseen and Unknown</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/amd-rx-6800-graphics-driver-update-for-windows-111087-free-download-options/"><u>AMD RX 6800 Graphics Driver Update for Windows 11/10/8/7 - Free Download Options</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-insightful-advice-for-an-unhindered-instagram-experience/"><u>In 2024, Insightful Advice for an Unhindered Instagram Experience</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-enhance-your-instagram-content-with-effective-captioning/"><u>[New] Enhance Your Instagram Content with Effective Captioning</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-streamlining-in-stream-ads-on-facebook-your-step-by-step-playbook/"><u>[New] In 2024, Streamlining In-Stream Ads on Facebook Your Step-by-Step Playbook</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-ghostly-movie-editing-hacks/"><u>2024 Approved Ghostly Movie Editing Hacks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-leading-5-display-choices-for-ps5-gamers/"><u>2024 Approved Leading 5 Display Choices for PS5 Gamers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-next-gen-methods-for-breathtaking-android-time-lapses/"><u>2024 Approved Next-Gen Methods for Breathtaking Android Time-Lapses</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-step-by-step-guide-to-mastering-quantum-hdr/"><u>2024 Approved Step by Step Guide to Mastering Quantum HDR</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/5-pioneering-portals-to-streamline-your-text-effects-search/"><u>5 Pioneering Portals to Streamline Your Text Effects Search</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-tecno-spark-20c-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Tecno Spark 20C to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/comprehensive-troubleshooting-tips-eliminating-game-crashes-in-house-flipper-2-for-windows-users/"><u>Comprehensive Troubleshooting Tips: Eliminating Game Crashes in House Flipper 2 for Windows Users</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/curated-index-of-leading-vector-art-and-illustration-pages-for-2024/"><u>Curated Index of Leading Vector Art and Illustration Pages for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/cutting-edge-capture-ranking-the-prime-6-4k-dslr-models/"><u>Cutting-Edge Capture Ranking the Prime 6 4K DSLR Models</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/free-logitech-cam-driver-installation-guide-for-pc-users/"><u>Free Logitech Cam Driver Installation Guide for PC Users</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-vivo-v29-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Vivo V29 Activity | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/mastering-light-and-shadow-in-hdr-portraiture/"><u>Mastering Light and Shadow in HDR Portraiture</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/streamline-and-enhance-with-these-key-zoom-setup-steps/"><u>Streamline & Enhance with These Key Zoom Setup Steps</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-black-ops-cold-war-overcome-the-errorcode-0xc0000005-issue-now/"><u>Troubleshooting Black Ops Cold War: Overcome the ERROR_CODE 0xC0000005 Issue Now</u></a></li>
 </ul></div>
 

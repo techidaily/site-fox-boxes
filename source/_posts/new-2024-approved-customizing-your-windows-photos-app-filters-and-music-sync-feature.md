@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Customizing Your Window's Photos App  Filters & Music Sync Feature\""
-date: 2024-09-11T07:15:45.245Z
-updated: 2024-09-12T07:15:45.245Z
+date: 2024-10-29T16:47:03.777Z
+updated: 2024-11-01T19:50:56.058Z
 tags: 
   - screen-recording
   - ai video
@@ -33,13 +33,10 @@ Having Windows 10 Photos app is an advantage for you. This is not like any other
 
 **You may also like:** [How to Trim Video in Windows 10 Photos Easily >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
 
 ## Part 1: How to add filters on Windows 10 Photos App
 
@@ -53,41 +50,20 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
 **Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
-
-
-
+**Step 5**: Just select one you like. Preview it and then click Done.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
-**Step 5**: Just select one you like. Preview it and then click Done.
 
 ## Part 2: How to add music on Windows 10 Photos App
 
@@ -101,59 +77,25 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 **Step 5**: Hit the ‘Done’ button.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Conclusion
 
@@ -161,19 +103,12 @@ From the above article, we conclude that Windows 10 Photos app is an amazing app
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Shanoon Cox
 
@@ -198,12 +133,22 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-filming-on-the-go-what-you-need/"><u>[New] Filming On-the-Go – What You Need</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-budget-friendly-sky-vault-optimal-large-file-haven/"><u>[New] In 2024, Budget-Friendly Sky Vault Optimal Large File Haven</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-duel-of-durability-hero-5-black-versus-keymission/"><u>[New] The Duel of Durability HERO 5 Black Versus Keymission</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-top-5-efforts-crafting-perfect-titles/"><u>[New] Top 5 Efforts Crafting Perfect Titles</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-full-analysis-of-t5-eyes-exceptional-action-recording/"><u>[Updated] 2024 Approved Full Analysis of T5 Eye's Exceptional Action Recording</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-explore-the-finest-iosdesktop-video-to-file-converters/"><u>[Updated] In 2024, Explore the Finest iOS/Desktop Video to File Converters</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-introduction-to-moving-visual-content/"><u>[Updated] Introduction to Moving Visual Content</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-peeling-back-the-layers-of-magix-image-suite-for-2024/"><u>[Updated] Peeling Back the Layers of MAGIX Image Suite for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/alternative-internet-explorer-options-for-samsung-televisions-explained/"><u>Alternative Internet Explorer Options for Samsung Televisions Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-narratives-of-a-korean-week/"><u>Daily Narratives of a Korean Week</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/data-detonation-disintegrate-losses-with-stellar/"><u>Data Detonation – Disintegrate Losses with Stellar</u></a></li>
+<li><a href="https://win-studio.techidaily.com/preventing-data-loss-and-restoring-damaged-registry-entries-on-windows-7/"><u>Preventing Data Loss & Restoring Damaged Registry Entries on Windows 7</u></a></li>
+<li><a href="https://win11.techidaily.com/the-essentials-of-windows-cab-files-purpose-and-installation-tactics/"><u>The Essentials of Windows CAB Files: Purpose & Installation Tactics</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-future-of-titles-an-innovators-playbook-for-videos/"><u>The Future of Titles An Innovator's Playbook for Videos</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/ultimate-guide-to-updating-iphone-drivers-on-windows-11-systems/"><u>Ultimate Guide to Updating iPhone Drivers on Windows 11 Systems</u></a></li>
+</ul></div>
 

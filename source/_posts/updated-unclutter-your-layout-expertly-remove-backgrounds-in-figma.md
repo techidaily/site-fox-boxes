@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unclutter Your Layout  Expertly Remove Backgrounds in Figma\""
-date: 2024-09-11T07:08:09.995Z
-updated: 2024-09-12T07:08:09.995Z
+date: 2024-10-31T22:48:26.339Z
+updated: 2024-11-01T16:37:30.451Z
 tags: 
   - screen-recording
   - ai video
@@ -25,26 +25,6 @@ Figma is an easy-to-use, versatile and powerful design tool with many useful opt
 To make things easier, we've written a comprehensive step-by-step guide on **removing background in Figma** using the PixCut plugin. We will also provide you with a list of alternative plugins that you can use to erase the experience from an image in Figma.
 
 So, keep reading to find out about removing an image's background in Figma!
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## The Best Option to Remove Image's Background in Figma
 
@@ -92,43 +72,16 @@ Step3 Paste the Appkey in the pop-up window in Figma and click **"Save."** Now, 
 
 The program will start running the plugin, and the background of your image will disappear. Click the **"Export"** option and save your file on your system.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Other Options To Remove Image's Background In Figma
 
 Apart from using PixCut Plugin in Figma, there are some alternatives that you can use to remove the image's background in Figma:
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### (1) When Images Are With Transparent or Solid Colour Backgrounds
 
@@ -137,25 +90,12 @@ Follow these tips to remove the background of images with transparent or solid c
 * When saving your images from programs like Photoshop, make sure to save them with transparent background. This way, when you import it to Figma, the BG will be removed automatically.
 * If your image has a solid background, import it to Figma and use the **"Edit Color"** tool to change the BG to transparent.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### (2) 3 Other Figma Plugins
 
@@ -179,25 +119,31 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### (3) Using Online Removers
 
 Another alternative is to use any tool that **removes the image background online**. For example, we recommend using the [Remove BG tool](https://www.remove.bg/).
 
 To use the Remove BG tool, visit its website, drop your image file, or click the **"Upload"** option to import your file. Now, wait for the program to process your image and then click **"Download"** to save your picture. Afterward, you can import it to Figma for further editing.
+
+<!-- affiliate ads begin -->
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
 
@@ -223,33 +169,12 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### (3) Using Online Removers
 
@@ -260,26 +185,6 @@ To use the Remove BG tool, visit its website, drop your image file, or click the
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
 
 Hopefully, you have found an ideal solution by now. To help you remove the image's background in Figma with more ease, we have prepared a video for you. You can combine the video content with the guidance above:
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Conclusion
 
@@ -311,4 +216,26 @@ Hopefully, this article helped resolve your queries, and you can now use the Fig
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-3dr-solo-unveiling-the-single-user-experience/"><u>[New] In 2024, '3DR Solo' Unveiling the Single User Experience</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-mastering-online-meetings-best-choices/"><u>[New] Mastering Online Meetings Best Choices</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-pinnacle-portability-ideal-devices-for-4k-media-artists/"><u>[New] Pinnacle Portability Ideal Devices for 4K Media Artists</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-affordable-full-rotational-camera-systems-enhancing-media/"><u>[Updated] 2024 Approved Affordable, Full Rotational Camera Systems Enhancing Media</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-bringing-realities-closer-google-cardboard-vs-samsung-gear/"><u>[Updated] 2024 Approved Bringing Realities Closer Google Cardboard Vs. Samsung Gear</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-a-deep-dive-into-metaverse-vs-multi-meva-key-differences-explored/"><u>[Updated] A Deep Dive Into Metaverse Vs. Multi-Meva Key Differences Explored</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-most-popular-oculus-rift-experiences-for-gamers/"><u>[Updated] In 2024, Most Popular Oculus Rift Experiences for Gamers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-stay-ahead-of-the-game-use-mematic/"><u>[Updated] Stay Ahead of the Game - Use Mematic</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-step-by-step-manual-kickstart-your-bite-sized-gadget-reviews-channel/"><u>2024 Approved Step-by-Step Manual Kickstart Your Bite-Sized Gadget Reviews Channel</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-stop-automatic-video-recommendations-immediately/"><u>2024 Approved Stop Automatic Video Recommendations Immediately</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/cookiebot-enabled-conversions-optimizing-your-site-with-smart-analytics/"><u>Cookiebot-Enabled Conversions: Optimizing Your Site with Smart Analytics</u></a></li>
+<li><a href="https://techtrends.techidaily.com/effortless-multi-photo-uploading-techniques-for-your-facebook-profile/"><u>Effortless Multi-Photo Uploading Techniques for Your Facebook Profile</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-lock-apps-on-infinix-smart-8-plus-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Infinix Smart 8 Plus to Protect Your Individual Information</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-the-art-of-soft-ending-sounds-in-premiere-pro/"><u>In 2024, The Art of Soft-Ending Sounds in Premiere Pro</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-the-modern-shoppers-guide-to-360-degree-imaging-tech/"><u>In 2024, The Modern Shopper's Guide to 360-Degree Imaging Tech</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-nokia-g22-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Nokia G22 Phone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/insightful-pricing-comparison-for-cloud-platforms/"><u>Insightful Pricing Comparison for Cloud Platforms</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/tailored-ending-scenes-get-em-for-free/"><u>Tailored Ending Scenes - Get 'Em for Free</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/win-10-audio-issue-overcome-how-to-guide/"><u>Win 10 Audio Issue Overcome - How To Guide</u></a></li>
+</ul></div>
 

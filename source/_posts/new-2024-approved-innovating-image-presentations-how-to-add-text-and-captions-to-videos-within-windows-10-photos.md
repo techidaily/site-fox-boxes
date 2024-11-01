@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Innovating Image Presentations  How to Add Text and Captions to Videos Within Windows 10 Photos\""
-date: 2024-10-22T23:35:03.631Z
-updated: 2024-10-26T17:23:01.014Z
+date: 2024-10-29T17:18:21.775Z
+updated: 2024-11-01T20:30:01.697Z
 tags: 
   - screen-recording
   - ai video
@@ -56,13 +56,6 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
 The Photos app in Windows 10 is even easier than the old Windows Movie Maker. You do not need a sharp learning curve for using this app and any beginner can use it with ease and comfort. The Photos app has an anchoring system along with the text tool that makes the text move with the video images. Here’s how you can make the text move in Windows 10 Photos app-
@@ -74,31 +67,44 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -107,10 +113,10 @@ To add titles/text to video on Photos in Windows 10 and to make the text move wi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -138,21 +144,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-youtube-shorts-monetization-how-to-make-money-on-youtube-shorts/"><u>[New] 2024 Approved YouTube Shorts Monetization How to Make Money on YouTube Shorts?</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-innovations-in-mobile-photography-a-look-at-iphone-x/"><u>[New] Innovations in Mobile Photography A Look at iPhone X</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-instagram-to-tik-tok-integration-strategy-for-2024/"><u>[New] Instagram to Tik Tok Integration Strategy for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-2022s-speed-demon-olympic-crossers-greatest-hits/"><u>[Updated] 2024 Approved 2022'S Speed Demon Olympic Crossers' Greatest Hits</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-all-inclusive-guide-what-is-googles-podcast-service/"><u>[Updated] All-Inclusive Guide What Is Google's Podcast Service?</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-dji-phantom-3-the-pro-drone-experience-explored-for-2024/"><u>[Updated] DJI Phantom 3 The Pro Drone Experience Explored for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-exclusive-secrets-for-windows-11-mastery/"><u>[Updated] Exclusive Secrets for Windows 11 Mastery</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-photoshop-shake-reduction-is-it-really-useful/"><u>[Updated] In 2024, Photoshop Shake Reduction - Is It Really Useful?</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-ultimate-audio-experience-budget-friendly-asmr-mics-reviewed-for-2024/"><u>[Updated] Ultimate Audio Experience Budget-Friendly ASMR Mics Reviewed for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-best-practices-choosing-exceptional-cloud-services/"><u>2024 Approved Best Practices Choosing Exceptional Cloud Services</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/5-crucial-considerations-when-shopping-for-your-next-activity-monitor/"><u>5 Crucial Considerations When Shopping for Your Next Activity Monitor</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/expert-itunes-revival-steps-retrieving-data-for-your-iphone-ipad-and-ipod-from-backups/"><u>Expert iTunes Revival Steps: Retrieving Data for Your iPhone, iPad & iPod From Backups</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-exploring-auto-and-smart-hdr-advances-in-camera-technology/"><u>In 2024, Exploring Auto and Smart HDR Advances in Camera Technology</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-photoshop-tutorial-creating-3d-text-illusions/"><u>In 2024, Photoshop Tutorial Creating 3D Text Illusions</u></a></li>
-<li><a href="https://article-helps.techidaily.com/mastering-drone-footage-a-step-by-step-guide/"><u>Mastering Drone Footage A Step-by-Step Guide</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshoot-and-fix-the-silent-mac-dilemma-solutions-unveiled/"><u>Troubleshoot and Fix the Silent Mac Dilemma - Solutions Unveiled</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-rev-up-with-hubsans-x4-fpv-quadcopter-review/"><u>[New] Rev Up with Hubsan's X4 FPV Quadcopter Review</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unveil-the-quickest-ways-to-transform-your-game-characters-speech-in-pubg-for-2024/"><u>[New] Unveil the Quickest Ways to Transform Your Game Characters' Speech in PUBG for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/solved-the-iphone-cannot-be-synced-itunes-error-54-after-windows-11-upgrade/"><u>[Solved] The iPhone Cannot Be Synced iTunes Error (-54) After Windows 11 Upgrade</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-scrutinizing-vivid-visuals-enhanced-by-hd-and-luminance/"><u>[Updated] In 2024, Scrutinizing Vivid Visuals Enhanced by HD and Luminance</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-storage-sizing-film-duration-in-gb/"><u>[Updated] In 2024, Storage Sizing Film Duration in GB</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-xiaomi-redmi-note-13-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Xiaomi Redmi Note 13 5G to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-oculus-favorites-the-8-highest-selling-games/"><u>In 2024, Oculus Favorites The 8 Highest-Selling Games</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/maximizing-focus-zooming-in-msteams/"><u>Maximizing Focus Zooming In MSTEAMS</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/pythons-role-in-harnessing-gpt-3/"><u>Python's Role in Harnessing GPT-3</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/ralink-rt3290-driver-troubles-in-windows-1087-here-are-the-solutions/"><u>Ralink RT3290 Driver Troubles in Windows 10/8/7? Here Are the Solutions!</u></a></li>
 </ul></div>
 

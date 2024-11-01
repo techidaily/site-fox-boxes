@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Elevating Visual Clarity  Uncovering iPhone X’s Precision Camera\""
-date: 2024-09-11T07:08:10.221Z
-updated: 2024-09-12T07:08:10.221Z
+date: 2024-10-27T21:34:22.748Z
+updated: 2024-11-01T19:55:39.625Z
 tags: 
   - screen-recording
   - ai video
@@ -37,53 +37,18 @@ thumbnail: https://thmb.techidaily.com/20e687e989a89b1dd45743ceb6d6d3c635644bf24
 
  The phone has a brand new rear [camera with two lenses](https://tools.techidaily.com/wondershare/filmora/download/) in a vertical orientation. This new orientation has been chosen to provide more space for the front-facing TrueDepth camera. This camera is tasked with powering the Face ID feature. The TrueDepth system also has a f/2.2 7-megapixel camera for selfies. The feature means Portrait Mode and Portrait Lighting are supported in front-facing mode. With Portrait Lighting, you can dynamically adjust your photo’s lighting with ease. TrueDepth uses an infrared emitter to project more than 30,000 in a recognised pattern onto users’ faces, before photographing the dots for analysis. The function is strengthened with a proximity sensor as well as an ambient light sensor which allows output light levels to be set.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Part 2: The importance of depth
 
  With previous versions of the iPhone Plus, the depth maps were only used to blur backgrounds and make subjects pop against them. However, the iPhone X takes the depth information from the two lenses as well as the efficiency of the A11 Bionic chip to offer outstanding new special effects.
 
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Part 3: How to use portrait mode
 
@@ -103,39 +68,19 @@ thumbnail: https://thmb.techidaily.com/20e687e989a89b1dd45743ceb6d6d3c635644bf24
 
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
-
-
-
 
 <!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Part 4: Video improvement
 
@@ -143,19 +88,12 @@ thumbnail: https://thmb.techidaily.com/20e687e989a89b1dd45743ceb6d6d3c635644bf24
 
 ![video improvement](https://images.wondershare.com/filmora/article-images/video-improvement.JPG)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 **You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -190,4 +128,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-aspers-secrets-soundscapes-that-lull-you-to-sleep/"><u>[New] 2024 Approved Asper's Secrets Soundscapes That Lull You to Sleep</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-celebrated-scripts-spanning-eight-movie-segments/"><u>[New] Celebrated Scripts Spanning Eight Movie Segments</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-deep-dive-into-windows-pc-hdr-capabilities-for-2024/"><u>[New] Deep Dive Into Windows PC HDR Capabilities for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-new-frontiers-in-immersive-experiences-the-best-metaverse-insights/"><u>[New] In 2024, New Frontiers in Immersive Experiences The Best Metaverse Insights</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-the-ultimate-guide-to-video-excellence-and-staff-picks-at-vimeo-for-2024/"><u>[New] The Ultimate Guide to Video Excellence & Staff Picks at Vimeo for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-action-spectacular-the-full-t5-camera-review/"><u>[Updated] Action Spectacular The Full T5 Camera Review</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-boost-communication-merging-skype-and-zoom-functionality/"><u>[Updated] Boost Communication Merging Skype and Zoom Functionality</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-streaming-audio-directly-into-slides/"><u>In 2024, Streaming Audio Directly Into Slides</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-unlocking-performance-top-windows-11-strategies/"><u>In 2024, Unlocking Performance Top Windows 11 Strategies</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-from-zero-to-hero-top-10-free-and-paid-android-video-editing-apps-for-2024/"><u>New From Zero to Hero Top 10 Free and Paid Android Video Editing Apps for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcoming-challenges-with-microsofts-print-to-pdf-in-windows-10-and-11-environments/"><u>Overcoming Challenges with Microsoft's Print to PDF in Windows 10 and 11 Environments</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125952-9781609251376-people-who-dont-know-theyre-dead/"><u>People Who Don't Know They're Dead | Free Book</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/precision-in-memory-keeping-organizing-photos-on-iphone-and-uploading-to-icloud-for-2024/"><u>Precision in Memory Keeping Organizing Photos on iPhone and Uploading to iCloud for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-definitive-guide-unlock-the-power-of-faster-computing-with-our-top-7-hacks/"><u>The Definitive Guide: Unlock the Power of Faster Computing with Our Top 7 Hacks</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-ultimate-editor-showdown-for-superior-reels/"><u>The Ultimate Editor Showdown for Superior Reels</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/the-ultimate-guide-to-sound-trailing-in-premiere-pro-for-2024/"><u>The Ultimate Guide to Sound Trailing in Premiere Pro for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/top-tips-for-resolving-lag-and-connection-glitches-in-new-world-game/"><u>Top Tips for Resolving Lag & Connection Glitches in New World Game</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unlock-immersive-puzzle-worlds-on-ios-with-games-similar-to-the-room-and-myst/"><u>Unlock Immersive Puzzle Worlds on iOS with Games Similar to 'The Room' And 'Myst'</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/virtual-horizon-8-best-metaverse-glasses-and-headsets/"><u>Virtual Horizon 8 Best Metaverse Glasses & Headsets</u></a></li>
+</ul></div>
 

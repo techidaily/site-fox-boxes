@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Capture with Purpose  IPhone's 10 Commandments of Image Design\""
-date: 2024-10-24T16:50:02.301Z
-updated: 2024-10-26T16:34:49.402Z
+date: 2024-10-29T16:53:19.524Z
+updated: 2024-11-01T18:17:51.386Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,13 @@ thumbnail: https://thmb.techidaily.com/d6d8993d1273f8bc00bb7a2e686014c201566f379
 
 ![leading lines](https://images.wondershare.com/filmora/article-images/leading-lines.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Symmetry
 
  For the perfect photo composition with an iPhone, one should understand what all make for the right composition. Photographers divide the frame they want to click into rough patterns and position the subject at the right place to get wonderful shots. Both man-made and natural symmetry and patterns represent eye-catching compositions. You can either take a shot following the symmetric patterns or break them to make the subject stand out by adding focal points and tension.
@@ -52,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/d6d8993d1273f8bc00bb7a2e686014c201566f379
 ![symmetrical](https://images.wondershare.com/filmora/article-images/Symmetrical.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Framing
@@ -64,13 +71,6 @@ thumbnail: https://thmb.techidaily.com/d6d8993d1273f8bc00bb7a2e686014c201566f379
 
 ![framing](https://images.wondershare.com/filmora/article-images/framing.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Diagonals
 
  Diagonals are an integral aspect of photography composition, as they determine the outcome of a picture you have clicked using your iPhone. Let’s get to know what the role of diagonals in a picture is and how it impacts the visual. As you know the Rules of Thirds is important and it positions the subject of interest at a corner over the grid outlay of a photograph. It sometimes might leave the other corner empty and unbalance the image. Using diagonals, you can position the main subject and diagonally move the less important subjects towards the other end to click the perfectly balanced shot.
@@ -78,10 +78,10 @@ thumbnail: https://thmb.techidaily.com/d6d8993d1273f8bc00bb7a2e686014c201566f379
 ![diagonal](https://images.wondershare.com/filmora/article-images/diagonal.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Shape
@@ -90,18 +90,18 @@ thumbnail: https://thmb.techidaily.com/d6d8993d1273f8bc00bb7a2e686014c201566f379
 
 ![shape](https://images.wondershare.com/filmora/article-images/shape.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Leave Empty Space
 
  You may wonder if I leave too much empty space in my photo contradicts the concept of ‘filling the frame’. But, it brings out the best for your iPhone photography when you have a strong subject in your scene. A clutter free and less distractive environment leads the viewers’ focus towards the main subject. You can think of clicking a giant statue against a clear blue sky, where the sky would act as a perfect background for the statue and render a clean look to the empty space.
 
 ![space](https://images.wondershare.com/filmora/article-images/Space.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Direction of Subject
 
@@ -109,31 +109,38 @@ thumbnail: https://thmb.techidaily.com/d6d8993d1273f8bc00bb7a2e686014c201566f379
 
 ![direction](https://images.wondershare.com/filmora/article-images/direction.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Fill Your Frame
 
  Making your subject stand out against the entire frame in a photograph creates more impact. You can easily obtain this goal with your iPhone by covering the entire frame with your subject. According to this amazing photography composition technique, all you have to do is move your iPhone closer to the subject and nullify the appearance of the surroundings to take a close shot. Like this, you are able to capture the intricate detailing of a leaf with its vivid colors and texture, the detailing and motif on a wall art and much more.
 
 ![fill the screen](https://images.wondershare.com/filmora/article-images/fill-the-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Break the Rules
 
  Lastly, we would say that forget and break all the rules. Make use of the above mentioned rules in photography, but don’t let your heart stick to it. Explore, experiment and let your imaginations fly high to capture whatever you want and however you can that fills your soul. Photography is a passion and you must enjoy it.
 
 ![breal the rules](https://images.wondershare.com/filmora/article-images/break.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclsion
 
@@ -142,13 +149,6 @@ thumbnail: https://thmb.techidaily.com/d6d8993d1273f8bc00bb7a2e686014c201566f379
  Images come from the Internet
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -175,20 +175,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-the-noobs-manual-to-saving-streaming-radio-lines/"><u>[New] 2024 Approved The Noob's Manual to Saving Streaming Radio Lines</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-transforming-images-with-dynamic-mosaic-designs/"><u>[New] 2024 Approved Transforming Images with Dynamic Mosaic Designs</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-everyday-online-chronicles-a-handy-tip-for-digging-up-fbs-vids-for-2024/"><u>[New] Everyday Online Chronicles A Handy Tip for Digging Up FB's Vids for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-from-observer-to-participant-enrich-your-online-experience-with-fb/"><u>[New] In 2024, From Observer to Participant Enrich Your Online Experience with FB</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-parrot-prowess-in-bebop-an-in-depth-critique/"><u>[New] In 2024, Parrot Prowess in Bebop – An In-Depth Critique</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-movavi-video-pro-review-release-for-2024/"><u>[New] Movavi Video Pro Review Release for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-3d-lut-expertise-in-a-quick-learning-journey/"><u>[Updated] 2024 Approved 3D LUT Expertise in a Quick Learning Journey</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-master-memes-access-to-premium-free-designs/"><u>[Updated] Master Memes Access to Premium FREE Designs</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-navigating-final-cut-pro-with-ease-an-insiders-guide-for-2024/"><u>[Updated] Navigating Final Cut Pro with Ease An Insider's Guide for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-beat-the-bounds-of-voice-modification-the-leading-chrome-apps-unveiled/"><u>2024 Approved Beat the Bounds of Voice Modification The Leading Chrome Apps Unveiled</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/giggle-factory-gratis-memo-makers-available-for-2024/"><u>Giggle Factory Gratis Memo Makers Available for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-kicking-off-with-keyframe-quality-controls/"><u>In 2024, Kicking Off with Keyframe Quality Controls</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/lenovo-legion-5-review-affordable-high-performance-gaming-notebook/"><u>Lenovo Legion 5 Review: Affordable High-Performance Gaming Notebook</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-fcp-like-a-pro-5-must-know-editing-tips-for-stunning-videos-for-2024/"><u>New FCP Like a Pro 5 Must-Know Editing Tips for Stunning Videos for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-dell-p2715q-review-a-4k-visual-revolution-unfolds/"><u>The Dell P2715Q Review A 4K Visual Revolution Unfolds</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-top-5-hidden-media-extractor-apps/"><u>[New] In 2024, Top 5 Hidden Media Extractor Apps</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-reset-and-regain-navigating-the-2023-fb-hack-scenario/"><u>[Updated] 2024 Approved Reset & Regain Navigating the 2023 FB Hack Scenario</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-realtime-av-enthusiasts-community-for-2024/"><u>[Updated] RealTime AV Enthusiasts Community for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-enhance-your-clips-with-these-top-5-macos-sierra-editors/"><u>2024 Approved Enhance Your Clips with These Top 5 macOS Sierra Editors</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-explore-the-leading-microphones-in-podcasting/"><u>2024 Approved Explore the Leading Microphones in Podcasting</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-optimal-practices-for-blending-b-roll-into-main-clips/"><u>2024 Approved Optimal Practices for Blending B-Roll Into Main Clips</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-orchestrating-peak-canon-temporal-scenes/"><u>2024 Approved Orchestrating Peak Canon Temporal Scenes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-ringers-paradise-top-downloads-for-skype-sounds/"><u>2024 Approved Ringer's Paradise Top Downloads for Skype Sounds</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unleashing-visual-potential-incorporating-new-fonts-in-ae/"><u>2024 Approved Unleashing Visual Potential Incorporating New Fonts in AE</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/enhancing-detail-in-exported-digital-footage/"><u>Enhancing Detail in Exported Digital Footage</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-your-hp-laptop-camera-problems-under-windows-11-expert-tips-and-tricks/"><u>Fixing Your HP Laptop Camera Problems Under Windows 11: Expert Tips and Tricks</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-vivo-y200-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Vivo Y200 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-itel-a05s-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Itel A05s | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-honor-play-40c-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Honor Play 40C Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/solution-found-fixing-windows-setup-interruption-issues-easily/"><u>Solution Found! Fixing Windows Setup Interruption Issues Easily</u></a></li>
 </ul></div>
 

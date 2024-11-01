@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] A Step-by-Step Manual to Freeze Backgrounds in Affinity Photo\""
-date: 2024-09-11T07:10:38.739Z
-updated: 2024-09-12T07:10:38.739Z
+date: 2024-10-29T22:08:25.894Z
+updated: 2024-11-01T22:17:00.722Z
 tags: 
   - screen-recording
   - ai video
@@ -22,37 +22,14 @@ Affinity Photo is an image editor developed by Serif Ltd. in 2009 and is used by
 
 No matter you are a professional content creator or a newbie, we'll be discussing how to remove background in Affinity Photo. Let's explore how to use the good editing tool to be free of the stressful editing process.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-
-
 ## How to Remove Affinity Photo to Remove Image's Background
 
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### How to Erase a White Background in Affinity Designer
 
@@ -64,55 +41,20 @@ Now access the **Pixel Persona** section in the left corner of the software scre
 
 ![accessing the pixel persona in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-pixel-persona-in-affinity-designer.png)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and disable **"Lock."** Now right-click on your layer again, and select **"Rasterize"** to enable editing of specific parts of the image.
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
 
@@ -122,23 +64,23 @@ Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** 
 
 ![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
 
 Now, hit **"Control+D"** to deselect the selection. Alternatively, you can click **"Select"** in the top toolbar and choose the **"Deselect"** option. Finally, you can export your file using the **"File" > "Export"** option.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### How to Remove a Busy Background in Affinity Designer
 
@@ -167,19 +109,12 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
 
@@ -241,19 +176,12 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Conclusion
 
@@ -287,12 +215,26 @@ Hopefully, this article and video can help you create ideal images!
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-crafting-new-dimensions-a-look-at-mixed-reality/"><u>[New] 2024 Approved Crafting New Dimensions A Look at Mixed Reality</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-full-review-of-lg-bp350-from-screen-brightness-to-audio-output/"><u>[New] Full Review of LG BP350 - From Screen Brightness to Audio Output</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-discover-the-leading-8-web-resources-for-free-3d-text-psdfiles/"><u>[New] In 2024, Discover the Leading 8 Web Resources for Free 3D Text PSDFiles</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-photo-edits-skewed-caption-creation-for-2024/"><u>[New] Photo Edits Skewed Caption Creation for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-elevate-your-mobile-photography-with-ios-11-tweaks/"><u>[Updated] 2024 Approved Elevate Your Mobile Photography with iOS 11 Tweaks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-financial-free-editing-the-ultimate-guide-to-fcp-for-2024/"><u>[Updated] Financial-Free Editing The Ultimate Guide to FCP for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-effortless-techniques-to-turn-off-youtube-video-previews/"><u>[Updated] In 2024, Effortless Techniques to Turn Off YouTube Video Previews</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-strategies-for-improving-your-interview-prowess/"><u>[Updated] In 2024, Strategies for Improving Your Interview Prowess</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-ultimate-gopro-battle-hero5-black-vs-hero4-silver/"><u>[Updated] In 2024, Ultimate GoPro Battle Hero5 Black vs Hero4 Silver</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-redefine-your-sonic-world-with-sony-ps4ps5-for-2024/"><u>[Updated] Redefine Your Sonic World with Sony PS4/PS5 for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-from-plot-to-post-a-detailed-guide-to-writing-youtube-videos/"><u>2024 Approved From Plot to Post A Detailed Guide to Writing YouTube Videos</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-toolwiz-revolutionizes-camera-use-a-comprehensive-review-for-photographers/"><u>2024 Approved Toolwiz Revolutionizes Camera Use - A Comprehensive Review for Photographers</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/comprehensive-fixes-for-the-missing-msvcr100dll-error-in-windows/"><u>Comprehensive Fixes for the Missing 'MSVCR100.dll' Error in Windows</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/erasing-your-personal-unlock-code-from-windows-10-in-minutes/"><u>Erasing Your Personal Unlock Code From Windows 10 in Minutes</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-nubia-z50s-promirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Nubia Z50S ProMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-essential-image-collections-the-best-macbook-wallpaper-packs/"><u>In 2024, Essential Image Collections The Best MacBook Wallpaper Packs</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-share-mac-to-apple-iphone-13-pro-max-drfone-by-drfone-ios/"><u>In 2024, How to Screen Share Mac to Apple iPhone 13 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/navigating-the-latest-pro-cams-for-full-spheres/"><u>Navigating the Latest Pro Cams for Full Spheres</u></a></li>
+<li><a href="https://win11.techidaily.com/solutions-for-reactivating-razer-device-detection-by-synapse-software/"><u>Solutions for Reactivating Razer Device Detection by Synapse Software</u></a></li>
+</ul></div>
 

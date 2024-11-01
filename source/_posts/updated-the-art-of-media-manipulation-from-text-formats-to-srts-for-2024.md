@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Art of Media Manipulation  From Text Formats to SRTs for 2024\""
-date: 2024-10-20T02:41:31.357Z
-updated: 2024-10-26T19:23:34.993Z
+date: 2024-10-26T19:58:38.094Z
+updated: 2024-11-01T22:56:12.967Z
 tags: 
   - screen-recording
   - ai video
@@ -58,6 +58,13 @@ First, there’s a section for subtitle number, which is followed by the time at
 
 ![subRip subtitle file](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-19.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. SSA
 
 It is a plain text file that is composed of three sections, Script Info, Styles, and Events.
@@ -209,6 +216,13 @@ Step5 After that, hit the “Export” button and a dropdown will appear.
 
 ![vob subtitle file appearance](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step6 Now select the “SubRip Subtitle file(.srt)” from there and click “Export.”
 
 ![upload vob file](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-15.jpg)
@@ -224,6 +238,13 @@ What? You don't know how to add these SRT subtitles to your movie? No worries be
 Many users ask questions like “How do I open the SRT file with a video player so that the subtitles will play along with the movie?”
 
 If that is your case then here's a bonus tip for you.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus Tips: The Best Way to Edit the Styling of SRT Subtitles for Videos
 
@@ -272,10 +293,10 @@ Step5 Lastly, hit the "Export" button to save the video having subtitles.
 ![go to the titles](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-27.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Now on adding manual subtitles to your video.
@@ -298,13 +319,6 @@ Step5 Go to the "Titles" from the top toolbar and then click on the "Subtitles."
 
 ![start transcribing now](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-16.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ect the type you want by clicking on the "+" sign or by drag-n-drop on the bottom video track.
 
 ![type the text](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-29.jpg)
@@ -312,13 +326,6 @@ ect the type you want by clicking on the "+" sign or by drag-n-drop on the botto
 Step7 Now, type the text you want to add as a subtitle, and change other settings like color or text style as you want. You can also go to the advanced settings for more control over your subtitle.
 
 ![hit the export button](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-25.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step8 Finally, when you are done, just hit the "Export" button to burn the subtitles on your video.
 
@@ -338,6 +345,13 @@ First, there’s a section for subtitle number, which is followed by the time at
 
 ![subRip subtitle file](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-19.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. SSA
 
 It is a plain text file that is composed of three sections, Script Info, Styles, and Events.
@@ -345,10 +359,10 @@ It is a plain text file that is composed of three sections, Script Info, Styles,
 ![xml subtitle file appearance](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. XML
@@ -362,13 +376,6 @@ This subtitle format contains encoding, duration, and content of subtitles like 
 This is an XML-based format that has a somewhat complicated look with <> appearing in many places.
 
 ![convert ttml to srt](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-11.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. STL
 
@@ -507,6 +514,19 @@ Step6 Now select the “SubRip Subtitle file(.srt)” from there and click “Ex
 
 ![upload vob file](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-15.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Finally, the SRT version of your VOB file will be saved.
 
 Congratulations!
@@ -531,6 +551,13 @@ But what may be the best software for it? Of course, it's [Wondershare Filmora](
 
 ![video tract](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-24.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 And that's not all.
 
 Did you know that you can also edit the styling or timing of your SRT subtitles with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)? If you didn’t then broaden your horizon because can do it even without much technical knowledge.
@@ -550,13 +577,6 @@ Step1 Download and install the latest version of Wondershare Filmora from the of
 Step2 Now launch the software and click on the "New Project."
 
 ![download converted subtitles](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-13.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3 After that, click on the "Import Media" or drag and drop the video as well as the SRT subtitle file here.
 
@@ -596,25 +616,11 @@ ect the type you want by clicking on the "+" sign or by drag-n-drop on the botto
 
 ![type the text](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-29.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step7 Now, type the text you want to add as a subtitle, and change other settings like color or text style as you want. You can also go to the advanced settings for more control over your subtitle.
 
 ![hit the export button](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-25.jpg)
 
 Step8 Finally, when you are done, just hit the "Export" button to burn the subtitles on your video.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -646,17 +652,18 @@ If you still have questions in your mind, leave them in the comment section belo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-seamless-time-lapse-production-using-advanced-gopro-software/"><u>[New] 2024 Approved Seamless Time Lapse Production Using Advanced GoPro Software</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-supercharging-instagram-videos-on-the-go-mobile/"><u>[New] Supercharging Instagram Videos on the Go (Mobile)</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-advice-on-reversing-non-functional-obs-fullscreen/"><u>[Updated] 2024 Approved Advice on Reversing Non-Functional OBS Fullscreen</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-from-bargain-hunting-to-video-glamour-editing-insights-for-hauls-for-2024/"><u>[Updated] From Bargain Hunting to Video Glamour Editing Insights for Hauls for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-tutorial-for-downloading-movie-maker-6-on-windows/"><u>[Updated] In 2024, Tutorial for Downloading Movie Maker 6 on Windows</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-mastering-pip-activatedeactivate-in-safari-on-apple-devices/"><u>[Updated] Mastering PIP Activate/Deactivate in Safari on Apple Devices</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Motorola Moto E13 | Dr.fone</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/breaking-language-barriers-elevate-your-content-with-the-best-free-video-translator-apps-for-2024/"><u>Breaking Language Barriers Elevate Your Content with the Best Free Video Translator Apps for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/customize-your-own-gpt-explore-chatgpts-new-feature-for-tailored-ai-models/"><u>Customize Your Own GPT: Explore ChatGPT's New Feature for Tailored AI Models</u></a></li>
-<li><a href="https://techidaily.com/how-to-repair-system-issues-of-apple-iphone-6-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair System Issues of Apple iPhone 6? | Dr.fone</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/methode-gratuite-pour-transformer-des-fichiers-flac-en-m4a-en-ligne-avec-movavi/"><u>Méthode Gratuite Pour Transformer Des Fichiers FLAC en M4A en Ligne Avec Movavi</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/step-by-step-guide-removing-audio-enhancements-feature-from-windows-10/"><u>Step-by-Step Guide: Removing Audio Enhancements Feature From Windows 10</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-best-practices-for-livestreaming-and-archiving-sports-events/"><u>[Updated] 2024 Approved Best Practices for Livestreaming & Archiving Sports Events</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-5-pro-audio-techniques-for-windows-10-users/"><u>2024 Approved 5 Pro Audio Techniques for Windows 10 Users</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-amplifying-online-presence-focusing-on-details/"><u>2024 Approved Amplifying Online Presence Focusing on Details</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-exploring-the-metaverse-and-omniverse-distinctions/"><u>2024 Approved Exploring the Metaverse and Omniverse Distinctions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-how-to-listen-to-podcasts-on-your-iphone/"><u>2024 Approved How to Listen to Podcasts on Your iPhone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unlock-styling-secrets-with-a-diy-video-editing-guide/"><u>2024 Approved Unlock Styling Secrets with a DIY Video Editing Guide</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-honor-x50i-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Honor X50i PC | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/gpu-renaissance-amd-radeon-redux/"><u>GPU Renaissance AMD Radeon Redux</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-tecno-pop-8-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on Tecno Pop 8</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-stuck-at-getting-windows-ready-issue-step-by-step-guide/"><u>Resolving 'Stuck at Getting Windows Ready' Issue: Step-by-Step Guide</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/transformez-facilement-votre-fichier-webm-en-wmv-gratuitement-avec-convertwbm2wmvcom/"><u>Transformez Facilement Votre Fichier Webm en WMV Gratuitement Avec ConvertWbm2WMV.com</u></a></li>
+<li><a href="https://driver-install.techidaily.com/universal-free-canon-scanner-software-for-windows/"><u>Universal Free Canon Scanner Software for Windows</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138572646-9781450212618-you-wake-me-each-morning/"><u>You Wake Me Each Morning | Free Book</u></a></li>
 </ul></div>
 
