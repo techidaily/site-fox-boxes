@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Essentials of Effective Video Narration Techniques for 2024"
-date: 2024-09-11T07:08:15.109Z
-updated: 2024-09-12T07:08:15.109Z
+date: 2024-10-31T17:27:41.830Z
+updated: 2024-11-07T17:18:57.408Z
 tags: 
   - screen-recording
   - ai video
@@ -44,19 +44,12 @@ But here's the good news: the way you add either option is the same in Filmora.
 
 ![add either option](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## How to add narration
 
@@ -64,45 +57,18 @@ So the easiest way to add narration is directly to a project. The benefit of thi
 
 ![add narration to project](https://images.wondershare.com/filmora/guide/stt-tts-srt-09.png)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 A good example of this would be narrating a story on top of some still images and video clips from a recent vacation. (In most cases you would want to turn off the sound of the video clip, or at least use ducking to help the viewer focus on the narration.)
 
 You put the playhead where you want to start recording and hit the microphone icon under the preview window.
 
 ![hit microphone icon](https://images.wondershare.com/filmora/guide/stt-tts-srt-08.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 A 3-second countdown will pop up and start recording immediately after this countdown.
 
@@ -110,25 +76,12 @@ You can record your narration and click stop.
 
 After recording, you can trim and edit your narration, you can delete it and record it again, and can move it and edit it like any other feature.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Some Tips for Recording Narration
 
@@ -148,20 +101,6 @@ Practice adding it to your videos to see how it adds depth and dimension to your
 
 It can also help make a connection with your audience because you can be relating to the images on the screen as they watch them. This is effective in building your YouTube audience.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Always use a good mic
 
 When adding voiceover or narration to your project, be sure to use a good USB microphone. A good quality sound will elevate your entire project and just requires a little planning.
@@ -170,25 +109,12 @@ When adding voiceover or narration to your project, be sure to use a good USB mi
 
 Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Should you use narration in your next project?
 
@@ -226,4 +152,22 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-sonic-update-for-whatsapp-statues/"><u>[New] 2024 Approved Sonic Update for WhatsApp Statues</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-stepwise-reduction-tactics-for-audio-levels-in-fl-studio/"><u>[New] 2024 Approved Stepwise Reduction Tactics for Audio Levels in FL Studio</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-the-epitome-of-engagement-celebrating-the-most-voted-posts-10/"><u>[New] 2024 Approved The Epitome of Engagement Celebrating the Most-Voted Posts (10)</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-intrigue-initiates-the-leading-10-rogues/"><u>[New] Intrigue Initiates The Leading 10 Rogues</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-snap-it-all-top-5-windows-11-recording-strategies-for-gamers-for-2024/"><u>[New] Snap It All! Top 5 Windows 11 Recording Strategies for Gamers for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-edgeresolve-pixelperfect-booster-windowsmacos/"><u>[Updated] 2024 Approved EdgeResolve PixelPerfect Booster (Windows/MacOS)</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-guide-to-supercharged-video-engagement-with-youtube-notes/"><u>[Updated] In 2024, Guide to Supercharged Video Engagement with YouTube Notes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-best-photography-enhancers-for-ios-and-android-guide/"><u>[Updated] In 2024, The Best Photography Enhancers for iOS & Android Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-total-mastery-of-powerdirector-with-our-review-and-guide/"><u>[Updated] In 2024, Total Mastery of PowerDirector with Our Review & Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-punpixel-the-ultimate-tool-for-digital-humor/"><u>[Updated] PunPixel The Ultimate Tool for Digital Humor</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-call-logs-from-galaxy-a05-by-fonelab-android-recover-call-logs/"><u>Best Android Data Recovery - undelete lost call logs from Galaxy A05</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solved-troubleshooting-solutions-for-nonfunctional-microphone-on-windows-with-sony-wh-1000xm-headphones/"><u>Solved: Troubleshooting Solutions for Nonfunctional Microphone on Windows with Sony WH-1000XM Headphones</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/step-by-step-incorporating-new-fonts-into-after-effects/"><u>Step-by-Step Incorporating New Fonts Into After Effects</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-10-blenders-perfecting-your-podcast-audio/"><u>Top 10 Blenders Perfecting Your Podcast Audio</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-rated-no-cost-mp4-to-avi-converter-for-windows-computers/"><u>Top-Rated No Cost MP4 to AVI Converter for Windows Computers</u></a></li>
+</ul></div>
 

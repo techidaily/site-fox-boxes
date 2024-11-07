@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, How to Safely Dissolve an Inactive LinkedIn Account"
-date: 2024-10-30T20:56:20.210Z
-updated: 2024-11-01T17:29:02.572Z
+date: 2024-11-01T17:42:32.792Z
+updated: 2024-11-07T17:15:50.030Z
 tags: 
   - screen-recording
   - ai video
@@ -54,10 +54,10 @@ thumbnail: https://thmb.techidaily.com/ae96135be8b387f3dfcd58e7778aa73a8a480a5ec
 * Reopening your LinkedIn account is possible within 20days but the data like recommendations, pending invitations, followings, or group memberships will be lost.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part2: How to Delete LinkedIn Account on PC
@@ -67,10 +67,10 @@ thumbnail: https://thmb.techidaily.com/ae96135be8b387f3dfcd58e7778aa73a8a480a5ec
 ![linkedin privacy](https://images.wondershare.com/filmora/article-images/linkedin-privacy.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 2:** Next, to "Close your LinkedIn account" find the "Change" option and click on it. You will get a warning if you are a premium member that without canceling the premium membership, you cannot close LinkedIn account. Click on "You’ll need to convert it to a Basic membership" option to reach the membership cancelation page.
@@ -78,10 +78,16 @@ thumbnail: https://thmb.techidaily.com/ae96135be8b387f3dfcd58e7778aa73a8a480a5ec
 ![close linkedin accout](https://images.wondershare.com/filmora/article-images/close-linkedin-account.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 3:** Then, you need to click on the answer why you wish to delete LinkedIn account from the options available like I have a duplicate account, I'm getting too many emails, I'm not getting any value from my membership, I have a privacy concern, I'm receiving unwanted contact, and Other. At the bottom of the page, click on "Next". You are asked to enter your password. Now, click on Close "Close Account".
@@ -98,6 +104,13 @@ thumbnail: https://thmb.techidaily.com/ae96135be8b387f3dfcd58e7778aa73a8a480a5ec
 
 ![linkedin android setting](https://images.wondershare.com/filmora/article-images/linkedin-android-setting.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2. A message appears if you wish to "continue", so tap on the continue option.Once you click on the continue option, a similar message like the above in delete LinkedIn account from PC appears as to why you wish to close LinkedIn account. Click on any one reason for leaving LinkedIn and then, proceed to tap "Next". It asks for your password to ensure it’s you and for the security of your account and once entering the password is complete, tap "done".
 
 ![linkedin android close account](https://images.wondershare.com/filmora/article-images/linkedin-android-close-account.JPG)
@@ -107,13 +120,6 @@ thumbnail: https://thmb.techidaily.com/ae96135be8b387f3dfcd58e7778aa73a8a480a5ec
  LinkedIn is not rigid about deleting the account or losing a user. It is completely up to you and your convenience, if you wish to remove LinkedIn account completely. Whether mobile browser or Android phone or your computer, the process to cancel LinkedIn account is quite simple and does not involve much of any critical steps. Follow the above points to delete LinkedIn account from your PC or Android.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -140,24 +146,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-advanced-tips-for-maximum-digital-storage/"><u>[New] 2024 Approved Advanced Tips for Maximum Digital Storage</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-chiefs-choice-elite-sky-savers/"><u>[New] Chief's Choice Elite Sky Savers</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-unleash-creativity-a-detailed-look-at-vsco-features/"><u>[New] In 2024, Unleash Creativity A Detailed Look at VSCO Features</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-live-broadcasting-uncovered-master-platform-selection-for-2024/"><u>[New] Live Broadcasting Uncovered Master Platform Selection for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-10-best-sites-to-download-free-slideshow-templates-for-2024/"><u>[Updated] 10 Best Sites to Download Free Slideshow Templates for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-cultivating-a-thriving-online-community-subscriber-growth-tactics/"><u>[Updated] 2024 Approved Cultivating a Thriving Online Community Subscriber Growth Tactics</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-a-step-by-step-approach-add-a-linked-url-to-your-tiktok-profile/"><u>[Updated] A Step-by-Step Approach Add a Linked URL to Your TikTok Profile</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-dominating-the-digital-space-from-5000-to-over-a-million-views/"><u>[Updated] In 2024, Dominating the Digital Space From 5,000 to Over a Million Views</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-inside-the-2023-samsung-bd-j5900-innovations/"><u>[Updated] Inside the 2023 Samsung BD-J5900 Innovations</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-mastery-overcoming-adobe-premieres-srt-barriers/"><u>[Updated] Mastery Overcoming Adobe Premiere's SRT Barriers</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-from-novice-to-pro-16-easy-to-use-free-video-editors-for-all-skill-levels/"><u>2024 Approved From Novice to Pro 16 Easy-to-Use Free Video Editors for All Skill Levels</u></a></li>
-<li><a href="https://blog-min.techidaily.com/8-ways-to-transfer-photos-from-oneplus-12-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>8 Ways to Transfer Photos from OnePlus 12 to iPhone Easily | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/big-screen-laptop-assessment-reviewing-pros-and-cons-of-asus-x441ba/"><u>Big-Screen Laptop Assessment: Reviewing Pros and Cons of Asus X441BA</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/essential-security-issues-to-consider-when-implementing-bot-based-conversations/"><u>Essential Security Issues to Consider When Implementing Bot-Based Conversations</u></a></li>
-<li><a href="https://windows11.techidaily.com/guide-to-reinstalling-favorite-apps-on-new-windows-11-devices/"><u>Guide to Reinstalling Favorite Apps on New Windows 11 Devices</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Samsung Galaxy Z Flip 5 | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-unlocking-facebooks-in-app-video-preferences/"><u>In 2024, Unlocking Facebook's In-App Video Preferences</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Tecno Spark 20 Pro+? | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/minimizing-disorientation-your-vr-wellbe-written-guide-for-2024/"><u>Minimizing Disorientation Your VR Wellbe Written Guide for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-rounded-overview-googles-podcast-application-demystified/"><u>[New] 2024 Approved Rounded Overview Google's Podcast Application Demystified</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-syma-x5c-exploration-top-choice-for-novice-aerial-enthusiasts/"><u>[New] 2024 Approved Syma X5C Exploration Top Choice for Novice Aerial Enthusiasts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-essential-skills-in-developing-podcast-xml-feeds/"><u>[New] Essential Skills in Developing Podcast XML Feeds</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-a-compreited-chronological-catalog-of-your-image-collection/"><u>[Updated] 2024 Approved A Compreited Chronological Catalog of Your Image Collection</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-foremost-editing-tools-for-device-developers/"><u>[Updated] Foremost Editing Tools for Device Developers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagram-film-to-mp3-conversion-tactics/"><u>[Updated] In 2024, Instagram Film to MP3 Conversion Tactics</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-leveraging-twitter-archive-for-research-for-2024/"><u>[Updated] Leveraging Twitter Archive for Research for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-techniques-to-boost-periscope-live-video-speed-for-2024/"><u>[Updated] Techniques to Boost Periscope Live Video Speed for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ai-10/"><u>AI 생성 사이트/프로그래밍 향상에 관한 정보 : 제공된 10개 선구부</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/guide-dinstallation-de-windows-11-sans-cle-de-produit-utiliser-une-cle-usb-deux-astuces-recommandees/"><u>Guide D'Installation De Windows 11 Sans Clé De Produit : Utiliser Une Clé USB - Deux Astuces Recommandées</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-infinix-smart-8-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Infinix Smart 8 to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-illuminate-canon-cameras-combining-freebies-and-paid-lut-sets/"><u>In 2024, Illuminate Canon Cameras Combining Freebies and Paid LUT Sets</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/singe-sounds-to-complement-ppt-slides-for-2024/"><u>Singe Sounds to Complement PPT Slides for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unlocking-the-secrets-estimated-price-tech-insights-and-leak-speculations-on-the-future-of-samsung-galaxy-z-fold-7/"><u>Unlocking the Secrets: Estimated Price, Tech Insights & Leak Speculations on the Future of Samsung Galaxy Z Fold 7</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Honor Magic5 Ultimate | Dr.fone</u></a></li>
 </ul></div>
 

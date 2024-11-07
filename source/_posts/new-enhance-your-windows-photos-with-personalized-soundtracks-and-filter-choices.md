@@ -1,7 +1,7 @@
 ---
 title: "[New] Enhance Your Windows Photos with Personalized Soundtracks and Filter Choices"
-date: 2024-09-11T07:08:12.881Z
-updated: 2024-09-12T07:08:12.881Z
+date: 2024-11-01T16:03:55.021Z
+updated: 2024-11-07T17:20:53.615Z
 tags: 
   - screen-recording
   - ai video
@@ -33,20 +33,6 @@ Having Windows 10 Photos app is an advantage for you. This is not like any other
 
 **You may also like:** [How to Trim Video in Windows 10 Photos Easily >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Part 1: How to add filters on Windows 10 Photos App
 
 If you have got Windows 10 Photos app and wish to add filters, though, it is by default a photo viewing app, its editing features are worth to mention. This step by step guide is your perfect savior in that case.
@@ -65,41 +51,14 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 **Step 5**: Just select one you like. Preview it and then click Done.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Part 2: How to add music on Windows 10 Photos App
 
@@ -113,45 +72,25 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 **Step 5**: Hit the ‘Done’ button.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Conclusion
 
@@ -159,19 +98,12 @@ From the above article, we conclude that Windows 10 Photos app is an amazing app
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Shanoon Cox
 
@@ -196,4 +128,23 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-hitpaw-screen-recorder-review-for-2024/"><u>[New] HitPaw Screen Recorder Review for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-enhancing-focus-advanced-techniques-for-videoleap-zooming/"><u>[New] In 2024, Enhancing Focus Advanced Techniques for VideoLeap Zooming</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-joyjingles-where-to-find-hilarious-ringtone-links/"><u>[New] In 2024, JoyJingles Where to Find Hilarious Ringtone Links</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-mastering-desktop-and-mobile-the-best-ways-to-download-fb-story-for-2024/"><u>[New] Mastering Desktop & Mobile The Best Ways to Download FB Story for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-navigating-the-world-of-hand-gesture-recognition-for-2024/"><u>[New] Navigating the World of Hand Gesture Recognition for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-a-360-degree-view-transformative-media-experience/"><u>[Updated] In 2024, A 360-Degree View Transformative Media Experience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-incorporating-background-scenes-for-visual-depth/"><u>[Updated] In 2024, Incorporating Background Scenes for Visual Depth</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/economical-dslrs-for-the-cost-conscious/"><u>Economical DSLRs for the Cost-Conscious</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/from-real-to-virtual-the-science-behind-vr/"><u>From Real to Virtual The Science Behind VR</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/gratuito-conversor-online-para-aviar-em-qt-movavi/"><u>Gratuito Conversor Online Para Aviar Em Qt - Movavi</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-strategic-planning-for-effective-virtual-meetings-on-win11/"><u>In 2024, Strategic Planning for Effective Virtual Meetings on Win11</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Samsung Galaxy F14 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/movavis-quick-guide-on-how-to-convert-your-m4b-recordings-to-mp4-without-charge/"><u>Movavi's Quick Guide on How to Convert Your M4B Recordings to MP4 Without Charge!</u></a></li>
+<li><a href="https://win11.techidaily.com/overcome-0x80242016-in-your-windows-update/"><u>Overcome 0X80242016 in Your Windows Update</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/panorama-pro-network-partnership-guide/"><u>Panorama Pro Network Partnership Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/picabuze-funny-image-creation-for-free/"><u>Picabuze Funny Image Creation for Free</u></a></li>
+</ul></div>
 

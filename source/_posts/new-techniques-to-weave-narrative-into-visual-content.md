@@ -1,7 +1,7 @@
 ---
 title: "[New] Techniques to Weave Narrative Into Visual Content"
-date: 2024-10-29T18:22:18.448Z
-updated: 2024-11-01T17:53:33.060Z
+date: 2024-11-03T17:38:03.469Z
+updated: 2024-11-07T16:19:45.104Z
 tags: 
   - screen-recording
   - ai video
@@ -49,13 +49,6 @@ But here's the good news: the way you add either option is the same in Filmora.
 
 ![add either option](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to add narration
 
 So the easiest way to add narration is directly to a project. The benefit of this is that you can record your narration inside Filmora while you watch the preview of your edited video.
@@ -63,10 +56,10 @@ So the easiest way to add narration is directly to a project. The benefit of thi
 ![add narration to project](https://images.wondershare.com/filmora/guide/stt-tts-srt-09.png)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 A good example of this would be narrating a story on top of some still images and video clips from a recent vacation. (In most cases you would want to turn off the sound of the video clip, or at least use ducking to help the viewer focus on the narration.)
@@ -75,18 +68,18 @@ You put the playhead where you want to start recording and hit the microphone ic
 
 ![hit microphone icon](https://images.wondershare.com/filmora/guide/stt-tts-srt-08.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 A 3-second countdown will pop up and start recording immediately after this countdown.
 
 You can record your narration and click stop.
 
 After recording, you can trim and edit your narration, you can delete it and record it again, and can move it and edit it like any other feature.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Some Tips for Recording Narration
 
@@ -98,6 +91,13 @@ You can edit pauses or weak parts out of the voiceover to trim it up. But if it 
 
 Fortunately, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) comes equipped with video b-roll which is another great option. When using b-roll, it's better to use multiple shorter clips than one longer clip in most cases. But adding the same b-roll clip near the beginning and another section of the same b-roll clip, later on, should help you match the length of your narration to the video timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Narration is a great storytelling device
 
 Narration is a fantastic tool to have in your arsenal as a young filmmaker. It allows you to quickly communicate feelings, backstory, and context quickly and effectively.
@@ -106,24 +106,18 @@ Practice adding it to your videos to see how it adds depth and dimension to your
 
 It can also help make a connection with your audience because you can be relating to the images on the screen as they watch them. This is effective in building your YouTube audience.
 
+<!-- affiliate ads begin -->
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Always use a good mic
 
 When adding voiceover or narration to your project, be sure to use a good USB microphone. A good quality sound will elevate your entire project and just requires a little planning.
 
 ![use good microphone](https://images.wondershare.com/filmora/article-images/2022/11/use-good-microphone.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
 
@@ -165,19 +159,19 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-insider-insights-unpacking-the-dji-phantom-3-pro-features/"><u>[New] In 2024, Insider Insights Unpacking the DJI Phantom 3 Pro Features</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-the-complete-visual-vocabulary-of-tiktok-emojis-and-icons-for-2024/"><u>[New] The Complete Visual Vocabulary of TikTok Emojis & Icons for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-the-ultimate-guide-to-product-revelation-best-15-unboxing-channels-for-2024/"><u>[New] The Ultimate Guide to Product Revelation Best 15 Unboxing Channels for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-best-action-camera-mics-to-capture-movement-for-2024/"><u>[Updated] Best Action Camera Mics to Capture Movement for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-mastering-the-art-of-srt-files-an-all-inclusive-guide-to-subtitles/"><u>[Updated] Mastering the Art of SRT Files An All-Inclusive Guide to Subtitles</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-perfect-cone-view-mounts-vr/"><u>[Updated] Perfect Cone View Mounts VR</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-non-playing-youtube-content-fixed-for-phonestablets/"><u>2024 Approved Non-Playing YouTube Content Fixed for Phones/Tablets</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/achieving-the-ultimate-crunch-with-oats-inclusion/"><u>Achieving the Ultimate Crunch with Oats Inclusion</u></a></li>
-<li><a href="https://extra-information.techidaily.com/expedition-tools-for-storytelling-through-lenses/"><u>Expedition Tools for Storytelling Through Lenses</u></a></li>
-<li><a href="https://extra-information.techidaily.com/fixing-the-quake-tips-for-steadying-gopro-videos/"><u>Fixing the Quake Tips for Steadying GoPro Videos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-alternatives-to-windows-traditional-video-editing/"><u>In 2024, Alternatives to WIndows' Traditional Video Editing</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/make-windows-11-detect-your-usb-device-easy-fixes-and-solutions/"><u>Make Windows 11 Detect Your USB Device: Easy Fixes and Solutions</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-how-to-choose-best-audio-formats/"><u>New 2024 Approved How to Choose Best Audio Formats</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-in-2024-best-mp4-editors-for-mavericks-review-and-comparison/"><u>New In 2024, Best MP4 Editors for Mavericks Review and Comparison</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-fix-chromium-and-youtube-streams/"><u>[New] 2024 Approved Fix Chromium and YouTube Streams</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/uilding-a-diverse-content-portfolio-on-youtube-shorts/"><u>[New] Building a Diverse Content Portfolio on YouTube Shorts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-essential-insight-into-the-best-6-harnesses-for-gopro-headsets/"><u>[New] Essential Insight Into The Best 6 Harnesses for GoPro Headsets</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-expert-selection-ranking-the-finest-6-head-mounted-gopros/"><u>[New] Expert Selection Ranking the Finest 6 Head-Mounted GOPROs</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-core-auditory-stimulation-channels/"><u>[Updated] 2024 Approved Core Auditory Stimulation Channels</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-enhancing-narratives-a-guide-to-using-b-roll-for-2024/"><u>[Updated] Enhancing Narratives A Guide to Using B-Roll for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-director-of-dishes-behind-the-scenes-of-food-filming/"><u>[Updated] In 2024, The Director of Dishes Behind-the-Scenes of Food Filming</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-premier-picture-preservation-websites/"><u>[Updated] Premier Picture Preservation Websites</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-raising-the-bar-in-online-earnings-500-subs-achievement/"><u>2024 Approved Raising the Bar in Online Earnings 500 Subs Achievement</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/asrock-chipset-and-motherboard-software-downloads-for-optimal-performance/"><u>ASRock Chipset & Motherboard Software Downloads for Optimal Performance</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/el-cross-promotion-the-art-of-collaborative-co-stars-for-2024/"><u>Channel Cross-Promotion The Art of Collaborative Co-Stars for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/dealing-with-browser-cache-errors-correcting-errcachemiss-on-google-chrome/"><u>Dealing with Browser Cache Errors: Correcting ERR_CACHE_MISS on Google Chrome</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-nokia-c02-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Nokia C02 Bootloader Easily</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/top-tier-action-cams-for-sports-enthusiasts/"><u>Top-Tier Action Cams for Sports Enthusiasts</u></a></li>
 </ul></div>
 

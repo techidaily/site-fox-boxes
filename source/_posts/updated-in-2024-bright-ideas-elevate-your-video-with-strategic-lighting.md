@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Bright Ideas  Elevate Your Video with Strategic Lighting\""
-date: 2024-09-11T07:08:13.423Z
-updated: 2024-09-12T07:08:13.423Z
+date: 2024-10-31T16:16:36.690Z
+updated: 2024-11-07T17:10:22.061Z
 tags: 
   - screen-recording
   - ai video
@@ -21,26 +21,6 @@ thumbnail: https://thmb.techidaily.com/01a181b2c169140bb50e16f105fae6a9a347e6262
 Many people are wondering how to set up lighting for video shooting. While there are many different ways to set up lighting, some methods are more effective than others.
 
 Therefore, this article will give you a complete guide on how to set up your lighting to make your videos stand out.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Part 1\. How-to Guide
 
@@ -68,45 +48,11 @@ For this tutorial, we will use the Three-Point Lighting technique:
 
 ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
 ##### Step2 Set the Fill Light
 
 ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
 
@@ -122,43 +68,9 @@ Practical lights appear on the camera to add some visual flair. It can be any li
 
 ![use practical lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-4.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
 
 ![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
 
@@ -180,19 +92,12 @@ We usually set the lights around 50% brightness and a color temperature of 5600K
 
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Summary
 
@@ -226,4 +131,23 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-a-compreayer-study-of-magix-image-suite/"><u>[New] 2024 Approved A Compreayer Study of MAGIX Image Suite</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-mac-mavericks-blueprint-for-crafting-captivating-youtube-content/"><u>[New] 2024 Approved Mac Mavericks' Blueprint for Crafting Captivating YouTube Content</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-asmr-and-you-understanding-its-healing-power-for-2024/"><u>[New] ASMR and You Understanding Its Healing Power for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-correcting-failed-video-delivery-on-mobile-platforms-social-network-apps/"><u>[New] Correcting Failed Video Delivery on Mobile Platform's Social Network Apps</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-exploring-2023s-standout-professional-360cameras/"><u>[New] Exploring 2023'S Standout Professional 360°Cameras</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-shutters-symphony-top-techniques-for-exquisite-images/"><u>[New] In 2024, The Shutter's Symphony Top Techniques for Exquisite Images</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-premier-virtual-marketplaces-the-10-cutest-wrapped-delights/"><u>[New] Premier Virtual Marketplaces The 10 Cutest Wrapped Delights</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-start-streaming-with-ease-instagram-live-tips/"><u>[Updated] 2024 Approved Start Streaming with Ease Instagram Live Tips</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-from-idea-to-implementation-guiding-vendors-in-youtube-sponsorships-for-2024/"><u>[Updated] From Idea to Implementation Guiding Vendors in Youtube Sponsorships for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-visualediting-deep-dive-comprehensive-article-on-androvid/"><u>[Updated] In 2024, VisualEditing Deep Dive – Comprehensive Article on AndroVid</u></a></li>
+<li><a href="https://windows11.techidaily.com/elevating-device-protection-prolonging-windows-11-pin-code/"><u>Elevating Device Protection: Prolonging Windows 11 Pin Code</u></a></li>
+<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-infinix-smart-8-pro-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Infinix Smart 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/guidelines-receiving-iphone-assistance-via-apples-support-application/"><u>Guidelines: Receiving iPhone Assistance via Apple's Support Application</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-asus-rog-phone-8-pro-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Asus ROG Phone 8 Pro Phones? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-tune-tastic-transfers-find-your-favorite-youtube-songs-with-top-6-free-android-apps/"><u>In 2024, Tune-Tastic Transfers Find Your Favorite Youtube Songs with Top 6 Free Android Apps</u></a></li>
+<li><a href="https://change-location.techidaily.com/list-of-pokemon-go-joysticks-on-vivo-v29e-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Vivo V29e | Dr.fone</u></a></li>
+</ul></div>
 

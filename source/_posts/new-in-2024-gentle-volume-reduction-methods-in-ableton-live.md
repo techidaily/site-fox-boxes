@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Gentle Volume Reduction Methods in Ableton Live"
-date: 2024-10-31T20:44:32.811Z
-updated: 2024-11-01T17:25:34.965Z
+date: 2024-11-05T17:26:23.739Z
+updated: 2024-11-07T16:39:05.108Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,10 @@ To avoid any clicks, turn on Create Fades on Clip Edges in the Record/Warp/Launc
 ![create fades warp fades](https://images.wondershare.com/filmora/article-images/2022/08/create-fades-warp-fades.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You must disable the automated mode in order to alter the clip fades. You may accomplish this by doing the following:
@@ -49,19 +49,19 @@ You must disable the automated mode in order to alter the clip fades. You may ac
 ![disable automated mode ableton](https://images.wondershare.com/filmora/article-images/2022/08/disable-automated-mode-ableton.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The fade-in and fade-out handles should display when you hover the mouse icon over the audio clip you want to fade. In case, if they don't, hit 'A' on your keyboard to make them appear. Then, you hold down the mouse button while left-clicking on the handle you wish to fade and lowering the fader.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Way 2\. Using the MIDI Track
@@ -70,6 +70,13 @@ In the method 2, you can use it on MIDI track. It will load the Utility effect t
 Live's ability to easily clean up the beginning and conclusion of audio samples has long been one of its strengths. Simply hit A and hover over the clip to check sure Automation Mode isn't turned on. There are two handles you may drag on the left and right, as well as two curve adjusters:
 
 ![midi track ableton](https://images.wondershare.com/filmora/article-images/2022/08/midi-track-ableton.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2\. Alternative way to Fade Audio without Ableton
 
@@ -97,31 +104,24 @@ Following the import of your media files into Filmora, you must drag the files o
 
 ![open up audio editor of filmora](https://images.wondershare.com/filmora/guide/adjust-video-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step4Fade-in/Fade-out Audio
 
 The primary step in this respect is how to begin fading-in/fading-out your audio files using Filmora, which is presented here. The nicest feature of the Filmora is how easy you can use these methods from the timeline. To do so, center your attention on your audio file inside the timeline; after you've chosen it, the two icons will appear above the audio file. Drag the first one to the length you want to conduct the audio fade-in option, as shown:
 
 ![fade in or fade out audio](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step5Edit and Export Your Video/Sound
 
 Filmora features a built-in video editing toolbox in addition to an audio editor. Within the app, you may use editing methods ranging from simple to advanced. Simply click on the video file inside the timeline as shown below to choose the basic editor:
 
 ![edit and export your video sound](https://images.wondershare.com/filmora/guide/get-started-with-filmora-05.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 On that note, if you are happy with how your voice has changed, right now could be the greatest moment to preserve it or perhaps record it. All popular video and audio formats, including MP3, are supported. To do this, click "Export" and choose "File Format." Select the necessary configuration from the rundown by clicking the Format button. The specific document will be saved to the specified directory on a computer.
 
@@ -136,10 +136,10 @@ For budding music producers and performers, the Ableton Live Lite edition's free
 We can create Fade in or Fade Out, which induce a progressive rise or drop in loudness, using audio clips. The little white squares at each corner of the clip allow you to adjust these two settings. The Fade In, which can be found at the start of each clip, enables a progressive rise in loudness. For this, we will drag a corner of a clip that is directly next to another clip to the clip we want.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Why can't I fade in Ableton?
@@ -162,13 +162,6 @@ We'll walk you through the process of utilizing this platform for audio fade-in/
 
 ![launch and import audios in filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step3Open up Audio Editor of Filmora
 
 Following the import of your media files into Filmora, you must drag the files onto the program's timeline. Your media files may be edited using all available methods in the timeline. Simply right-click on the particular audio file and choose "Edit Audio" from the list to use Filmora's audio editor as seen below.
@@ -176,10 +169,10 @@ Following the import of your media files into Filmora, you must drag the files o
 ![open up audio editor of filmora](https://images.wondershare.com/filmora/guide/adjust-video-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step4Fade-in/Fade-out Audio
@@ -195,6 +188,13 @@ Filmora features a built-in video editing toolbox in addition to an audio editor
 ![edit and export your video sound](https://images.wondershare.com/filmora/guide/get-started-with-filmora-05.png)
 
 On that note, if you are happy with how your voice has changed, right now could be the greatest moment to preserve it or perhaps record it. All popular video and audio formats, including MP3, are supported. To do this, click "Export" and choose "File Format." Select the necessary configuration from the rundown by clicking the Format button. The specific document will be saved to the specified directory on a computer.
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3\. Related FAQs
 
@@ -238,17 +238,24 @@ In essence, Ableton just refuses to display fades on certain songs. Fades won't 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-content-creation-hacks-for-rapid-youtubers-growth-for-2024/"><u>[New] Content Creation Hacks for Rapid Youtubers' Growth for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-subject-shine-clearing-backdrop-in-photos/"><u>[New] In 2024, Subject Shine Clearing Backdrop in Photos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-list-of-the-top-software-for-audio-speed-changing-mobile-and-desktop/"><u>[New] List of the Top Software for Audio Speed Changing (Mobile and Desktop)</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-perfect-harmony-in-canvas-cropping-adding-music-to-video-for-2024/"><u>[New] Perfect Harmony in Canvas Cropping, Adding Music to Video for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-prime-alternatives-the-best-online-learning-platforms-without-udemy/"><u>[New] Prime Alternatives The Best Online Learning Platforms without Udemy</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-audience-allure-3-ultimate-video-growth-methods/"><u>[Updated] 2024 Approved Audience Allure 3 Ultimate Video Growth Methods</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-ultimate-training-harnessing-the-power-of-adobe-captivates-screen-record-feature/"><u>[Updated] 2024 Approved Ultimate Training Harnessing the Power of Adobe Captivate's Screen Record Feature</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-premiere-edition-selective-sierra-video-editors/"><u>[Updated] Premiere Edition Selective Sierra Video Editors</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-samsung-galaxy-z-fold-5-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Samsung Galaxy Z Fold 5 | Dr.fone</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/essential-mac-hard-disk-structuring-techniques/"><u>Essential Mac Hard Disk Structuring Techniques</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/essential-safety-strategies-avoid-scams-while-e-shopping-with-malwarefox/"><u>Essential Safety Strategies: Avoid Scams While E-Shopping with MalwareFox</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/in-2024-find-my-app-troubleshooting-no-location-found-vs-location-not-available-and-how-to-fix-them-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Find My App Troubleshooting No Location Found vs. Location Not Available & How to Fix Them On Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-counteract-fake-views-boosting-genuine-audience-size-for-2024/"><u>[New] Counteract Fake Views Boosting Genuine Audience Size for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-efficiently-priced-flight-machines-affordable-drones-list-for-2024/"><u>[New] Efficiently Priced Flight Machines Affordable Drones List for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-dawn-of-augmented-reality-microsofts-hololens-review/"><u>[New] The Dawn of Augmented Reality – Microsoft's HoloLens Review</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-the-path-to-larger-video-presentation-in-youtube/"><u>[New] The Path to Larger Video Presentation in YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/eb-development-hacks-embedding-youtubes-playlists-effortlessly/"><u>[New] Web Development Hacks Embedding YouTube's Playlists Effortlessly</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-the-premier-monitors-top-5-for-ps5-and-xbox-players/"><u>[Updated] 2024 Approved The Premier Monitors Top 5 for PS5 & Xbox Players</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-the-ultimate-youtube-to-mp4-blueprint/"><u>[Updated] 2024 Approved The Ultimate YouTube to MP4 Blueprint</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-coders-showdown-which-codec-will-dominate-video-quality-for-2024/"><u>[Updated] Coders' Showdown Which Codec Will Dominate Video Quality for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-essential-5-platforms-beyond-twitter/"><u>[Updated] Essential 5 Platforms Beyond Twitter</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-boost-viewers-interaction-via-youtube-cards/"><u>[Updated] In 2024, Boost Viewers Interaction via YouTube Cards</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-illuminating-photography-with-dynamic-mosaic-creations/"><u>[Updated] In 2024, Illuminating Photography with Dynamic Mosaic Creations</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-subtitle-extraction-from-zip-archives-the-srt-solution/"><u>[Updated] Subtitle Extraction From ZIP Archives – The Srt Solution</u></a></li>
+<li><a href="https://common-error.techidaily.com/computers-drowsy-defiance-sleep-mode-stalemate/"><u>Computer’s Drowsy Defiance - Sleep Mode Stalemate</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-get-out-of-recovery-on-iphone-7-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Get Out of Recovery on iPhone 7 Plus? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-are-apples-new-processors-revolutionizing-editing-tech/"><u>In 2024, Are Apple's New Processors Revolutionizing Editing Tech?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Samsung Galaxy A05 | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-this-years-most-engrossing-channel-list-youtube-storytellers/"><u>In 2024, This Year’s Most Engrossing Channel List YouTube Storytellers</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-logitech-mk710-mouse-software-free-download-and-installation-steps/"><u>Latest Logitech MK710 Mouse Software - Free Download & Installation Steps</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/transform-your-love-game-top-tips-for-irresistible-tinder-profiles/"><u>Transform Your Love Game Top Tips for Irresistible Tinder Profiles</u></a></li>
 </ul></div>
 

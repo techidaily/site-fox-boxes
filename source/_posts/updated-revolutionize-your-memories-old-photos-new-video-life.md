@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Revolutionize Your Memories  Old Photos, New Video Life\""
-date: 2024-10-26T16:43:58.860Z
-updated: 2024-11-01T16:34:20.625Z
+date: 2024-10-31T17:29:42.276Z
+updated: 2024-11-07T16:20:08.103Z
 tags: 
   - screen-recording
   - ai video
@@ -97,18 +97,18 @@ Once you have imported your photos, you can include them in the timeline. To do 
 
 ![create timeline for photos ](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 3\. Edit the video
 
 Just above the timeline, you can find all kinds of tools to edit your video. For instance, you can crop your photos, split the video, delete pictures, correct their coloring, and so on. To explore more options, you can click on the edit icon here.
 
 ![Edit Digitized Photos ](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The edit option will present tons of additional features that you can implement on the video. Here, you can go to the “Motion” feature to get different transitions for your photos. This will let you select how any photo would appear in the video collage.
 
@@ -119,10 +119,10 @@ As stated above, you can find a wide range of video editing options to explore i
 ![Add Effects to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-effects-to-old-photo-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 To add text to your videos, just go to the “Titles” option here. This will let you select a text effect, letting you add the content of your choice.
@@ -133,6 +133,13 @@ Besides that, you can also add a track to the video by visiting the “Audio” 
 
 ![Add Audio to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 5\. Export your video
 
 That’s it! After making all the changes, you can preview your video on the right side. If you are satisfied with the results, then click on the “Export” button from the top. This will open a dedicated window, letting you select a preferred format to export your file. You can also select a resolution for your video to adjust its size as well.
@@ -140,16 +147,16 @@ That’s it! After making all the changes, you can preview your video on the rig
 ![Export Book Trailer File](https://images.wondershare.com/filmora/article-images/book-trailer-export-file.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Find more fancy ways to make the best photo and video slideshow with Filmora!
@@ -186,13 +193,6 @@ There you go! I’m sure that after reading this guide, you would be able to dig
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -218,20 +218,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-the-ultimate-checklist-for-successful-onestream-live-streaming/"><u>[New] 2024 Approved The Ultimate Checklist for Successful OneStream Live Streaming</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-top-tip-how-to-create-a-quick-and-easy-google-collage-photo/"><u>[New] In 2024, Top Tip How to Create a Quick and Easy Google Collage Photo</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-space-saver-strategies-pioneering-the-best-cloud-platforms/"><u>[New] Space-Saver Strategies Pioneering the Best Cloud Platforms</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-the-evolution-of-audio-liberation-pazeras-advanced-techniques-2e-for-2024/"><u>[New] The Evolution of Audio Liberation Pazera's Advanced Techniques (2E) for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-virtual-playground-the-ultimate-samsung-gear-vr-list-for-2024/"><u>[New] Virtual Playground The Ultimate Samsung Gear VR List for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-beat-hunters-delight-accessible-online-scanners-for-2024/"><u>[Updated] Beat Hunters Delight Accessible Online Scanners for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-faithful-chimes-how-to-personalize-them/"><u>[Updated] Faithful Chimes - How to Personalize Them</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-exploring-charms-galore-uncover-top-7-tiktok-emojis-and-their-covert-counterparts/"><u>[Updated] In 2024, Exploring Charms Galore – Uncover Top 7 TikTok Emojis & Their Covert Counterparts</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-top-low-cost-4k-recording-options/"><u>[Updated] Top Low-Cost 4K Recording Options</u></a></li>
-<li><a href="https://win-dash.techidaily.com/easy-steps-to-resolve-common-problems-with-i2c-human-interface-device-drivers/"><u>Easy Steps to Resolve Common Problems with I2C Human Interface Device Drivers</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/exclusive-ipad-savings-premium-deals-launched-today/"><u>Exclusive iPad Savings: Premium Deals Launched Today</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Infinix Hot 40 Pro | Dr.fone</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-adobe-after-effects-sound-design-incorporating-audio-into-your-animations/"><u>New 2024 Approved Adobe After Effects Sound Design Incorporating Audio Into Your Animations</u></a></li>
-<li><a href="https://fox-where.techidaily.com/step-by-step-tutorial-how-to-convert-and-save-music-files-in-different-codes-mp3-wav-from-qobuz-library/"><u>Step-by-Step Tutorial: How to Convert and Save Music Files in Different Codes (MP3, WAV) From Qobuz Library</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/understanding-the-distinct-functionalities-siri-vs-chatgpt-unveiled/"><u>Understanding the Distinct Functionalities: Siri Vs. ChatGPT Unveiled</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-comprehensive-analysis-of-syma-x5c-best-starter-drone-pick/"><u>[New] Comprehensive Analysis of Syma X5C Best Starter Drone Pick</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-nextgen-video-upscaler-mobiledesktop-edition-for-2024/"><u>[New] NextGen Video Upscaler Mobile/Desktop Edition for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-rotating-iphone-photos-for-perfect-angles-for-2024/"><u>[Updated] Rotating iPhone Photos for Perfect Angles for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-ultimate-platform-showdown-podcast-vs-youtube-for-2024/"><u>[Updated] The Ultimate Platform Showdown Podcast vs YouTube for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-unlocking-potential-top-tactics-for-medical-ads-on-social-networks-for-2024/"><u>[Updated] Unlocking Potential Top Tactics for Medical Ads on Social Networks for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-unveiling-the-simplest-tone-adjustments-in-pubg/"><u>[Updated] Unveiling the Simplest Tone Adjustments in PUBG</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-electorate-engagement-experience-top-gaming-selections/"><u>2024 Approved Electorate Engagement Experience Top Gaming Selections</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-best-hash-tracking-apps-a-comprehensive-review-fbtwitterinsta/"><u>2024 Approved The Best Hash Tracking Apps A Comprehensive Review (FB/Twitter/Insta)</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change Location on TikTok to See More Content On your Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-insider-advice-efficiently-amassing-stock-visuals-for-use/"><u>In 2024, Insider Advice Efficiently Amassing Stock Visuals for Use</u></a></li>
+<li><a href="https://fox-access.techidaily.com/lightweight-travel-bags-with-camera-integration-for-2024/"><u>Lightweight Travel Bags with Camera Integration for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932852-9781855844599-our-experiences-during-the-night-and-the-life-after-death/"><u>Our Experiences During The Night and The Life After Death | Free Book</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/precision-in-podcast-promotion-timelines-for-2024/"><u>Precision in Podcast Promotion Timelines for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/snapcutxp-review-complete-evaluation-of-video-editing-software-for-2024/"><u>SnapCutXp Review – Complete Evaluation of Video Editing Software for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/watch-deleted-youtube-secrets-to-accessing-lost-content-for-2024/"><u>Watch Deleted YouTube Secrets to Accessing Lost Content for 2024</u></a></li>
 </ul></div>
 

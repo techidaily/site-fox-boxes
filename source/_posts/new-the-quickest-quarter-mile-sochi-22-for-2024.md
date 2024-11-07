@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Quickest Quarter Mile - Sochi '22 for 2024\""
-date: 2024-10-28T22:17:07.502Z
-updated: 2024-11-01T18:22:31.007Z
+date: 2024-11-04T16:32:35.713Z
+updated: 2024-11-07T16:43:25.338Z
 tags: 
   - screen-recording
   - ai video
@@ -29,13 +29,6 @@ Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with contr
 
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1\. Introduce some highlights in short track speed skating with images
 
 Here are the main highlights of 1500 meter short track speed skating held at the Capital Indoor Stadium in Beijing on Wednesday.
@@ -45,16 +38,10 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Canada’s Steven Dubois wins the silver medal.
@@ -65,52 +52,46 @@ Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
 
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
 
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -143,6 +124,13 @@ For macOS 10.12 or later
 Step 1: Download and install Filmora on your computer. Launch the application and click on New Project.
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
 
@@ -177,19 +165,16 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-harmony-creations-synopsis-studio-25-examination-2-habits/"><u>[New] Harmony Creations Synopsis Studio 25 Examination, 2 Habits</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-razers-kiyo-webcam-complete-overview/"><u>[New] Razer's Kiyo Webcam - Complete Overview</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-maximize-your-snapshots-on-android/"><u>[Updated] In 2024, Maximize Your Snapshots on Android</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-integrating-comfort-with-efficiency-modern-approaches-to-office-design-for-2024/"><u>[Updated] Integrating Comfort with Efficiency Modern Approaches to Office Design for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-scaling-movies-on-a-mac-for-impeccable-instagram-shares-for-2024/"><u>[Updated] Scaling Movies on a Mac for Impeccable Instagram Shares for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/flipping-photo-hues-a-step-by-step-guide-for-2024/"><u>Flipping Photo Hues A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/guardianship-against-oculus-induced-discomfort-for-2024/"><u>Guardianship Against Oculus-Induced Discomfort for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-integrating-aesthetic-enhancements-into-windows-photos-audio-plus-visuals/"><u>In 2024, Integrating Aesthetic Enhancements Into Windows Photos Audio + Visuals</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/iphone-se-backup-password-never-set-but-still-asking-heres-the-fix-drfone-by-drfone-ios/"><u>iPhone SE Backup Password Never Set But Still Asking? Heres the Fix | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/iphone-techniques-for-full-sphere-videography/"><u>IPhone Techniques for Full-Sphere Videography</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210974364-9781088251928-la-intrusa/"><u>La Intrusa | Free Book</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/melding-images-and-songs-into-screens/"><u>Melding Images and Songs Into Screens</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/onlineskiftet-gratis-transformer-til-mp4-med-movavi-video-konverter/"><u>Onlineskiftet Gratis - Transformér Til MP4 Med Movavi Video Konverter</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/the-rise-of-evs-unveiling-the-essence-behind-electrifying-transportation/"><u>The Rise of EVs: Unveiling the Essence Behind Electrifying Transportation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-adjusting-story-video-playback-rate-on-instagram/"><u>[New] Adjusting Story Video Playback Rate on Instagram</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-comprehensive-guide-to-top-ae-extensions/"><u>[New] Comprehensive Guide to Top AE Extensions</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-pro-tips-for-shooting-quality-gopro-time-lapse-videos/"><u>[New] In 2024, Pro Tips for Shooting Quality GoPro Time-Lapse Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-streamed-audiovideo-crafts-meetup/"><u>[New] In 2024, Streamed Audio/Video Crafts Meetup</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-recording-wizardry-5-tactics-for-windows-enthusiasts/"><u>[New] Recording Wizardry 5 Tactics for Windows Enthusiasts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-sci-fis-virtual-cosmos-the-most-innovative-movies-of-the-metaverse-era/"><u>[Updated] 2024 Approved Sci-Fi's Virtual Cosmos The Most Innovative Movies of the Metaverse Era</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-mastering-video-visibility-settings-on-youtube/"><u>[Updated] Mastering Video Visibility Settings on YouTube</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-unlocking-creative-potential-on-tiktok-through-voiceovers/"><u>2024 Approved Unlocking Creative Potential on TikTok Through Voiceovers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/gratuita-e-facil-como-transformar-seu-swf-em-um-video-do-quicktime-com-mov-online/"><u>Gratuita E Fácil: Como Transformar Seu .SWF Em Um Vídeo Do QuickTime Com .MOV Online</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/optimal-room-decorations-for-livestreams/"><u>Optimal Room Decorations for Livestreams</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-samsung-galaxy-s24plus-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Samsung Galaxy S24+ to Gmail | Dr.fone</u></a></li>
 </ul></div>
 

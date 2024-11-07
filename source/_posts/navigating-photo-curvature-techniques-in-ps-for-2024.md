@@ -1,7 +1,7 @@
 ---
 title: "Navigating Photo Curvature Techniques in PS for 2024"
-date: 2024-09-11T07:08:16.688Z
-updated: 2024-09-12T07:08:16.688Z
+date: 2024-11-03T16:04:21.401Z
+updated: 2024-11-07T17:33:20.190Z
 tags: 
   - screen-recording
   - ai video
@@ -46,79 +46,17 @@ Play around with the settings in the options bar. There are quite a few differen
 
 ![change image height photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-image-height-photoshop.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 20% **Horizontal Distortion** makes one side of the image appear larger than the other. This is what my photo looks like at 20%.
 
 ![change horizontal distortion photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-horizontal-distortion-photoshop.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 **Vertical Distortion** makes the image look as if it's leaning backward.
 
 ![verticle distortion image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/verticle-distortion-image-photoshop.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 The **Bend Direction** option rotates the angle of the bend.
 
 ![bend direction image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/bend-direction-image-photoshop.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Flip any of these effects in the opposite direction by placing a negative sign in front of the percentage. Here's -20% in the **Bend** box with a vertical bend.
 
@@ -130,33 +68,12 @@ Once you're happy with the way your image looks, go to File > Save As in the men
 
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Conclusion
 
@@ -190,4 +107,18 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-superb-alter-ego-voice-tools-for-aspiring-vtubers/"><u>[New] 2024 Approved Superb Alter-Ego Voice Tools For Aspiring VTubers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-exploring-hidden-gems-secrets-on-locating-superb-insta-ringtunes-and-creating-noteworthy-chimes/"><u>[New] In 2024, Exploring Hidden Gems Secrets on Locating Superb Insta-Ringtunes & Creating Noteworthy Chimes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-advanced-techniques-for-title-artistry-in-adobe-ae/"><u>[Updated] Advanced Techniques for Title Artistry in Adobe AE</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-gopro-versions-unveiled-an-analytical-review/"><u>[Updated] Gopro Versions Unveiled An Analytical Review</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-delving-into-youtubes-complex-calculation-of-viewer-stats/"><u>[Updated] In 2024, Delving Into YouTube's Complex Calculation of Viewer Stats</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-smooth-file-migration-to-computer-5-proven-techniques/"><u>[Updated] Smooth File Migration to Computer – 5 Proven Techniques</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-the-seamless-media-magic-turning-xml-ssa-into-dynamic-srts/"><u>[Updated] The Seamless Media Magic Turning XML, SSA Into Dynamic SRTs</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/decoding-tech-ageism-how-apple-defines-vintage-and-obsolete-devices-insights/"><u>Decoding Tech Ageism: How Apple Defines Vintage and Obsolete Devices | Insights</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-filmora-edits-explained-addressing-common-concerns-and-questions/"><u>In 2024, Filmora Edits Explained Addressing Common Concerns and Questions</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-top-full-screen-recorders-uncovered-a-compreayers-picks/"><u>In 2024, Top Full-Screen Recorders Uncovered A Compreayer's Picks</u></a></li>
+</ul></div>
 

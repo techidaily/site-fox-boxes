@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Spotlight Strategies  Brightening Your Visual Narrative\""
-date: 2024-09-11T07:08:12.242Z
-updated: 2024-09-12T07:08:12.242Z
+date: 2024-11-01T17:32:19.354Z
+updated: 2024-11-07T16:48:41.519Z
 tags: 
   - screen-recording
   - ai video
@@ -48,39 +48,11 @@ For this tutorial, we will use the Three-Point Lighting technique:
 
 ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
 ##### Step2 Set the Fill Light
 
 ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
 
@@ -96,37 +68,9 @@ Practical lights appear on the camera to add some visual flair. It can be any li
 
 ![use practical lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-4.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
 
 ![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
 
@@ -138,20 +82,6 @@ After setting up all the lighting above, you can take a look at the comparison b
 
 ![using key light only](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-7.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 **Using Key Light + Fill + Backlight**
 
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
@@ -162,19 +92,12 @@ We usually set the lights around 50% brightness and a color temperature of 5600K
 
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Summary
 
@@ -208,4 +131,22 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-how-to-block-spotifys-unrequested-podcast-episodes/"><u>[New] 2024 Approved How to Block Spotify's Unrequested Podcast Episodes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-shutterbug-secrets-iphone-night-photography/"><u>[New] In 2024, Shutterbug Secrets IPhone Night Photography</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-expert-insights-adjusting-tempo-for-optimal-snapchat-viewing/"><u>[Updated] 2024 Approved Expert Insights Adjusting Tempo for Optimal Snapchat Viewing</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-decoding-excellence-a-hdr-camera-buyers-almanac/"><u>[Updated] Decoding Excellence A HDR Camera Buyer's Almanac</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-luminous-language-the-secret-of-dynamic-story-titles/"><u>[Updated] In 2024, Luminous Language The Secret of Dynamic Story Titles</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-recipe-for-success-video-styling-in-gastronomy-for-2024/"><u>[Updated] Recipe for Success Video Styling in Gastronomy for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-six-innovative-approaches-for-recording-and-storing-mov-files-on-windows-11-for-2024/"><u>[Updated] Six Innovative Approaches for Recording and Storing MOV Files on Windows 11 for 2024</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/amv-file-transformation-guide-convert-to-mp4-without-cost-using-top-rated-software-solutions/"><u>AMV File Transformation Guide - Convert to MP4 Without Cost Using Top-Rated Software Solutions</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/confronting-the-unusual-windows-pink-flash-error/"><u>Confronting the Unusual WINDOWS Pink Flash Error</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/exploring-vivacut-the-full-2024-video-editing-review/"><u>Exploring VivaCut The Full 2024 Video Editing Review</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Tecno Camon 30 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/laughlineup-app-become-a-master-at-memes/"><u>LaughLineup App - Become a Master at Memes</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/master-your-pc-builds-with-toms-hardware-essentials/"><u>Master Your PC Builds with Tom's Hardware Essentials</u></a></li>
+<li><a href="https://discover-community.techidaily.com/resolve-your-xcopy-problems-secure-full-file-copy-operations-in-windows-781eb/"><u>Resolve Your XCopy Problems - Secure Full-File Copy Operations in Windows 7/8/1Eb</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-the-best-free-video-surveillance-software-a-comprehensive-guide/"><u>Updated 2024 Approved The Best Free Video Surveillance Software A Comprehensive Guide</u></a></li>
+</ul></div>
 
