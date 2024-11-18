@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Beginner’s Guide to Visual Storytelling  Key Shot Techniques\""
-date: 2024-11-03T16:40:57.371Z
-updated: 2024-11-07T17:13:40.475Z
+date: 2024-11-10T17:02:53.756Z
+updated: 2024-11-17T23:18:10.205Z
 tags: 
   - screen-recording
   - ai video
@@ -58,6 +58,13 @@ With this type of [shot in the film](https://tools.techidaily.com/wondershare/fi
 
 ![Establishing Shot](https://images.wondershare.com/filmora/filmorapro/establishing-shot.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Extreme Long Shot
 
 This type of camera shot is taken from a long distance. This brings the audience an idea where the character belongs to regarding the time and the place.
@@ -67,10 +74,10 @@ You will also allow the audience to know the emotional relationship to the envir
 ![Extreme Long Shot](https://images.wondershare.com/filmora/filmorapro/extreme-long-shot.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Long Shot
@@ -80,13 +87,6 @@ Long shot or often known as the wide shot uses characters in the shot. Each char
 Also, the chief character or say the protagonist should have a major presence in the frame.
 
 Moreover, while using this type of camera shot, you must take care that it should be dominated by the scenery.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Full Shot
 
@@ -108,20 +108,6 @@ The purpose of this shot is to keep the character looking natural.
 
 ![Medium Shot](https://images.wondershare.com/filmora/filmorapro/medium-shot.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 6\. Close-Up shot
 
 The name brings a crystal clear image of the type of shot itself. With this shot, one brings out the character’s face thereby helping the audience to understand the emotional thoughts of the character.
@@ -129,13 +115,6 @@ The name brings a crystal clear image of the type of shot itself. With this shot
 This shot basically provides what you miss in the [medium shot](https://tools.techidaily.com/wondershare/filmora/download/). Bringing the character’s shot more detailing, for instance tear or the frowning so that the audience can anticipate what the character is feeling in that particular shot.
 
 ![Close-Up shot](https://images.wondershare.com/filmora/filmorapro/close-up-shot.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 7\. Extreme Close Up
 
@@ -146,10 +125,10 @@ This type of shot in films aims to fit the single feature on the entire screen. 
 **You may also like:** [10 Best Free Security Camera Software >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Shots Angles for Camera
@@ -161,21 +140,42 @@ These types of shots are taken keeping the camera exactly at the [human eye leve
 ![Eye Shots](https://images.wondershare.com/filmora/filmorapro/eye-shots.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 9\. High Shots
 
 High angled shots, unsurprisingly are recorded from the level above than the eye. Basically, this shot type is used to give the weak, unsafe or the terrified impact of the subject.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 10\. Low Shots
 
 Contrary to the above, this type of shot in the film is taken from the level below than the eye. And not to mention, low shots are used to give the heroic, risky or powerful impact to the subject.
 
 ![Low Shots](https://images.wondershare.com/filmora/filmorapro/low-shots.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 11\. Tilt shots
 
@@ -199,6 +199,13 @@ This shot typically cuts the screen into two or three or sometimes four parts.
 
 It is helpful when you have multiple things to be shown as important in one scene. It takes close-up of the thing that you want to show your viewer.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 14\. Master Shot
 
 A shot that is recorded from a single angle and is an uninterrupted shot to bring all the characters in view is referred to as the [master shot](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -216,13 +223,6 @@ The beauty of this type of shot is that the audience gets the picture of what’
 For example, looking through the binoculars and shooting only where the character is seeing.
 
 ![Point of View Shot](https://images.wondershare.com/filmora/filmorapro/point-of-view-shot.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -259,24 +259,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-exploring-ar-stickers-a-look-at-googles-offering-for-2024/"><u>[New] Exploring AR Stickers A Look at Google's Offering for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-green-canvas-essential-templates-to-enhance-your-cinematographic-journey-for-2024/"><u>[New] Green Canvas Essential Templates to Enhance Your Cinematographic Journey for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-10-game-changing-ways-for-designing-cover-art/"><u>[New] In 2024, 10 Game-Changing Ways for Designing Cover Art</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-peak-performances-in-oly-x-cross-2022/"><u>[New] In 2024, Peak Performances in Oly X-Cross 2022</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-rhythm-reconstructor-bundle/"><u>[New] In 2024, Rhythm Reconstructor Bundle</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-vr-on-the-go-smartphones-top-10-choices/"><u>[New] VR on the Go Smartphones' Top 10 Choices</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-deciphering-the-meaning-of-facebooks-blue-video-icon/"><u>[Updated] Deciphering the Meaning of Facebook's Blue Video Icon</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-elevate-photoshoots-select-your-ideal-background-viewer/"><u>[Updated] Elevate Photoshoots Select Your Ideal Background Viewer</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-expert-breakdown-of-adobe-cloud-plus-alternative-methods/"><u>[Updated] In 2024, Expert Breakdown of Adobe Cloud, Plus Alternative Methods</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-soundscape-adjustments-fading-volume-with-precision-in-logic-pro/"><u>[Updated] In 2024, Soundscape Adjustments Fading Volume with Precision in Logic Pro</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-instantaneous-methods-for-video-to-mp3-on-instagram/"><u>2024 Approved Instantaneous Methods for Video-to-MP3 on Instagram</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-mastering-audio-integration-in-adobe-premiere-pro/"><u>2024 Approved Mastering Audio Integration in Adobe Premiere Pro</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-enhancing-user-experience-with-personalized-data-tracking/"><u>Cookiebot-Enabled: Enhancing User Experience with Personalized Data Tracking</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/high-quality-power-units-for-gopro-hero5-genuine-sources-and-copycats/"><u>High-Quality Power Units for GoPro Hero5 Genuine Sources & Copycats</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-realme-c51-by-drfone-android/"><u>How to Bypass FRP on Realme C51?</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/official-driver-packs-for-hp-officejet-pro-nk-easily-installed-on-windows-systems/"><u>Official Driver Packs for HP Officejet Pro Nk, Easily Installed on Windows Systems</u></a></li>
-<li><a href="https://fox-info.techidaily.com/prime-5-filters-elevating-submerged-cinematography-for-2024/"><u>Prime 5 Filters Elevating Submerged Cinematography for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/sony-virtual-reality-headset-updates-anticipated-launch-date-pricing-and-specifications-insights/"><u>Sony Virtual Reality Headset Updates: Anticipated Launch Date, Pricing & Specifications Insights</u></a></li>
-<li><a href="https://win-hacks.techidaily.com/transferencia-de-datos-segura-con-clonacion-de-hdd-el-metodo-mas-fiable/"><u>Transferencia De Datos Segura Con Clonación De HDD: El Método Más Fiable</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-streamlining-meetings-on-win11-using-zoom-features/"><u>[New] 2024 Approved Streamlining Meetings on Win11 Using Zoom Features</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-visualize-vitality-vent-laughter-kapwings-design-suite/"><u>[New] 2024 Approved Visualize Vitality, Vent Laughter - Kapwing’s Design Suite</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-2023-quick-share-tweeted-videos-for-whatsapp/"><u>[New] In 2024, 2023 Quick Share Tweeted Videos for WhatsApp</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-meme-architectural-genius-top-picks/"><u>[New] In 2024, Meme Architectural Genius Top Picks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-surveying-the-lack-of-diversity-s-vr-realm/"><u>[New] In 2024, Surveying the Lack of Diversity 'S VR Realm</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-ultimate-blueprint-for-sourcing-top-tier-instagram-ringtones-and-crafting-standout-alarms/"><u>[New] In 2024, The Ultimate Blueprint for Sourcing Top-Tier Instagram Ringtones and Crafting Standout Alarms</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-time-saving-ways-to-log-vimeo-media/"><u>[New] In 2024, Time-Saving Ways to Log Vimeo Media</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-a-comprehensive-list-of-8-budget-friendly-srt-services-for-2024/"><u>[Updated] A Comprehensive List of 8 Budget-Friendly SRT Services for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-elevate-your-photos-learn-bg-removal-with-picsart-tools/"><u>[Updated] Elevate Your Photos Learn Bg Removal with Picsart Tools</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-vision-to-execution-the-full-spectrum-of-personal-branding-on-youtube-for-2024/"><u>[Updated] From Vision to Execution The Full Spectrum of Personal Branding on YouTube for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-select-8-dynamic-backgrounds-for-your-mbp-for-2024/"><u>[Updated] Select 8 Dynamic Backgrounds for Your MBP for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-top-tier-gaming-live-broadcast-tools/"><u>2024 Approved Top-Tier Gaming Live Broadcast Tools</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/download-vn-video-editor-for-mac-or-explore-alternative-options-for-2024/"><u>Download VN Video Editor for Mac or Explore Alternative Options for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/effective-strategies-to-address-missing-or-inaccessible-d3dx928dll-files/"><u>Effective Strategies to Address Missing or Inaccessible d3dx9_28.dll Files</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/full-insight-into-vsco-image-editing-for-2024/"><u>Full Insight Into VSCO Image Editing for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-motorola-edge-40-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change Motorola Edge 40 IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/innovative-approaches-to-harvest-large-amounts-of-tiktok-media-for-2024/"><u>Innovative Approaches to Harvest Large Amounts of TikTok Media for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Make a Mark with Minimal Fuss  Simplified Video Editing on Windows 10 for 2024\""
-date: 2024-11-04T16:05:42.841Z
-updated: 2024-11-07T16:38:46.840Z
+date: 2024-11-11T21:12:29.079Z
+updated: 2024-11-17T21:31:55.329Z
 tags: 
   - screen-recording
   - ai video
@@ -56,13 +56,6 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 
 **Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to trim video in Windows 10 with VLC
 
 Well, as we promised you in the beginning, it's time for the bonus tip! You have understood how to trim videos in Windows 10 Photos, let's explore VLC's magic. When Windows 10 Photos allows you basic level easy trimming for advanced features you can try [VLC](https://www.videolan.org/). For operating systems other than Windows, such as Fedora, Ubuntu, or Mac you won't be able to use Windows 10 Photos, so VLC is a good option for cross-platform video editing.
@@ -75,6 +68,13 @@ Here comes the step by step guide to trim video in VLC –
 
 ![trim videos in windows 10 using VLC](https://images.wondershare.com/filmora/article-images/vlc-trim-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Upon activation of the 'Advanced controls' option, four additional buttons appear over the VLC media player's play/pause button. Now, you got to add the video by 'Open File'. Well, you can also do that by dragging and dropping the video as well.
 2. Select the position from where you want to keep the video and hit the play and record button together.
 3. Now, tap the 'Record' button again where you want to stop the recording. This clip automatically gets saved as an MP4 media file. You can find it within the 'Libraries/Videos' folder if it's a Windows 7 PC.
@@ -82,10 +82,10 @@ Here comes the step by step guide to trim video in VLC –
 Note: You won't be trimmed by cutting the video here, rather recording the desired part using the inbuilt VLC decoder. Using the 'Frame by frame' button found under the 'Advanced control' section (the last button from the left) move to the exact frame you wish to begin your recording.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -95,19 +95,19 @@ From the above article, we found that **trimming video in VLC and Windows 10 Pho
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -135,22 +135,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-conquer-the-vr-world-your-first-vr-adventure/"><u>[New] Conquer the VR World Your First VR Adventure</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/onquering-cross-platform-content-sharing-youtubes-and-fbs-for-2024/"><u>[New] Conquering Cross-Platform Content Sharing YouTubes & FBs for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-building-powerful-relationships-through-strategic-social-media-engagement/"><u>[New] In 2024, Building Powerful Relationships Through Strategic Social Media Engagement</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-hdr-editing-essentials-for-pc-users/"><u>[New] In 2024, HDR Editing Essentials for PC Users</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-seamlessly-switch-from-gif-to-video-with-top-5-online-tools/"><u>[New] In 2024, Seamlessly Switch From GIF to Video with Top 5 Online Tools</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-laughlineup-app-become-a-master-at-memes/"><u>[New] LaughLineup App - Become a Master at Memes</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-simplify-information-storage-via-mematic-for-2024/"><u>[New] Simplify Information Storage via Mematic for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/nlocking-youtubes-potential-for-free-educational-events/"><u>[New] Unlocking YouTube's Potential for Free Educational Events</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-free-final-cut-pro-mastery-secrets-revealed/"><u>[Updated] 2024 Approved Free Final Cut Pro Mastery Secrets Revealed</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-expert-tips-zooming-in-on-videoleap-videos/"><u>[Updated] Expert Tips Zooming In on Videoleap Videos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-engaging-readers-with-strategic-reddit-sharing-techniques/"><u>[Updated] In 2024, Engaging Readers with Strategic Reddit Sharing Techniques</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-pioneering-techniques-for-popularizing-youtube-videos/"><u>[Updated] In 2024, Pioneering Techniques for Popularizing YouTube Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-visual-warmth-in-winter-selecting-the-best-bgs/"><u>[Updated] Visual Warmth in Winter Selecting the Best Bgs</u></a></li>
-<li><a href="https://discover-data.techidaily.com/1728495237301-cf/"><u>CFカードのフォーマット完了後に必要なデータ復元手順</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209868501-9780359361205-meditation-for-beginners/"><u>Meditation for Beginners | Free Book</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/online-anonymity-matters-explore-why-you-need-a-vpn-and-learn-about-its-working-process/"><u>Online Anonymity Matters: Explore Why You Need a VPN and Learn About Its Working Process</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/windows-11-laptop-now-using-latest-gpu-feature/"><u>Windows 11 Laptop Now Using Latest GPU Feature</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-vision-quest-does-coding-outshine-the-box/"><u>[New] 2024 Approved Vision Quest Does Coding Outshine the Box?</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-cutting-edge-approaches-to-virtual-reality-gaming-documentation/"><u>[New] Cutting-Edge Approaches to Virtual Reality Gaming Documentation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-how-to-zoom-in-on-minecraft-5-easy-ways/"><u>[New] In 2024, How to Zoom in on Minecraft [5 Easy Ways]</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-make-a-video-from-photo-with-music/"><u>[New] In 2024, Make a Video From Photo with Music</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-pioneering-6-networks-supporting-business-development-for-2024/"><u>[New] Pioneering 6 Networks Supporting Business Development for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-speedy-sonic-tuning-devices-index-pc-tablet-for-2024/"><u>[New] Speedy Sonic Tuning Devices Index (PC, Tablet) for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-ultimate-editing-playbook-for-breaking-into-viral-spots-on-tiktok/"><u>[Updated] 2024 Approved Ultimate Editing Playbook for Breaking Into Viral Spots on TikTok</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-elevating-the-drone-scene-with-top-10-hexa-flights/"><u>[Updated] In 2024, Elevating the Drone Scene with Top 10 Hexa-Flights</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-unveil-clarity-the-finest-10-online-editing-utilities-ranked/"><u>[Updated] In 2024, Unveil Clarity The Finest 10 Online Editing Utilities Ranked</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-substitutes-to-moviemaker-in-the-windows-realm/"><u>[Updated] Substitutes to MovieMaker in the Windows Realm</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-fundamentals-crafting-your-podcasts-rss-feed-for-2024/"><u>[Updated] The Fundamentals Crafting Your Podcast's RSS Feed for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-ultimate-guide-to-editbox-suite-reviewed/"><u>[Updated] Ultimate Guide to EditBox Suite, Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dive-deep-and-share-with-insta360-one-x2-waterproof-edition/"><u>Dive Deep & Share With Insta360 One X2 Waterproof Edition</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/free-to-download-star-performances-release-for-2024/"><u>Free-to-Download Star Performances Release for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-determine-if-robloxs-downtime-affects-everyone-or-just-your-connection/"><u>How to Determine if Roblox's Downtime Affects Everyone or Just Your Connection.</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-codec-clash-determining-the-leader-in-video-quality/"><u>In 2024, Codec Clash Determining the Leader in Video Quality</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-google-pixel-7a-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Google Pixel 7a Phone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/premier-selection-freepluspaid-iphone-cinema-apps-reviewed/"><u>Premier Selection FREE+Paid iPhone Cinema Apps Reviewed</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/transforming-song-words-into-visual-storytelling-with-lyric-video-maker/"><u>Transforming Song Words Into Visual Storytelling with Lyric Video Maker</u></a></li>
 </ul></div>
 

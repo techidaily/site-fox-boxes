@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Rethinking Windows Photo Viewer Usage on Modern OS\""
-date: 2024-11-05T17:24:10.443Z
-updated: 2024-11-07T16:37:15.845Z
+date: 2024-11-11T17:16:26.401Z
+updated: 2024-11-18T00:03:47.433Z
 tags: 
   - screen-recording
   - ai video
@@ -63,10 +63,16 @@ Here is why they want to restore Windows Photo Viewer –
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Method 1 to restore Windows Photo Viewer
@@ -77,9 +83,23 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -99,46 +119,20 @@ Here is the detailed guide –
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Conclusion
 
 From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -165,19 +159,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-cultivating-community-communication-tips-for-youtube-enthusiasts/"><u>[New] 2024 Approved Cultivating Community Communication Tips for YouTube Enthusiasts</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-hustle-humor-fast-track-funny-with-kapwing/"><u>[New] Hustle Humor Fast-Track Funny with Kapwing</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-secret-sauce-of-successful-pixlr-editing/"><u>[New] In 2024, The Secret Sauce of Successful Pixlr Editing</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-top-photo-protection-apps-reviewed/"><u>[New] In 2024, The Top Photo Protection Apps Reviewed</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-adding-panoramic-movement-a-camtasa-guide-to-ken-burns-for-2024/"><u>[Updated] Adding Panoramic Movement A Camtasa Guide to Ken Burns for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-comprehensive-guide-to-applying-and-customizing-filters-in-video-editing/"><u>[Updated] In 2024, Comprehensive Guide to Applying and Customizing Filters in Video Editing</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-the-essential-e-steps-your-pathway-from-preparation-to-production-in-a-reviews-channel-for-2024/"><u>[Updated] The Essential E-Steps Your Pathway From Preparation to Production in a Reviews Channel for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/easy-fixes-for-last-epoch-crashes-on-pcs-expert-advice-from-2e4/"><u>Easy Fixes for 'Last Epoch' Crashes on PCs - Expert Advice From 2E4</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-zte-blade-a73-5g-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best ZTE Blade A73 5G Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-fixing-your-iphones-backup-failure-issue/"><u>Step-by-Step Guide: Fixing Your iPhone's Backup Failure Issue</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/strategic-use-of-slug-lines-in-blogging/"><u>Strategic Use of Slug Lines in Blogging</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/telegrams-wonders-for-marketers-beginning-their-journey-for-2024/"><u>Telegram’s Wonders for Marketers Beginning Their Journey for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/the-art-of-blending-audio-and-visuals-in-a-trailer/"><u>The Art of Blending Audio and Visuals in a Trailer</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/unlocking-the-secrets-to-snagging-a-spotify-student-offer-a-step-by-step-guide/"><u>Unlocking the Secrets to Snagging a Spotify Student Offer: A Step-by-Step Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-how-to-make-looping-videos-for-instagram-4-effective-ways/"><u>[New] 2024 Approved How To Make Looping Videos For Instagram? [4 Effective Ways]</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-economical-choices-in-action-cinematography-for-2024/"><u>[New] Economical Choices in Action Cinematography for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-elite-collection-of-online-video-grabbers-and-savers-for-2024/"><u>[New] Elite Collection of Online Video Grabbers & Savers for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-unlocking-the-secret-to-a-streamlined-tiktok-bio-with-linktree-for-2024/"><u>[Updated] Unlocking the Secret to a Streamlined TikTok Bio with Linktree for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/expert-tips-to-correct-the-d3d9dll-file-not-detected-issue/"><u>Expert Tips to Correct the D3D9.DLL File Not Detected Issue</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/how-to-fix-the-apple-iphone-14-plus-gps-not-working-issue-drfone-by-drfone-virtual-ios/"><u>How to Fix the Apple iPhone 14 Plus GPS not Working Issue | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-cutting-edge-review-superior-text-plugins-for-adobe-ae/"><u>In 2024, Cutting-Edge Review Superior Text Plugins for Adobe AE</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-infusing-life-into-collage-a-photogenic-approach/"><u>In 2024, Infusing Life Into Collage A Photogenic Approach</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-key-pillars-top-6-social-platforms-benefiting-businesses/"><u>In 2024, Key Pillars Top 6 Social Platforms Benefiting Businesses</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-overlay-wizardry-on-your-windows-desktop/"><u>In 2024, Overlay Wizardry on Your Windows Desktop</u></a></li>
+<li><a href="https://win-able.techidaily.com/1722994186467-troubleshooting-the-fifa-21-failed-startup-problems-fixed/"><u>Troubleshooting the FIFA 21 Failed Startup Problems - Fixed</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-tips-how-to-prevent-thaumaturge-from-crashing-on-windowsmac/"><u>Troubleshooting Tips: How to Prevent Thaumaturge From Crashing on Windows/Mac</u></a></li>
 </ul></div>
 

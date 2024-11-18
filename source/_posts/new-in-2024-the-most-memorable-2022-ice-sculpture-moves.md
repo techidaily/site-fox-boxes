@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Most Memorable 2022 Ice Sculpture Moves"
-date: 2024-09-06T04:28:16.096Z
-updated: 2024-09-07T04:28:16.096Z
+date: 2024-11-14T21:51:25.868Z
+updated: 2024-11-17T18:28:19.380Z
 tags: 
   - screen-recording
   - ai video
@@ -34,22 +34,10 @@ Nathan Chen of the United States reacts to winning the gold medal at the 2022 Be
 
 ![nathan chen skating gold medal](https://images.wondershare.com/filmora/article-images/nathan-chen-skating-gold-medal.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United States. He receives a combined score of 310.05 points and wins the silver medal at the 2022 Beijing Winter Olympics.
 
 ![yuma kagiyama](https://images.wondershare.com/filmora/article-images/yuma-kagiyama.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shoma Uno of Japan won the bronze medal with a combined score of 293 points and he has become the second Japanese to win a medal at the 2022 Beijing Winter Olympics.
 
 ![shoma uno](https://images.wondershare.com/filmora/article-images/shoma-uno.jpg)
@@ -58,39 +46,22 @@ Nathan Chen successful triumph has been four years in the making and it is a per
 
 ![nathan chen best male skater](https://images.wondershare.com/filmora/article-images/nathan-chen-best-male-skater.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Even though Nathan Chen finished first for men's short program of the team event, United States could not hold to the first position and losing to ROC.
 
 ![russian olympic committee athletes](https://images.wondershare.com/filmora/article-images/russian-olympic-committee-athletes.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Russian Olympic Committee athletes won the gold medal at team event by a margin of 9 points with the combined score of 74\. United States won the silver medal with a combined score of 65 points.
 
 ![japan won the bronze medal](https://images.wondershare.com/filmora/article-images/japan-won-the-bronze-medal.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Japan won the bronze medal with 63 points falling short by 2 points 2 behind the United States. The figure skating competition is held at the Capital Indoor Stadium in Beijing.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2\. Create a Video for Showing the Highlights of Figure Skating
 
@@ -112,6 +83,13 @@ Step 1: Download and install Filmora. Launch Filmora and click on New Project.
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 2: Go to File > Project Settings and set the parameters as per your requirements.
 
 Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all the still photos and video footage clips you have collected about figure skating Olympics. You can trim them and maintain uniformity throughout.
@@ -119,16 +97,24 @@ Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all
 ![filmora edit videos](https://images.wondershare.com/filmora/article-images/edit-recordings-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Step 4: You need to add all imported media files to Video Timeline while you should add background music or voiceover to the Audio Timeline.
 
 Step 5: Select individual or multiple slides and add Transitions, Effects, Titles and Elements.
 
 Step 6: When everything is done, click on Export to save the video and share anywhere you want.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -151,4 +137,26 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-earnings-escalation-leveraging-your-youtube-channel-on-mobile-devices/"><u>[New] 2024 Approved Earnings Escalation Leveraging Your YouTube Channel on Mobile Devices</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-copyright-compliance-for-streaming-songs-on-instagram-for-2024/"><u>[New] Copyright Compliance for Streaming Songs on Instagram for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-10-masterpieces-in-job-market-insight/"><u>[New] In 2024, 10 Masterpieces in Job Market Insight</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-ultimate-list-7-indispensable-devices-in-the-metaverse/"><u>[New] In 2024, The Ultimate List 7 Indispensable Devices in the Metaverse</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-navigating-the-complexities-of-mac-and-mixer-streaming/"><u>[Updated] 2024 Approved Navigating the Complexities of MAC and Mixer Streaming</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-how-to-acquire-version-6-of-windows-movie-maker/"><u>[Updated] How to Acquire Version 6 of Windows Movie Maker</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-fast-track-converting-your-srt-files-to-text-format-today/"><u>[Updated] In 2024, Fast Track Converting Your SRT Files to Text Format Today</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-master-the-art-of-conducting-virtual-meetings-with-zoom-win10/"><u>[Updated] Master the Art of Conducting Virtual Meetings with Zoom (Win10)</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-reviewing-the-impression-of-high-dynamic-range-on-aurora-tv/"><u>[Updated] Reviewing the Impression of High Dynamic Range on Aurora TV</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-ultimate-tips-for-erasing-backgrounds-in-figma-design-for-2024/"><u>[Updated] Ultimate Tips for Erasing Backgrounds in Figma Design for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-visual-velocity-boost-your-digital-drawing-speed-in-pc-photos-editor-for-2024/"><u>[Updated] Visual Velocity Boost Your Digital Drawing Speed in PC Photos Editor for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-mastering-mayhem-and-mystery-the-essential-gaming-list-top-10/"><u>2024 Approved Mastering Mayhem & Mystery The Essential Gaming List (Top 10)</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-honor-magic-6-pro-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Honor Magic 6 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-elevate-voice-alteration-morphvox-inside-out/"><u>In 2024, Elevate Voice Alteration MorphVOX Inside Out</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Motorola Defy 2? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-how-to-access-your-facebook-recent-view-log/"><u>In 2024, How to Access Your Facebook Recent View Log</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/industry-shift-is-gpt-the-new-workforce-engine/"><u>Industry Shift: Is GPT the New Workforce Engine?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/navigating-gradual-audio-reduction-in-digital-studios/"><u>Navigating Gradual Audio Reduction in Digital Studios</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/step-by-step-guide-iphone-picture-perfection/"><u>Step-by-Step Guide IPhone Picture Perfection</u></a></li>
+</ul></div>
 

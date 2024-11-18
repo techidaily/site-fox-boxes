@@ -1,7 +1,7 @@
 ---
 title: "Innovative Question Collection for Lively Podcast Discussions"
-date: 2024-11-03T17:51:42.782Z
-updated: 2024-11-07T16:17:31.844Z
+date: 2024-11-12T17:28:34.174Z
+updated: 2024-11-17T17:26:05.545Z
 tags: 
   - screen-recording
   - ai video
@@ -35,24 +35,18 @@ The best podcast questions to ask guests differ according to your niche and the 
 
 The best way is to divide your questions into different categories.
 
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Great Icebreaker/Intro Questions
 
 Icebreaker questions are used to begin an interview or meeting. These are personal questions to learn more about one another quickly. For example, the prompt might be "share your name, role, and what you usually do during the weekend." These questions aim to have fun, create points of connection between guests, and build confidence in speaking in front of the group.
 
 ![icebreaker questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Here are some icebreaker questions that you can ask to start an interview.
 
@@ -67,18 +61,18 @@ Here are some icebreaker questions that you can ask to start an interview.
 9. What is one of your greatest challenges in life?
 10. How did you meet your spouse or partner?
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Leading Question
 
 A leading question suggests a particular answer to the question that the questioner desires. These questions mostly have a yes or no answer. However, if you extract your question from the answer just given by the guest of the podcast, it is also a leading question.
 
 ![leading questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Some leading questions that you can ask are discussed below.
 
@@ -98,18 +92,18 @@ Some leading questions that you can ask are discussed below.
 14. Can you give an example?
 15. What do you suggest to our audience who are facing the same problems?
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Comparison Questions
 
 In an interview, a comparison question is one where you ask a person what he prefers between these two things. This type of question can also advance the discussion of the topic. Besides, you can get a deeper understanding of what guests think and feel about this podcast episode.
 
 ![comparison questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You can ask questions from the comparison questions given below.
 
@@ -159,24 +153,24 @@ Asking better questions on a podcast requires preparation beforehand. Here are s
 
 You can get the best information from the person you are interviewing if you do the following:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Ask WHY?
 
 ![ask why](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 As an interviewer, "why" is your most powerful tool. Guests usually provide surface-level information or opinions. The follow-up question of "why" makes them go further and give deeper details. It will also help your audience understand correctly what the guest wants to say.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What happened next?
@@ -186,13 +180,6 @@ If your guest is overwhelmed by the emotions and has stopped before completing h
 ### What were your feelings when this happened?
 
 Sometimes you want the guest to answer your questions with feelings and emotions. Making your guest answer your questions while drenched in emotions can take your podcast to the next level. Questions like "What were your feelings when this happened?" can take the guest back to the past and make him answer your question with full emotions.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Mirror your guest
 
@@ -224,6 +211,19 @@ Avoiding asking wrong questions is as important as asking good questions. Some q
 ## Part 5\. Should I Send an Advance Interview Questions Podcast?
 
 Yes, you can send interview questions to guests. Therefore, they get time to prepare interesting responses. Also, they may think about their answers or type out lengthy responses. Either way, they'll feel more comfortable and help you make better content.
+
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Take Your Content to the Next Level and Gets Shared
 
@@ -261,24 +261,24 @@ Consider the following when picking which of the above questions to use on your 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-premier-funny-photo-tool-for-2024/"><u>[New] Premier Funny Photo Tool for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-from-two-dimensions-to-three-making-text-pop-in-photoshop/"><u>[Updated] 2024 Approved From Two-Dimensions to Three Making Text Pop in Photoshop</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-samsung-gear-360-vs-lg-360-cam-which-360-degree-camera-is-better/"><u>[Updated] 2024 Approved Samsung Gear 360 vs LG 360 Cam Which 360 Degree Camera Is Better</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-elevating-experience-with-the-right-music-for-vids-for-2024/"><u>[Updated] Elevating Experience with the Right Music for Vids for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-the-roadmap-to-thriving-in-twitter-live-broadcasts/"><u>[Updated] In 2024, The Roadmap to Thriving in Twitter Live Broadcasts</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-superior-video-cameras-previewed-for-2024/"><u>[Updated] Superior Video Cameras Previewed for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-virtualsonic-mix-mac-and-windows-for-2024/"><u>[Updated] VirtualSonic Mix Mac & Windows for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-frozen-delight-ice-cream-cam-and-comprehensive-tutorial/"><u>2024 Approved Frozen Delight Ice Cream Cam & Comprehensive Tutorial</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-navigating-google-chromes-picture-in-picture-feature/"><u>2024 Approved Navigating Google Chrome's Picture In Picture Feature</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/apple-iphone-se-backup-password-never-set-but-still-asking-heres-the-fix-drfone-by-drfone-ios/"><u>Apple iPhone SE Backup Password Never Set But Still Asking? Heres the Fix | Dr.fone</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/cutting-edge-techniques-for-gopro-users/"><u>Cutting-Edge Techniques for GoPro Users</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/exquisite-desktop-pcs-the-best-of-the-best/"><u>Exquisite Desktop PCs The Best of the Best</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-oppo-reno-11-5g-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Oppo Reno 11 5G Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Oppo A59 5G | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-infinix-note-30-5g-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Infinix Note 30 5G online without jailbreak</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-lone-earbud-problem-resolution-guide/"><u>In 2024, Lone Earbud Problem Resolution Guide</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-top-10-affordable-filmmaking-tools-for-indie-creators/"><u>New 2024 Approved Top 10 Affordable Filmmaking Tools for Indie Creators</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/step-by-step-tutorial-using-the-find-my-device-functionality-on-your-windows-11-pc-or-laptop/"><u>Step-by-Step Tutorial: Using the 'Find My Device' Functionality on Your Windows 11 PC or Laptop</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/the-complete-gopro-comparison-guide/"><u>The Complete Gopro Comparison Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-transform-your-typography-the-3d-text-technique-explained-psx/"><u>[New] 2024 Approved Transform Your Typography The 3D Text Technique Explained PSX</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-9-epic-live-gaming-stations-unlocked-for-2024/"><u>[New] 9 Epic Live Gaming Stations Unlocked for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-essential-ps3-simulators-for-windows-users-top-5/"><u>[New] In 2024, Essential PS3 Simulators for Windows Users (Top 5)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-streamline-your-watch-party-multi-video-views-made-easy/"><u>[New] In 2024, Streamline Your Watch Party Multi-Video Views Made Easy</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-preventing-unwanted-filming-in-quicktime-for-2024/"><u>[New] Preventing Unwanted Filming in QuickTime for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-fine-tuning-online-discussions-with-advanced-zooming-skills/"><u>[Updated] 2024 Approved Fine-Tuning Online Discussions with Advanced Zooming Skills</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-visionary-8-tools-transforming-gameplay/"><u>[Updated] In 2024, Visionary 8 Tools Transforming Gameplay</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-superior-20-anime-song-intros/"><u>[Updated] Superior 20 Anime Song Intros</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-ultimate-guide-to-enhancing-reels-with-harmonious-tunes-for-2024/"><u>[Updated] The Ultimate Guide to Enhancing Reels with Harmonious Tunes for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-standard-youtube-license-vs-creative-commons/"><u>2024 Approved Standard YouTube License Vs. Creative Commons</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/catch-every-detail-watching-the-latest-samsung-unveiling-online/"><u>Catch Every Detail: Watching the Latest Samsung Unveiling Online</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/crafting-memorable-tweets-using-ai-assistance/"><u>Crafting Memorable Tweets Using AI Assistance</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-do-you-unlock-your-iphone-xs-max-learn-all-4-methods-by-drfone-ios/"><u>How Do You Unlock your iPhone XS Max? Learn All 4 Methods</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-fake-gps-without-root-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Fake GPS Without Root On Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-achieve-sharp-footage-with-best-rated-camera-gimbals/"><u>In 2024, Achieve Sharp Footage with Best-Rated Camera Gimbals</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-capturing-clarity-iphone-low-light-techniques/"><u>In 2024, Capturing Clarity IPhone Low Light Techniques</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-turnback-a-twitch-broadcast-top-ten-approaches/"><u>In 2024, How to Turnback a Twitch Broadcast Top Ten Approaches</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-top-tier-psd-drop-shadows/"><u>In 2024, Top-Tier PSD Drop Shadows</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-guide-to-fixing-the-0x800f081f-issue-during-net-framework-35-installation/"><u>Step-by-Step Guide to Fixing the '0X800F081F' Issue During .NET Framework 3.5 Installation</u></a></li>
 </ul></div>
 

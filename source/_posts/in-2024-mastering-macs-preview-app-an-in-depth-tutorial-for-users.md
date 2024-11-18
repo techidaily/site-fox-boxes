@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Mastering Mac's Preview App  An In-Depth Tutorial for Users\""
-date: 2024-11-02T17:06:03.845Z
-updated: 2024-11-07T16:37:56.825Z
+date: 2024-11-16T17:51:52.223Z
+updated: 2024-11-17T17:30:57.168Z
 tags: 
   - screen-recording
   - ai video
@@ -56,10 +56,10 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Show Markup Tools in Preview on Mac
@@ -75,13 +75,6 @@ Click the **Show Markup Toolbar** icon present at the upper-right area to reveal
 Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup Toolbar**.
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
-
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Crop in Preview
 
@@ -99,13 +92,6 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -117,6 +103,13 @@ Use the method explained above to open the photo in Preview.
 **Step 2: Rotate the Image**
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Add Text to Image in Preview
 
@@ -150,13 +143,6 @@ Once the background portion of the image gets selected (colored in red), without
 
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Combine Images into One
 
 This process is generally used to place an object present in one image over the background of the other photo. A good example could be to place a picture of a fish on to a second photo that has a sea or river. The **Preview app** lets you do this easily using the following steps:
@@ -172,6 +158,13 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 **Step 3: Combine the Images**
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Save Images in Different Formats
 
@@ -219,6 +212,13 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -244,20 +244,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-affordable-panoramic-cameras-revolutionizing-media-production-for-2024/"><u>[New] Affordable Panoramic Cameras Revolutionizing Media Production for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-top-vhs-80s-effects-to-use-in-video-editing/"><u>[New] In 2024, Top VHS 80S Effects to Use in Video Editing</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-top-10-sites-to-download-copyright-free-meditation-music-for-2024/"><u>[New] Top 10 Sites to Download Copyright-Free Meditation Music for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-top-9-windows-gif-capture-tools-perfect-animation-preservation-for-2024/"><u>[New] Top 9 Windows GIF Capture Tools Perfect Animation Preservation for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-your-quick-guide-to-excellent-zoom-meetings-for-2024/"><u>[New] Your Quick Guide to Excellent Zoom Meetings for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-fives-finest-time-lapse-capture-apps-reviewed/"><u>[Updated] 2024 Approved Five's Finest Time-Lapse Capture Apps Reviewed</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-essential-gadgets-amplify-online-videos-for-2024/"><u>[Updated] Essential Gadgets Amplify Online Videos for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-hosting-charismatic-chats-keeping-audiences-hooked-live/"><u>[Updated] In 2024, Hosting Charismatic Chats Keeping Audiences Hooked Live</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-tips-for-successful-live-streams-on-instagram/"><u>[Updated] In 2024, Tips for Successful Live Streams on Instagram</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/10-snapchat-stickers-that-cause-laughter-galore-for-2024/"><u>10 Snapchat Stickers That Cause Laughter Galore for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fixing-the-issue-overcoming-connection-errors-in-path-of-exile-a-comprehensive-guide/"><u>Fixing the Issue: Overcoming Connection Errors in Path of Exile – A Comprehensive Guide</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-vivo-y100-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Vivo Y100 | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/um-online-platforms-for-video-intro-creation/"><u>Premium Online Platforms for Video Intro Creation</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/the-comprehensive-guide-to-video-editing-with-filmora-for-2024/"><u>The Comprehensive Guide to Video Editing with Filmora for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-nokia-c12-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Nokia C12? Fixed | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-embrace-authenticity-your-style-journey-begins-here/"><u>[New] 2024 Approved Embrace Authenticity Your Style Journey Begins Here</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-unveiling-the-high-resolution-benq-sw320-monitor/"><u>[New] 2024 Approved Unveiling the High-Resolution BenQ SW320 Monitor</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-explore-the-best-ways-to-record-sound-in-your-latest-windows-11-pc/"><u>[New] Explore the Best Ways to Record Sound in Your Latest Windows 11 PC</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-a-roadmap-for-optimizing-and-tracking-your-fb-in-stream-ad-performance/"><u>[New] In 2024, A Roadmap for Optimizing and Tracking Your FB In-Stream Ad Performance</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-radiant-palette-adjuster/"><u>[Updated] 2024 Approved Radiant Palette Adjuster</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-venture-into-virtuality-critical-reviews-of-tech/"><u>[Updated] 2024 Approved Venture Into Virtuality - Critical Reviews of Tech</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-diversify-your-laptop-editing-beyond-inshot/"><u>[Updated] Diversify Your Laptop Editing Beyond Inshot</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-unrivaled-experience-with-these-top-12-pc-clicker-games/"><u>2024 Approved Unrivaled Experience with These Top 12 PC Clicker Games</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-changefake-your-vivo-y100t-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Vivo Y100t Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-chromebook-audio-revamp-guide-selecting-the-leading-speech-converters-online/"><u>In 2024, Chromebook Audio Revamp Guide Selecting the Leading Speech Converters Online</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-detecting-invisible-interactions-on-snapchat/"><u>In 2024, Detecting Invisible Interactions on Snapchat</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-smart-screenshot-assembly-leading-androidiphone-montage-aids/"><u>In 2024, Smart Screenshot Assembly Leading Android/iPhone Montage Aids</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Realme C67 4G | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/innovative-visual-communication-how-to-place-titles-on-videos-using-photos/"><u>Innovative Visual Communication How to Place Titles on Videos Using Photos</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-itel-p55t-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Itel P55T Phone Now with These Tips</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-nokia-c12-plus-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in Nokia C12 Plus for Streaming | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-15-awesome-free-window-11-themes-you-cant-miss/"><u>Top 15 Awesome Free Window 11 Themes You Can't Miss</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Iconic Subreddits & Their All-Time Favorites List\""
-date: 2024-11-02T16:20:24.471Z
-updated: 2024-11-07T16:15:20.885Z
+date: 2024-11-11T18:32:30.251Z
+updated: 2024-11-17T17:08:16.040Z
 tags: 
   - screen-recording
   - ai video
@@ -46,6 +46,13 @@ Here they are!
 
 ## 10 Most Upvoted Reddit Posts of All Time
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. [The Senate (/r/movies)](https://www.reddit.com/r/movies/comments/62sjuh/the%5Fsenate%5Fupvote%5Fthis%5Fso%5Fthat%5Fpeople%5Fsee%5Fit%5Fwhen/)
 
 ![chancellor palpatine the senate](https://images.wondershare.com/filmora/article-images/2023/01/the-senate.png)
@@ -71,13 +78,6 @@ $GME stands for GameStop's stock name. BRR represents printing money. The idea b
 ### 3\. [Rick Astley Rides a Bike (r/pics)](https://www.reddit.com/r/pics/comments/haucpf/ive%5Ffound%5Fa%5Ffew%5Ffunny%5Fmemories%5Fduring%5Flockdown/)
 
 ![rick astley rides a bike](https://images.wondershare.com/filmora/article-images/2023/01/rick-astley-old-photo.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Posted in 2020, this one currently has 438k votes with 99% Upvotes. It was posted by a famous user known on Reddit as[/u/ReallyRickAstley](https://www.reddit.com/user/ReallyRickAstley/).
 
@@ -126,22 +126,15 @@ Like this frog, for example. 99% out of the 313k voters on this post upvoted and
 That's all there is to it. No politics, no serious issues, and so on. Just a frog trying to cool off in a bottle cup.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 8\. [Battle for Net Neutrality (/r/books)](https://www.reddit.com/r/books/comments/7en6do/join%5Fthe%5Fbattle%5Ffor%5Fnet%5Fneutrality%5Fwe%5Fneed%5Fto/)
 
 ![battle for net neutrality reddit post](https://images.wondershare.com/filmora/article-images/2023/01/battle-for-net-neutrality.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 This is another most upvoted Reddit post that encouraged over 180k users to join the battle for net neutrality. Again, 86% of these users are upvoters who agree with the statements in the post.
 
@@ -150,13 +143,6 @@ It's a post with a title and a link to a site where anyone can join the battle. 
 ### 9\. [Deangelo Juggles Balls for Real(/r/DunderMifflin)](https://www.reddit.com/r/DunderMifflin/comments/cec448/i%5Fwas%5Fwithout%5Finternet%5Ffor%5Fa%5Fwhile%5Fdecided%5Fto%5Fuse/)
 
 ![reddit post of deangelo juggling balls the office](https://images.wondershare.com/filmora/article-images/2023/01/deangelo-juggling-balls-on-the-office.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Millions of fans worldwide loved The Office with Steve Carell, a.k.a Michael Scott. One of the funniest moments was when Will Ferrell juggled imaginary balls in the Dunder Mifflin office.
 
@@ -168,6 +154,13 @@ The post has a 98% upvote rate with 170k voters in total. The reason it's so pop
 
 ![reddit post of soldier and his fathers message](https://images.wondershare.com/filmora/article-images/2023/01/brave-soldier-buried-with-his-devoted-troops-reddit.png)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Finally, this is an inspiring and heartwarming post about a brave troop.
 
 At this time, the post has 155k votes of which 93% are upvotes. Readers love the post because it shows a true story during a war. None of us can resist such tales.
@@ -177,19 +170,6 @@ The troop is known as Col. Shaw. The confederates buried this man in a mass grav
 After an attempt by Union Troops to recover his body, they received a letter from Col' Shaw's father, saying, "_We would not have his body removed from where it lies surrounded by his brave and devoted soldiers._"
 
 The Reddit post has over 4k comments, many of which feature thousands of upvotes.
-
-<!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Video – Top 10 Most Upvoted Posts on Reddit
 
@@ -207,23 +187,9 @@ Whatever you decide to do, feel free to reflect on these posts and enjoy reading
 
 10 Most Upvoted Reddit Posts of All Time
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. [The Senate (/r/movies)](https://www.reddit.com/r/movies/comments/62sjuh/the%5Fsenate%5Fupvote%5Fthis%5Fso%5Fthat%5Fpeople%5Fsee%5Fit%5Fwhen/)
 
 ![chancellor palpatine the senate](https://images.wondershare.com/filmora/article-images/2023/01/the-senate.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 When writing the article (Nov., 2022), this Reddit post features over 400k votes. 97% of those users Upvoted. This percentage made it the most upvoted Reddit post until another overtook it.
 
@@ -234,6 +200,13 @@ When writing the article (Nov., 2022), this Reddit post features over 400k votes
 Its purpose is quite ironic. The point was to make this image of Chancellor Palpatine from Star Wars the first result on Google whenever someone searched for "The Senate."
 
 Sadly, the attempt failed but still received a lot of attention.
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. [$GME GO BRRR (r/wallstreetbets)](https://www.reddit.com/r/wallstreetbets/comments/l8rf4k/times%5Fsquare%5Fright%5Fnow/)
 
@@ -251,6 +224,13 @@ Posted in 2020, this one currently has 438k votes with 99% Upvotes. It was poste
 
 If you know the famous song "Never Gonna Give You Up, " you know who this is. Well, this is the Reddit account of the artist Rick Astley himself, taking over the platform with a photo of himself he found in 1989.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. [NYC Taxi Drivers Calendar (/r/funny)](https://www.reddit.com/r/funny/comments/7mjw12/my%5Fcab%5Fdriver%5Ftonight%5Fwas%5Fso%5Fexcited%5Fto%5Fshare/)
 
 ![nyc taxi driver calendar](https://images.wondershare.com/filmora/article-images/2023/01/new-york-taxi-driver.png)
@@ -260,13 +240,6 @@ Another funny post in the official /r/funny subreddit itself. At this time, this
 The image depicts the New York spirit as an excited cab driver shows off his cab in the 2018 New York Taxi Driver calendar.
 
 What's even more interesting is that the driver commented on this Reddit post, letting everyone know that he also got the title "Mr. December" that year.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. [Showing a Game You Mastered to Someone You Care About (/r/gaming)](https://www.reddit.com/r/gaming/comments/ccr8c8/take%5Fyour%5Ftime%5Fyou%5Fgot%5Fthis/)
 
@@ -280,9 +253,23 @@ The image shows an experienced gamer who spent countless hours beating a game, t
 
 You understand the pain if you've gone through something like this.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. [All News Anchors Say the Same Thing(/r/videos)](https://www.reddit.com/r/videos/comments/88ll08/this%5Fis%5Fwhat%5Fhappens%5Fwhen%5Fone%5Fcompany%5Fowns%5Fdozens/)
 
 ![all news anchors say the same thing reddit](https://images.wondershare.com/filmora/article-images/2023/01/news-anchors.png)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 293k users voted on this post, revealing what it looks like when a single company owns dozens of local news stations.
 
@@ -331,6 +318,13 @@ The troop is known as Col. Shaw. The confederates buried this man in a mass grav
 After an attempt by Union Troops to recover his body, they received a letter from Col' Shaw's father, saying, "_We would not have his body removed from where it lies surrounded by his brave and devoted soldiers._"
 
 The Reddit post has over 4k comments, many of which feature thousands of upvotes.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Video – Top 10 Most Upvoted Posts on Reddit
 
@@ -370,19 +364,20 @@ Whatever you decide to do, feel free to reflect on these posts and enjoy reading
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-11-best-bridge-cameras-ultimate-review/"><u>[New] 2024 Approved 11 Best Bridge Cameras [Ultimate Review]</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-essential-free-templates-for-mastering-after-effects/"><u>[New] 2024 Approved Essential FREE Templates for Mastering After Effects</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-earnings-on-youtube-the-crucial-number-of-video-views-for-money/"><u>[New] Earnings on YouTube The Crucial Number of Video Views for Money</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-clip-ppt-deck-to-digital-movie/"><u>[New] In 2024, Clip PPT Deck to Digital Movie</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-inexpensive-mirrorless-and-dslr-options/"><u>[New] In 2024, Inexpensive Mirrorless & DSLR Options</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/complete-tutorial-how-to-share-and-save-apple-notes-across-devices/"><u>Complete Tutorial: How to Share and Save Apple Notes Across Devices</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/diving-into-periscope-understanding-its-free-access-and-account-creation-process/"><u>Diving Into Periscope Understanding Its Free Access & Account Creation Process</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/exploring-advanced-features-in-intova-edge-x/"><u>Exploring Advanced Features in Intova Edge X</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-diving-into-the-depths-of-facebooks-secret-tracking/"><u>In 2024, Diving Into the Depths of Facebook's Secret Tracking</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-inverting-photo-colors-with-advanced-tools/"><u>In 2024, Inverting Photo Colors with Advanced Tools</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-vivavideo-app-review/"><u>In 2024, VivaVideo App Review</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/rejuvenate-faulty-vids-with-ease/"><u>Rejuvenate Faulty Vids with Ease</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/trim-down-your-taskbar-with-windows-11-tweaks/"><u>Trim Down Your Taskbar with Windows 11 Tweaks</u></a></li>
-<li><a href="https://windows11.techidaily.com/windows-struggles-heres-how-to-install-icloud-seamlessly/"><u>Windows Struggles? Here’s How to Install iCloud Seamlessly</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-mastering-multiperspective-media-expert-guide-to-instagram-video-rotations/"><u>[New] 2024 Approved Mastering Multiperspective Media Expert Guide to Instagram Video Rotations</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-yearly-recorder-real-time-social-media-events/"><u>[New] 2024 Approved Yearly Recorder Real-Time Social Media Events</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-dissecting-intelligence-the-moto-z2-breakdown/"><u>[New] In 2024, Dissecting Intelligence The Moto Z2 Breakdown</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-maintaining-softness-fading-effects-in-fl-studio-mixes/"><u>[New] Maintaining Softness Fading Effects in FL Studio Mixes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-pixel-perfect-viewing-comparing-worlds-top-8k-televisions-for-2024/"><u>[New] Pixel-Perfect Viewing Comparing World's Top 8K Televisions for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-unlock-your-individuality-a-guide-to-120plus-unique-snapchat-stories-for-2024/"><u>[New] Unlock Your Individuality A Guide to 120+ Unique Snapchat Stories for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-earnings-trends-in-the-digital-audio-space-for-2024/"><u>[Updated] Earnings Trends in the Digital Audio Space for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-from-struggling-youtuber-to-industry-leader-the-hub-of-creator-studios-wisdom/"><u>[Updated] From Struggling Youtuber to Industry Leader The Hub of Creator Studio's Wisdom</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-digitizing-memories-from-stillness-to-movement/"><u>[Updated] In 2024, Digitizing Memories From Stillness to Movement</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-explore-the-premier-free-overlay-tools-to-elevate-images/"><u>[Updated] In 2024, Explore the Premier Free Overlay Tools to Elevate Images</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-step-by-step-guide-to-reestablish-working-airdrop-linkage/"><u>[Updated] Step-by-Step Guide to Reestablish Working Airdrop Linkage</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-beginners-pathway-photos-transformed-into-videos-via-pixiz/"><u>2024 Approved Beginner's Pathway Photos Transformed Into Videos via Pixiz</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/exploring-gpt-as-a-writing-checker/"><u>Exploring GPT as a Writing Checker</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/flashfreeze-video-cut-out-instruction/"><u>FlashFreeze Video Cut-Out Instruction</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-mastering-audio-diminishment-in-lumafusion/"><u>In 2024, Mastering Audio Diminishment in Lumafusion</u></a></li>
 </ul></div>
 

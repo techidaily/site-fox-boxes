@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Capturing Life with iPhone’s Dual-Function Capability for 2024\""
-date: 2024-11-03T17:24:05.648Z
-updated: 2024-11-07T17:56:28.778Z
+date: 2024-11-10T16:35:52.547Z
+updated: 2024-11-17T21:49:11.385Z
 tags: 
   - screen-recording
   - ai video
@@ -50,10 +50,10 @@ thumbnail: https://thmb.techidaily.com/3b3d53f3a3456319783aa99ca770516fad2e58dbe
 * Now, to take a still, just tap on the white 'take picture' button that can be noticed at the left of the red button. The screen will flicker each time you press the button to take the photo.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### The drawbacks of taking photos and videos simultaneously
@@ -72,15 +72,28 @@ thumbnail: https://thmb.techidaily.com/3b3d53f3a3456319783aa99ca770516fad2e58dbe
 | **iPhone 7 series**  | 4032 × 3024               | 3412 × 1920                                  | 3840 × 2160                               | 1280 × 720                                    |
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Extract frames from video
 
  If you are one of those who wish to **take photos while recording videos** without compromising the quality, we are glad to inform you that there is a solution for this. You can easily extract a specific frame from the recorded video keeping the standard resolution quality via Wondershare Filmora and will never be bothered about missing anything interesting from the video.
+
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Why Choose Wondershare Filmora?
 
@@ -92,20 +105,13 @@ thumbnail: https://thmb.techidaily.com/3b3d53f3a3456319783aa99ca770516fad2e58dbe
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -133,24 +139,16 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-step-by-step-crafting-bespo-pointed-video-closures-on-the-dashboard/"><u>[New] In 2024, Step-by-Step Crafting Bespo Pointed Video Closures on the Dashboard</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-crafting-a-compelling-pitch-products-sponsoring-youtubers/"><u>[Updated] 2024 Approved Crafting a Compelling Pitch Products Sponsoring Youtubers</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-apk-masterclass-enjoy-funimate-on-android/"><u>[Updated] APK Masterclass Enjoy Funimate on Android</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-brief-cinematic-chronicle/"><u>[Updated] Brief Cinematic Chronicle</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-exploring-the-boundaries-of-true-black-on-asuss-professional-screen/"><u>[Updated] Exploring the Boundaries of True Black on ASUS's Professional Screen</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-fixing-the-facial-flaws-in-iphone-xs-security-feature/"><u>[Updated] In 2024, Fixing the Facial Flaws in iPhone X's Security Feature</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-ultimate-guide-to-7-superior-vids-on-mac/"><u>[Updated] Ultimate Guide to 7 Superior Vids on Mac</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-is-instagrams-self-validation-a-game-changer/"><u>2024 Approved Is Instagram’s Self-Validation a Game Changer?</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-pixelpioneer-8-version-visual-conjurer/"><u>2024 Approved PixelPioneer 8-Version Visual Conjurer</u></a></li>
-<li><a href="https://blog-min.techidaily.com/8-ways-to-transfer-photos-from-samsung-galaxy-s24-ultra-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>8 Ways to Transfer Photos from Samsung Galaxy S24 Ultra to iPhone Easily | Dr.fone</u></a></li>
-<li><a href="https://win-forum.techidaily.com/easy-steps-to-determine-your-windows-10s-powershell-compatibility-and-version/"><u>Easy Steps to Determine Your Windows 10'S PowerShell Compatibility and Version</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/enlightened-techniques-to-preserve-your-iptv-streams/"><u>Enlightened Techniques to Preserve Your IPTV Streams</u></a></li>
-<li><a href="https://program-issues.techidaily.com/finally-la-noire-is-here-compatible-with-your-personal-computer/"><u>Finally, L.A. Noire Is Here! - Compatible with Your Personal Computer</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-assessing-djis-flight-vision-tx-headset-performance/"><u>In 2024, Assessing DJI's Flight Vision TX Headset Performance</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-innovate-your-iphones-selfie-quality-the-10-best-free-apps/"><u>In 2024, Innovate Your iPhone's Selfie Quality The 10 Best Free Apps</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-visionarys-guide-top-5-slow-motion-tech/"><u>In 2024, Visionary's Guide Top 5 Slow-Motion Tech</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/resolve-audio-glitches-and-distortions-in-windows-11-a-comprehensive-fix-guide/"><u>Resolve Audio Glitches & Distortions in Windows 11: A Comprehensive Fix Guide</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/the-art-of-capturing-stories-gopro-hero5-black-in-focus/"><u>The Art of Capturing Stories GoPro Hero5 Black in Focus</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/the-ultimate-guide-to-faster-facebook-videos-for-2024/"><u>The Ultimate Guide to Faster Facebook Videos for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-professional-screen-capture-for-gotomeeting-users/"><u>[New] 2024 Approved Professional Screen Capture for GoToMeeting Users</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-converting-moments-into-memorable-gifs-for-2024/"><u>[New] Converting Moments Into Memorable GIFs for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-exclusive-list-10-budget-friendly-passport-photographers-online-for-2024/"><u>[New] Exclusive List 10 Budget-Friendly Passport Photographers Online for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-high-resolution-sky-photography-10-preferred-pages-for-2024/"><u>[New] High-Resolution Sky Photography 10 Preferred Pages for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-finding-your-perfect-match-premium-videographer-recruitment/"><u>[New] In 2024, Finding Your Perfect Match Premium Videographer Recruitment</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-inside-the-revolutionary-tech-of-sj7s-4k-star-action-camera-review/"><u>[Updated] In 2024, Inside the Revolutionary Tech of SJ7's 4K Star Action Camera Review</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-dronemakers-ultimate-sky-explore/"><u>In 2024, Dronemaker's Ultimate Sky Explore</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/navigating-the-world-of-gadgets-and-components-at-tomtechhardware/"><u>Navigating the World of Gadgets and Components at TomTechHardware</u></a></li>
+<li><a href="https://fox-http.techidaily.com/top-1-global-musical-views-for-2024/"><u>Top 1 Global Musical Views for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-10-must-knows-before-elevating-systems/"><u>Top 10 Must-Knows Before Elevating Systems</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Honor X8b | Dr.fone</u></a></li>
 </ul></div>
 

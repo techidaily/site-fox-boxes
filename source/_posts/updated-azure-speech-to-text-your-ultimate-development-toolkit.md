@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Azure Speech-to-Text  Your Ultimate Development Toolkit\""
-date: 2024-11-05T17:14:13.159Z
-updated: 2024-11-07T17:28:48.012Z
+date: 2024-11-12T00:00:45.126Z
+updated: 2024-11-17T16:40:04.585Z
 tags: 
   - screen-recording
   - ai video
@@ -55,13 +55,6 @@ Step3The program will take a while to deploy an instance. Now tap Keys and endpo
 
 ![micrsoft azure speech to text copy key and region](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4Download and install Microsoft Visual C++ and .NET Core 3.1 Runtime. Next, install Speech CL on .NET by running this command “**dotnet tool install -global Microsoft.CognitiveServices.Speech.CLI.**” Alternatively, download and install Speech CLI for Windows PCs as a [ZIP file](https://aka.ms/speech/spx-windows).
 
 Step5Now enter the Azure regional identifier and subscription key on Windows Terminal or PowerShell. To configure the region and key, run these commands; “**spx config @key --set SUBSCRIPTION-KEY** and **spx config @region --set REGION.**”
@@ -70,20 +63,14 @@ Step6Now it's time to convert speech to text using Azure STT Service. To do that
 
 ![icon note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-**Note:** Click [this video](https://docs.microsoft.com/en-us/shows/one-dev-minute/how-to-use-the-azure-cognitive-services-net-speech-sdk-for-recognition) for a detailed guide on how to use Azure Speech Services with Visual Basic (SDK).
-
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+**Note:** Click [this video](https://docs.microsoft.com/en-us/shows/one-dev-minute/how-to-use-the-azure-cognitive-services-net-speech-sdk-for-recognition) for a detailed guide on how to use Azure Speech Services with Visual Basic (SDK).
 
 ## Part 3: What Are the Free Alternatives to the Microsoft Speech to Text Service?
 
@@ -118,10 +105,10 @@ Select the audio asset in the timeline, and click the "Speech-to-Text" icon in t
 ![toolbar stt](https://images.wondershare.com/filmora/guide/guide-win/toolbar-stt.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step 2
@@ -130,16 +117,22 @@ Click the "Speech-to-Text" icon, and it will show the parameter settings. You ca
 
 ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Google Docs - Free
 
 ![micrsoft azure speech to text alternative google docs](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-6.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 If you're looking for free voice typing software, you're better off with Google Docs. Most of you may not be aware that Google Docs can accurately convert speech to text. This makes it a handy tool if you find speaking easier than writing. As expected, this voice transcription tool recognizes hundreds of languages, like English, French, Italian, Hindi, etc.
 
@@ -153,21 +146,22 @@ Step2Next, click the language drop-down arrow on the microphone to choose the tr
 
 Step3Click the Microphone icon to start dictating texts on Google Docs. After dictating enough texts, tap the red Microphone icon and edit your text. It's that simple!
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3.[Audtext](https://audext.com/) \- $60 one-time fee
 
 ![micrsoft azure speech to text alternative audtext](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-7.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If Google's voice recognition service is too slow for your liking, consider Audtext. It's a highly rated online program that uses cutting-edge machine learning technology to transcribe audio to text in 60+ languages. You can easily train this program to identify the speaker in your interview or podcast file.
@@ -215,22 +209,22 @@ In that case, use a more straightforward option like Google Docs to dictate text
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-capturing-eats-a-chefs-handbook-to-food-photography-for-2024/"><u>[New] Capturing Eats A Chef's Handbook to Food Photography for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-complete-analysis-hero4-black-system-for-2024/"><u>[New] Complete Analysis Hero4 Black System for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-essential-tips-keeping-your-snapchat-images-intact-post-snap/"><u>[New] Essential Tips Keeping Your Snapchat Images Intact Post-Snap</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-the-financial-lifeline-of-podcasting-for-2024/"><u>[New] The Financial Lifeline of Podcasting for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-top-stabilizers-choosing-the-best-for-high-res-cameras/"><u>[New] Top Stabilizers Choosing the Best for High-Res Cameras</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-customize-your-windows-photos-experience-with-unique-audio-and-aesthetic-choices/"><u>[Updated] Customize Your Windows Photos Experience with Unique Audio & Aesthetic Choices</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-harnessing-the-power-of-animated-graphics-for-2024/"><u>[Updated] Harnessing the Power of Animated Graphics for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-mastering-3d-text-illustration-in-adobe-illustrator/"><u>[Updated] In 2024, Mastering 3D Text Illustration in Adobe Illustrator</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-photography-clarity-revolution-best-fixers-of-the-web-age/"><u>[Updated] In 2024, Photography Clarity Revolution Best Fixers of the Web Age</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-unlock-insta-money-potential-with-our-top-7-list/"><u>[Updated] In 2024, Unlock Insta Money Potential with Our Top 7 List</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-craftsmanship-in-podcast-visuals-the-essentials/"><u>2024 Approved Craftsmanship in Podcast Visuals The Essentials</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Sony Xperia 5 V | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-avoid-the-spinning-room-top-5-vr-motion-control-techniques/"><u>In 2024, Avoid the Spinning Room Top 5 VR Motion Control Techniques</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-enhance-your-videos-with-dynamic-camera-movements-camtasa-guide/"><u>In 2024, Enhance Your Videos with Dynamic Camera Movements - Camtasa Guide</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-unrestricted-media-playback-free-on-windows-and-macos/"><u>In 2024, Unrestricted Media Playback FREE on Windows & MacOS</u></a></li>
-<li><a href="https://games-able.techidaily.com/solve-the-sleuths-case-in-smart-ai-mysteries/"><u>Solve the Sleuth's Case in Smart AI Mysteries</u></a></li>
-<li><a href="https://win-dash.techidaily.com/step-by-step-fix-for-common-errors-of-csr8510-a10-graphics-card-on-windows-devices-top-tips-included/"><u>Step-by-Step Fix for Common Errors of CSR8510 A10 Graphics Card on Windows Devices - Top Tips Included</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-optimizing-tiktok-video-batch-downloads/"><u>[New] In 2024, Optimizing TikTok Video Batch Downloads</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-4kplus-3d-blu-ray-magic-high-end-players-guide/"><u>[Updated] 2024 Approved 4K+ 3D Blu-Ray Magic High-End Players Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-a-step-by-step-breakdown-of-samsungs-image-enhancing-features-for-2024/"><u>[Updated] A Step-by-Step Breakdown of Samsung’s Image Enhancing Features for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-enhancing-collaborative-potential-zooming-up-your-skype-efficiency-for-2024/"><u>[Updated] Enhancing Collaborative Potential Zooming Up Your Skype Efficiency for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-how-to-make-gmail-meetings-work-zipping-up-zoom-integrations/"><u>[Updated] How to Make Gmail Meetings Work Zipping Up Zoom Integrations</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-leading-edge-innovations-for-your-daily-life/"><u>[Updated] In 2024, Leading Edge Innovations for Your Daily Life</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-captivating-literary-book-trailers/"><u>2024 Approved Captivating Literary Book Trailers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-foodie-fables-enthralling-channel-names-for-epicureans/"><u>2024 Approved Foodie Fables Enthralling Channel Names for Epicureans</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-stitching-pictures-and-chords-into-compelling-narratives/"><u>2024 Approved Stitching Pictures & Chords Into Compelling Narratives</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-vivo-y17s-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Vivo Y17s to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-the-pros-pathway-to-purging-percussion-from-digital-melodies/"><u>In 2024, The Pros Pathway to Purging Percussion From Digital Melodies</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/mastering-efficient-resource-usage-control-your-desktop-window-managers-gpu-demands-on-windows-1011/"><u>Mastering Efficient Resource Usage: Control Your Desktop Window Manager's GPU Demands on Windows 10/11</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/skyrocketing-to-the-top-macx-dvd-ripper-pro-v55-slices-through-any-disc-with-lightning-speed/"><u>Skyrocketing to the Top - MacX DVD Ripper Pro V5.5 Slices Through Any Disc with Lightning Speed</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/solved-move-from-xiaomi-redmi-note-12r-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Solved Move from Xiaomi Redmi Note 12R to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/soundscapes-of-restfulness-high-rated-asmr-experts/"><u>Soundscapes of Restfulness High-Rated ASMR Experts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unveiling-the-wealth-route-in-periscope-streaming/"><u>Unveiling the Wealth Route in Periscope Streaming</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/usb-c-revolution-with-lgs-ultra-hd-tv-the-27ud88/"><u>USB-C Revolution with LG's Ultra HD TV, the 27UD88</u></a></li>
 </ul></div>
 
