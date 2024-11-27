@@ -1,7 +1,7 @@
 ---
 title: "Zoom Techniques for Captivating TikTok Audiences"
-date: 2024-11-15T23:53:03.970Z
-updated: 2024-11-17T17:58:46.207Z
+date: 2024-11-21T19:01:21.069Z
+updated: 2024-11-27T19:06:21.527Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ The first one involves zooming in while recording the video and the second one i
 
 ![create a new video tiktok](https://images.wondershare.com/filmora/article-images/2022/07/create-a-new-video-tiktok.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * When you tap on the "+" icon, the recording interface will open up. Now, select the duration of the video by tapping the "clock" icon on the left-hand side of the screen. After selecting a set duration, you will find a red shutter button which you will need to hold to start the recording.
 * Now, to zoom in on the recording, you can use any of two methods of zooming in. The first method involves you moving your finger up towards the top of your phone from the shutter icon. This will show you a red circle getting bigger.
 * Alternatively, you can use one finger to pinch into the screen while holding the shutter icon with another finger and this will ultimately help you achieve a zoom effect on your video.
@@ -52,10 +56,7 @@ TikTok is known to provide a vast number of filters as well as editing tools tha
 ![tap visual effects tiktok](https://images.wondershare.com/filmora/article-images/2022/07/tap-visual-effects-tiktok.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Here you will need to find an effect namely the "zoom effect" and tapping on it will apply the effect to your video.
@@ -63,26 +64,14 @@ TikTok is known to provide a vast number of filters as well as editing tools tha
 ![choose zoom effect tiktok](https://images.wondershare.com/filmora/article-images/2022/07/choose-zoom-effect-tiktok.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * You can drag the marker of the timeline to set the beginning of the effect on your video. Then press the zoom effect and release it where you want the zoom effect to end.
 * Then save the video and the effect will be applied successfully.
 
 <!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3\. How to face zoom TikTok
@@ -98,10 +87,7 @@ And if you are new to this platform, you can follow these steps to use this face
 ![zoom tiktok filter](https://images.wondershare.com/filmora/article-images/2022/07/zoom-tiktok-filter.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * The filter icon background is of turquoise color. You will need to tap on that and your face zoom effect will be activated.
@@ -146,24 +132,24 @@ TikTok has become more than just a social media platform and these days almost e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-speedy-record-and-audio-assisted-session-creator/"><u>[New] 2024 Approved Speedy Record & Audio-Assisted Session Creator</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-mastering-pip-navigating-netflixs-floating-screen-functionality/"><u>[New] In 2024, Mastering PIP Navigating Netflix's Floating Screen Functionality</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-optimal-online-stream-setup-the-vlc-methodology/"><u>[New] Optimal Online Stream Setup The VLC Methodology</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-exploring-snapchats-spotlight-feature-deeply/"><u>[Updated] 2024 Approved Exploring Snapchat's Spotlight Feature Deeply</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-chuckle-friendly-image-editors-for-all-devices/"><u>[Updated] Chuckle-Friendly Image Editors for All Devices</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-cutting-edge-editing-techniques-how-to-erase-borders-effortlessly/"><u>[Updated] In 2024, Cutting Edge Editing Techniques How to Erase Borders Effortlessly</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-ultimate-guide-to-superior-sound-on-cams/"><u>[Updated] Ultimate Guide to Superior Sound on Cams</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-apple-musics-role-in-professional-video-production/"><u>2024 Approved Apple Music's Role in Professional Video Production</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-navigating-the-secrets-of-funimate-download/"><u>2024 Approved Navigating the Secrets of Funimate Download</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-vimeo-decoded-an-in-depth-look-at-video-hosting/"><u>2024 Approved Vimeo Decoded An In-Depth Look at Video Hosting</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/de-video-a-sonido-tres-pasos-faciles-para-conversion-auditiva/"><u>De Vídeo a Sonido: Tres Pasos Fáciles Para Conversión Auditiva</u></a></li>
-<li><a href="https://discover-data.techidaily.com/dunia-minecraft-bersih-lagi-perbaiki-versi-terhapus-windowsps4mobile/"><u>Dunia Minecraft Bersih Lagi? Perbaiki Versi Terhapus Windows/PS4/Mobile</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/elevate-visibility-mastering-youtube-success-tracks-for-2024/"><u>Elevate Visibility Mastering YouTube Success Tracks for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/essential-steps-for-effective-online-engagement-for-2024/"><u>Essential Steps for Effective Online Engagement for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/fixing-windows-1110-how-to-stop-double-click-folders-from-closing/"><u>Fixing Windows 11/10: How to Stop Double-Click Folders From Closing</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-from-iphone-xs-max-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code From iPhone XS Max</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-transforming-tweetstream-into-hd-visionary-content/"><u>In 2024, Transforming Tweetstream Into HD Visionary Content</u></a></li>
-<li><a href="https://program-issues.techidaily.com/solving-pc-issues-when-playing-no-rest-for-the-wicked-tips-and-tricks-to-optimize-your-experience/"><u>Solving PC Issues When Playing 'No Rest for the Wicked': Tips and Tricks to Optimize Your Experience</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/watch-the-matrix-franchise-properly-best-order-to-see-them/"><u>Watch The Matrix Franchise Properly: Best Order to See Them</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-access-all-movies-ioss-no1-freepluspaid-film-apps-guide/"><u>[New] In 2024, Access All Movies IOS's No.1, FREE+Paid Film Apps Guide</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-live-rhythm-streaming-on-qyoutube-for-2024/"><u>[New] Live Rhythm Streaming on QYoutube for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-rapid-routines-easy-iphone-media-sharing/"><u>[New] Rapid Routines Easy iPhone Media Sharing</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-slomo-visual-delight-thorough-assessment-release/"><u>[New] SloMo Visual Delight Thorough Assessment Release</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-streamline-your-workflow-ultimate-convertor-list-1-8/"><u>[New] Streamline Your Workflow Ultimate Convertor List #1-8</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-top-10-web-based-subtitle-editor-tools/"><u>[New] Top 10 Web-Based Subtitle Editor Tools</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-what-lies-beneath-the-true-meanings-in-emoji-for-2024/"><u>[New] What Lies Beneath The True Meanings in Emoji for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-balancing-acts-understanding-the-importance-of-drone-stabilizers/"><u>[Updated] 2024 Approved Balancing Acts Understanding the Importance of Drone Stabilizers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-how-to-delete-or-deactivate-an-instagram-account-permanently/"><u>[Updated] How to Delete or Deactivate An Instagram Account Permanently</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-leading-microphones-for-enhanced-4k-video-clarity-and-sound/"><u>[Updated] In 2024, Leading Microphones for Enhanced 4K Video Clarity and Sound</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-mastering-mobile-shots-ios-11s-camera-innovations/"><u>[Updated] In 2024, Mastering Mobile Shots IOS 11'S Camera Innovations</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-the-ultimate-booktok-list-must-read-masterpieces/"><u>[Updated] In 2024, The Ultimate BookTok List Must-Read Masterpieces</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-you-play-mp4-on-nova-y91-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Can you play MP4 on Nova Y91?</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/chkdsk-nicht-funktioniert-entdecken-sie-die-besten-5-fixes-plus-einen-exklusiven-insidertrick/"><u>CHKDSK Nicht Funktioniert? Entdecken Sie Die Besten 5 Fixes Plus Einen Exklusiven Insidertrick!</u></a></li>
+<li><a href="https://win11.techidaily.com/dissecting-runtime-broker-its-role-in-software-dynamics/"><u>Dissecting Runtime Broker: Its Role in Software Dynamics</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/how-does-googles-cutting-edge-palm-2-transform-natural-language-processing/"><u>How Does Google's Cutting-Edge PaLM 2 Transform Natural Language Processing?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-xiaomi-redmi-a2plus-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Xiaomi Redmi A2+ to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-oppo-reno-11-pro-5g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Oppo Reno 11 Pro 5G online without jailbreak</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unlocking-full-image-potential-incorporating-luts-in-adobe-photoshop-cs6/"><u>Unlocking Full Image Potential Incorporating LUTs in Adobe Photoshop CS6</u></a></li>
 </ul></div>
 

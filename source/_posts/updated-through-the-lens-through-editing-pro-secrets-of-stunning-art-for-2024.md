@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Through the Lens, Through Editing  Pro Secrets of Stunning Art for 2024\""
-date: 2024-11-14T17:04:38.876Z
-updated: 2024-11-17T16:59:49.824Z
+date: 2024-11-24T19:40:02.093Z
+updated: 2024-11-27T18:42:07.167Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,14 @@ Luckily, every photography editing software offers the primary crop tool. You ca
 
 ![crop the image](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Presets are your Friends
 
 When processing multiple images at once, the editing process can be tiring and bothersome. To help you out, most photography editing software comes with a range of presets and tools you can apply to your photos. If all your images need similar changes, these presets can come in handy. You can also create the perfect combination of settings yourself and apply them instantly.
@@ -57,24 +65,15 @@ If you train your eye to see these hidden colors, you can easily make your image
 
 ![play with the image colors](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-3.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Adjust the Contrast
 
 One of the main reasons your images are looking flat is low contrast. Without a clear difference between foregrounds and backgrounds, the image can seemingly lack focus. You can play with the blacks and whites to adjust the contrast in your photo. Some of the best photography editing software offers a contrast slider that can help refine your image.
 
 ![adjust the image contrast](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Try Overlays
 
@@ -83,19 +82,6 @@ Layering different textures and images to your photo is a great way to create vi
 Overlays are also useful for creating double exposure effects in your image. If you want to highlight some specific part of your photo, you can do it by adding a simple overlay. You can even adjust the transparency and intensity of the overlay to reach the desired effect.
 
 ![apply overlays to image](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-5.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6\. Straighten the Horizon
 
@@ -106,23 +92,7 @@ You can choose a baseline in your image and then adjust it to straighten the ima
 ![straighten the horizon](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-6.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7\. Split the Tone
@@ -132,10 +102,7 @@ During the photography editing process, a little split-tone can go a long way. T
 ![use split tone feature](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8\. Know your White Balance
@@ -147,10 +114,7 @@ While JPEG images can somewhat bend to a specific color temperature, RAW files o
 ![adjust image white balance](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 9\. Pay Attention to Details
@@ -162,10 +126,7 @@ Most of the prime photography editing apps offer spot removal tools. You will of
 ![remove the spots from image](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 10\. Don’t Take It Too Far
@@ -204,22 +165,18 @@ You can try the photography editing tips mentioned above to enhance your images 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-embrace-your-inner-cartoon-how-to-apply-snapchats-anime-effect/"><u>[New] 2024 Approved Embrace Your Inner Cartoon How To Apply Snapchat's Anime Effect</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-step-forward-with-borders-on-instagram-videos/"><u>[New] In 2024, Step Forward with Borders on Instagram Videos</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-streammine-group-video-downloads/"><u>[Updated] 2024 Approved StreamMine Group Video Downloads</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/100-drone-bargains-top-budget-friendly-models/"><u>$100 Drone Bargains Top Budget-Friendly Models</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-build-diy-virtual-reality-google-cardboard-hack/"><u>2024 Approved Build DIY Virtual Reality Google Cardboard Hack</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-enhancing-engagement-30-outstanding-video-concepts/"><u>2024 Approved Enhancing Engagement 30 Outstanding Video Concepts</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-examining-facebooks-hidden-activity-knowledge-is-power/"><u>2024 Approved Examining Facebook’s Hidden Activity Knowledge Is Power</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-step-by-step-instruction-for-wm6-install/"><u>2024 Approved Step-by-Step Instruction for WM6 Install</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-top-5-efforts-crafting-perfect-titles/"><u>2024 Approved Top 5 Efforts Crafting Perfect Titles</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-worldcasters-select-local-channels-for-global-watchers/"><u>2024 Approved WorldCasters Select Local Channels for Global Watchers</u></a></li>
-<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Oppo A18 | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/banter-bonanza-the-best-comedians-on-the-web-for-2024/"><u>Banter Bonanza The Best Comedians on the Web for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/creating-an-impactful-film-short-summary/"><u>Creating an Impactful Film Short Summary</u></a></li>
-<li><a href="https://win-blog.techidaily.com/easy-steps-to-resolve-nwstoreexe-app-crashes-and-boost-performance/"><u>Easy Steps to Resolve NW_Store.exe App Crashes and Boost Performance</u></a></li>
-<li><a href="https://driver-download.techidaily.com/essential-downloads-for-logitech-brio-webcam-setup-windows-11-8-and-7-compatible-drivers/"><u>Essential Downloads for Logitech BRIO Webcam Setup: Windows 11, 8 & 7 Compatible Drivers</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-samsung-galaxy-a24-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Samsung Galaxy A24 Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/mastering-tabletop-adventures-with-chatgpt-a-comprehensive-guide-for-dms/"><u>Mastering Tabletop Adventures with ChatGPT: A Comprehensive Guide for DMs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-live-yt-sessions-on-phone-for-newbies-without-a-million-viewers/"><u>[New] In 2024, Live YT Sessions on Phone for Newbies without a Million Viewers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-perfecting-presentation-adding-fonts-to-ae-projects/"><u>[New] Perfecting Presentation Adding Fonts to AE Projects</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unlocking-superior-communication-optimal-use-of-zoom-in-skype-sessions/"><u>[New] Unlocking Superior Communication Optimal Use of ZOOM in Skype Sessions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-integrating-imovie-productions-into-youtube/"><u>[Updated] In 2024, Integrating iMovie Productions Into YouTube</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mastering-iphone-image-arrangement-top-10-tips/"><u>[Updated] Mastering iPhone Image Arrangement Top 10 Tips</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-shine-bright-enhancing-video-quality-tools/"><u>[Updated] Shine Bright Enhancing Video Quality Tools</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-command-line-and-gui-mastering-windowsmacos-srt-file-handling/"><u>2024 Approved Command Line & GUI Mastering Windows/MacOS SRT File Handling</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/capture-the-crash-top-surf-cameras-of-2023-for-2024/"><u>Capture the Crash Top Surf Cameras of 2023 for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-polaroid-camplus-cube-analysis-when-life-is-on-screen/"><u>In 2024, Polaroid Cam+ Cube Analysis When Life Is on Screen</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-realme-narzo-60-5g-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Realme Narzo 60 5G Phone Pattern Lock</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-depth-examination-androids-photography-solution-lightroom/"><u>In-Depth Examination Android's Photography Solution, Lightroom</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-essential-guide-for-entrepreneurs-on-igs-business-landscape/"><u>The Essential Guide for Entrepreneurs on IG's Business Landscape</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723205063225-valorant-screen-flickering-solutions-optimize-your-gameplay/"><u>Valorant Screen Flickering Solutions: Optimize Your Gameplay</u></a></li>
 </ul></div>
 

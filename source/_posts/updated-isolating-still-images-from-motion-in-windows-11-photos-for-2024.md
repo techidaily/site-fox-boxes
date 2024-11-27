@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Isolating Still Images From Motion in Windows 11 Photos for 2024"
-date: 2024-11-11T18:54:21.809Z
-updated: 2024-11-17T21:52:50.586Z
+date: 2024-11-24T17:57:34.255Z
+updated: 2024-11-27T18:27:53.273Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,10 @@ In this article, you will learn how to save photo from Windows 10 Photos app and
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to save photo from Windows 10 Photos app
 
 In this part of the article, we are going to discuss, how you would save photo from video with Windows 10 Photos app. The Photos app has numerous features for you, and the editing tools would simply amaze you. You can use the Windows Ink to write on the images or capture stills from a video for that matter. Let’s see, how to save photo from video using Windows 10 Photos app –
@@ -63,6 +67,10 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Why I can’t save photo from video
 
 In case, you are not able to save photos from video on Windows 10 Photos App. There might be issues with an outdated [Microsoft OS patch update](https://support.microsoft.com/en-us/help/311047/how-to-keep-your-windows-computer-up-to-date) or the Microsoft account is having any problem. But, you don’t have to worry about the same.
@@ -70,32 +78,19 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 We are explaining the solutions here –
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
@@ -113,18 +108,15 @@ Here comes the guide –
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -151,22 +143,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/updated-a-beginners-journey-to-selecting-the-right-action-cam/"><u>[Updated] A Beginner’s Journey to Selecting the Right Action Cam</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-expert-tips-for-effortless-access-to-youtube-comments/"><u>[Updated] In 2024, Expert Tips for Effortless Access to YouTube Comments</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-nintendo-switch-top-hd-game-captures/"><u>[Updated] In 2024, Nintendo Switch Top HD Game Captures</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-most-upvoted-reddit-post-of-all-time-a-list-of-10/"><u>[Updated] In 2024, The Most Upvoted Reddit Post of All Time - (A List of 10)</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-seamless-listening-the-ipodcast-guidebook/"><u>[Updated] Seamless Listening The iPodcast Guidebook</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-techniques-for-swapping-your-images-tone-spectrum-for-2024/"><u>[Updated] Techniques for Swapping Your Image's Tone Spectrum for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-master-the-spectrum-advanced-hdr-tips-for-lightroom-pro/"><u>2024 Approved Master the Spectrum Advanced HDR Tips for Lightroom Pro</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/claude-pro-exploration-benchmarked-against-enhanced-chatgptplus/"><u>Claude Pro Exploration: Benchmarked Against Enhanced ChatGPT+</u></a></li>
-<li><a href="https://win-workspace.techidaily.com/complete-tutorial-on-executing-dism-from-an-external-source-for-windows-11-recovery/"><u>Complete Tutorial on Executing DISM From an External Source for Windows 11 Recovery</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-lava-blaze-pro-5g-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from Lava Blaze Pro 5G.</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-comedy-gold-examining-the-goofy-vhs-experience/"><u>In 2024, 'Comedy Gold' Examining the Goofy VHS Experience</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-remove-passcode-from-apple-iphone-12-complete-guide-drfone-by-drfone-ios/"><u>In 2024, How To Remove Passcode From Apple iPhone 12? Complete Guide | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-innovative-zooid-conceptual-models/"><u>In 2024, Innovative Zooid Conceptual Models</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Huawei Nova Y91? | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-ultimate-speed-loading-windows-photo-displayer/"><u>In 2024, Ultimate Speed-Loading Windows Photo Displayer</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-complete-transformers-cinematic-journey-a-viewers-guide-for-perfect-ordered-watching/"><u>The Complete Transformers Cinematic Journey: A Viewer's Guide for Perfect Ordered Watching</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/the-ultimate-guide-to-dji-drone-video-livestreams-on-fb/"><u>The Ultimate Guide to DJI Drone Video Livestreams on FB</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-mastering-altitude-with-djis-new-gadget-for-2024/"><u>[New] Mastering Altitude with DJI's New Gadget for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-pennywise-pilots-best-value-drones-for-(500-for-2024/"><u>[New] Pennywise Pilots Best Value Drones for <$500 for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-step-by-step-io-screen-capture-tutorial/"><u>[New] Step-by-Step IO Screen Capture Tutorial</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-ultimate-guide-to-streamline-your-podcast-on-google-for-2024/"><u>[New] The Ultimate Guide to Streamline Your Podcast on Google for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-creative-vanguard-collection-free-3d-text-psds-classics/"><u>[Updated] Creative Vanguard Collection Free 3D Text PSDS Classics</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-explore-the-best-top-10-4k-mirrorless-camera-lists/"><u>[Updated] In 2024, Explore the Best Top 10 4K Mirrorless Camera Lists</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-video-capture-pro-for-windows-10-ultimate-quality/"><u>2024 Approved Video Capture Pro for Windows 10 - Ultimate Quality</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-overcome-initial-black-outages-when-playing-monster-hunter-world/"><u>How to Overcome Initial Black Outages When Playing Monster Hunter: World?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-analyzing-aurora-hdr-quality/"><u>In 2024, Analyzing Aurora HDR Quality</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-lighting-the-way-in-film-tips-for-immaculate-visuals/"><u>In 2024, Lighting the Way in Film Tips for Immaculate Visuals</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-top-7-icloud-activation-bypass-tools-for-your-apple-iphone-6s-by-drfone-ios/"><u>In 2024, Top 7 iCloud Activation Bypass Tools For your Apple iPhone 6s</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/infinite-visual-vaults-blend-zero-cost-sky-spaces-with-premium-packages/"><u>Infinite Visual Vaults Blend Zero-Cost Sky Spaces With Premium Packages</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/m4v-a-mp4-gratuito-online-convertitore-movavi/"><u>M4V a MP4 Gratuito Online - Convertitore Movavi</u></a></li>
 </ul></div>
 

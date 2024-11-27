@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Mastering Focus and Depth with Videoleap's Zoom Feature"
-date: 2024-11-12T23:35:13.605Z
-updated: 2024-11-17T18:33:23.350Z
+date: 2024-11-25T18:43:25.556Z
+updated: 2024-11-27T20:20:15.511Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,10 @@ Videoleap is famous for providing the best video editing features to its users a
 
 ![video timeline videoleap](https://images.wondershare.com/filmora/article-images/2022/07/video-timeline-videoleap.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click on the part of the timeline that you want to edit and then select the tool that says "Transform". This tool is usually present at the bottom of your screen.
 
 ![transform vdieo videoleap](https://images.wondershare.com/filmora/article-images/2022/07/transform-vdieo-videoleap.jpg)
@@ -60,20 +64,21 @@ Sometimes the video contents need a dramatic zoom effect that should take place 
 
 ![preview timeline videoleap](https://images.wondershare.com/filmora/article-images/2022/07/preview-timeline-videoleap.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Then select the "keyframes" tool from the toolbar at the bottom of your screen.
 * Add the keyframes to the desired portion of the video and then navigate the timecode to the place on the timeline where you want to stop it. After that add another keyframe at that point and pinch in to zoom the video.
 
 ![add keyframes videoleap](https://images.wondershare.com/filmora/article-images/2022/07/add-keyframes-videoleap.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Now head to the second time code where you want to focus the subject and then click on it. Then click on the "Preview" icon and see whether it needs further changes.
 * When you are satisfied, simply export the project and your animated zoom video will be saved successfully.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Alternative way to Zoom Video on Computer
 
@@ -90,10 +95,7 @@ If for some reason you are not able to install and use Videoleap on your system 
 ![open the filmora application on pc](https://images.wondershare.com/filmora/guide/pan-zoom-feature-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * This will open 4 different types of tools regarding zoom functions. The first tool will help you to go from larger frames to smaller frames by zooming in. Thus, you can use this feature to bring details to a subject in your video. The second option helps you with zooming out from a smaller frame to a larger frame.
@@ -115,23 +117,13 @@ Videoleap is one of the leading video editing platforms available out there. The
 
 ![open the filmora application on pc](https://images.wondershare.com/filmora/guide/pan-zoom-feature-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * This will open 4 different types of tools regarding zoom functions. The first tool will help you to go from larger frames to smaller frames by zooming in. Thus, you can use this feature to bring details to a subject in your video. The second option helps you with zooming out from a smaller frame to a larger frame.
 * The third and fourth tools will help you achieve the Pan function from left to right and right to left respectively. This panning will be on a horizontal axis. You can also pan your video screen by using your mouse too.
 * You can select any of these options to zoom in, out, or pan your videos and create a stunning zoom effect on your videos.
 * When you are done with your editing process, save the video and the file will be exported to your PC.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -166,18 +158,18 @@ Videoleap is one of the leading video editing platforms available out there. The
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-mastering-lol-recording-three-easy-techniques/"><u>[New] 2024 Approved Mastering LOL Recording Three Easy Techniques</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-capturing-the-cloudline-in-your-backyard-the-revolutionary-dji-spark-unveiled-for-2024/"><u>[New] Capturing the Cloudline in Your Backyard The Revolutionary DJI Spark Unveiled for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-top-20-youtube-font-choices-for-striking-thumbnails/"><u>[Updated] Top 20 YouTube Font Choices for Striking Thumbnails</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-instantaneous-effortless-podcast-live/"><u>2024 Approved Instantaneous Effortless Podcast Live</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-new-wave-of-coding-excellence-av1-vs-vp9-face-off/"><u>2024 Approved The New Wave of Coding Excellence AV1 vs VP9 Face-Off</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/a-comprehensive-guide-to-mastering-gopro-hero5-time-lapse/"><u>A Comprehensive Guide to Mastering GoPro Hero5 Time-Lapse</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/a-nostalgic-journey-through-time-with-stop-motion-classics-for-2024/"><u>A Nostalgic Journey Through Time with Stop-Motion Classics for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/bluetooth-troubleshooting-windows-11-recovery-procedures/"><u>Bluetooth Troubleshooting: Windows 11 Recovery Procedures</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/crafting-melodies-insights-into-magixs-newest-sound-suite-2024/"><u>Crafting Melodies Insights Into Magix's Newest Sound Suite 2024</u></a></li>
-<li><a href="https://driver-error.techidaily.com/cure-persistent-bluetooth-on-windows-10/"><u>Cure Persistent Bluetooth on Windows 10</u></a></li>
-<li><a href="https://location-social.techidaily.com/does-infinix-hot-40-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Infinix Hot 40 Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-exclusive-discovery-of-the-best-10-sites-for-pristine-images/"><u>In 2024, Exclusive Discovery of the Best 10 Sites for Pristine Images</u></a></li>
-<li><a href="https://win-blog.techidaily.com/increased-firepower-unveiling-the-enhanced-gunplay-in-mass-effect-legendary-edition/"><u>Increased Firepower: Unveiling the Enhanced Gunplay in Mass Effect Legendary Edition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-thieye-t5-versus-jcb-xs30-best-choice/"><u>[New] 2024 Approved Thieye T5 Versus JCB XS30 Best Choice?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-iconic-20-anime-series-intros/"><u>[New] In 2024, Iconic 20 Anime Series Intros</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-troubleshooting-techniques-for-sudden-facebook-live-freezes/"><u>[New] In 2024, Troubleshooting Techniques for Sudden Facebook Live Freezes</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-iphone-photo-excellence-simple-tips-and-tricks/"><u>[New] IPhone Photo Excellence Simple Tips & Tricks</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-how-to-enrich-social-media-content-with-auto-generated-speech/"><u>[Updated] How to Enrich Social Media Content with Auto-Generated Speech</u></a></li>
+<li><a href="https://article-tips.techidaily.com/becoming-a-metaverse-veteran-top-7-gadgets-for-the-experts-for-2024/"><u>Becoming a Metaverse Veteran Top 7 Gadgets for the Experts for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Tecno Spark 10 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-crafting-professional-captions-with-top-online-aids-and-platforms/"><u>In 2024, Crafting Professional Captions with Top Online Aids and Platforms</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/mastering-the-art-of-uploading-videos-into-personalized-playlists-for-2024/"><u>Mastering the Art of Uploading Videos Into Personalized Playlists for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/mememorph-machine/"><u>MemeMorph Machine</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unlock-unbeatable-deal-enhance-audio-experience-and-ease-hearing-with-airpods-pro-2-now-just-24-cheaper-shop/"><u>Unlock Unbeatable Deal: Enhance Audio Experience and Ease Hearing with AirPods Pro 2, Now Just 24% Cheaper - Shop !</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/voice-command-utilization-no-cost/"><u>Voice Command Utilization No Cost</u></a></li>
+<li><a href="https://extra-information.techidaily.com/zoom-like-a-pro-top-video-gear-for-slow-motion-effects/"><u>Zoom Like a Pro Top Video Gear for Slow Motion Effects</u></a></li>
 </ul></div>
 

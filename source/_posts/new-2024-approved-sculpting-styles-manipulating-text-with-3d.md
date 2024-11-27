@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Sculpting Styles  Manipulating Text with 3D\""
-date: 2024-11-12T16:34:22.250Z
-updated: 2024-11-17T21:47:15.052Z
+date: 2024-11-22T18:56:58.793Z
+updated: 2024-11-27T17:59:54.933Z
 tags: 
   - screen-recording
   - ai video
@@ -53,6 +53,10 @@ Step4 Next, choose any color you want for your text from the panel on the screen
 
 ![change color](https://images.wondershare.com/filmora/article-images/adobe-illustrator-color.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step5 Align the text to make it easier to edit and move around the canvas later. Just click on it and then click on the three buttons in the image below. This section is located at the bottom-right corner of the screen.
 
 ![align text in illustrator](https://images.wondershare.com/filmora/article-images/adobe-illustrator-align.png)
@@ -61,15 +65,16 @@ Step6 Up next, you need to turn on your 3D Effects panel if it still needs to be
 
 ![turn on three d panel](https://images.wondershare.com/filmora/article-images/adobe-illustrator-3d-materials-window.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step7 Click on the box icon on the right side of the screen and select **“Extrude”** This will instantly transform your text into a 3D model.
 
 ![turn text into three d](https://images.wondershare.com/filmora/article-images/adobe-illustrator-panel.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step8 Now, all left to do is experiment with the settings in this panel and adjust how you want your 3D text to look. You can adjust its width, rotation, presets, angle, perspective, and so on. Just play around with the settings until you find your ideal result.
@@ -79,10 +84,7 @@ Step8 Now, all left to do is experiment with the settings in this panel and adju
 Step9 Finally, it's time to export the image, and you're all done.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Alternative Way to Create 3D Text Animation
@@ -96,10 +98,7 @@ You might not believe it, but there's an even more accessible and less expensive
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Create a 3D Text Effect In Filmora?
@@ -119,13 +118,6 @@ Step3 Double-click on the 3D title layer you dragged into the Timeline. When the
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
 If you want to learn more about Filmora’s fantastic features, please watch the video below to see what the latest version of Filmora 12 brings to you!
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -135,13 +127,6 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
 
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Create a 3D Text Effect In Filmora?
 
 The steps are simple. Just follow them precisely as you see here, and you won't have any problems.
@@ -152,6 +137,10 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
@@ -159,13 +148,6 @@ Step3 Double-click on the 3D title layer you dragged into the Timeline. When the
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
 If you want to learn more about Filmora’s fantastic features, please watch the video below to see what the latest version of Filmora 12 brings to you!
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -195,17 +177,20 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-discover-the-top-15-free-web-based-editing-solutions/"><u>[New] Discover the Top 15 FREE Web-Based Editing Solutions</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-efficient-strategies-for-posting-srt-files-to-social-media/"><u>[New] Efficient Strategies for Posting SRT Files to Social Media</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-free-access-to-10-superior-lut-resources/"><u>[New] Free Access to 10 Superior LUT Resources</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-frontiers-in-virtuality-industry-analysis-for-2024/"><u>[New] Frontiers in Virtuality Industry Analysis for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-evaluation-report-elite-parrot-ar-drone-20/"><u>[New] In 2024, Evaluation Report Elite Parrot AR Drone 2.0</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-comprehensive-guide-to-earnings-from-youtube-short-videos/"><u>[Updated] In 2024, A Comprehensive Guide to Earnings From YouTube Short Videos</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-legal-landscapes-understanding-youtube-and-cc-divergences-for-2024/"><u>[Updated] Legal Landscapes Understanding YouTube & CC Divergences for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-bring-life-to-stills-motion-blur-technique/"><u>In 2024, Bring Life to Stills Motion Blur Technique</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-a-found-iphone-xs-max-drfone-by-drfone-ios/"><u>In 2024, How To Unlock A Found iPhone XS Max? | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-mastering-the-art-of-speech-to-text-conversion-on-powerpoint-platform/"><u>In 2024, Mastering the Art of Speech-to-Text Conversion on PowerPoint Platform</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-meditative-playlist-top-10-free-tracks-for-serenity/"><u>In 2024, Meditative Playlist Top 10 Free Tracks for Serenity</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/still-using-pattern-locks-with-infinix-zero-5g-2023-turbo-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Infinix Zero 5G 2023 Turbo? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-tech-triumphs-10-high-definition-screen-recorder-tools/"><u>[New] 2024 Approved Tech Triumphs #10 High-Definition Screen Recorder Tools</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-slick-quick-fades-in-premiere/"><u>[New] In 2024, Slick Quick Fades in Premiere</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-explore-fauna-fun-top-12-android-simulation-games/"><u>[Updated] In 2024, Explore Fauna Fun Top 12 Android Simulation Games</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-perfect-pairing-sound-and-imagery-in-media-production/"><u>[Updated] Perfect Pairing Sound & Imagery in Media Production</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-the-journey-to-crafting-wow-worthy-collage-art/"><u>[Updated] The Journey to Crafting Wow-Worthy Collage Art</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/editorsuite-showcase-video-editor-features-and-reviews/"><u>EditorSuite Showcase – Video Editor Features & Reviews</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/effective-strategies-for-advertising-with-spotify/"><u>Effective Strategies for Advertising with Spotify</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/elite-virtuoso-broadcasting-services/"><u>Elite Virtuoso Broadcasting Services</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/enhance-filmmaking-on-iphone-top-camera-extensions-listed-for-2024/"><u>Enhance Filmmaking on iPhone Top Camera Extensions Listed for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/enhancing-visual-storytelling-with-premiere-text-styles/"><u>Enhancing Visual Storytelling with Premiere Text Styles</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/excellent-5-video-monitors-for-ps5-players/"><u>Excellent 5 Video Monitors for PS5 Players</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/explore-sj7s-high-definition-action-footage-in-new-review-for-2024/"><u>Explore SJ7's High-Definition Action Footage in New Review for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-uncover-the-best-6-screen-recording-software-on-mac/"><u>In 2024, Uncover the Best 6 Screen Recording Software on Mac</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/smooth-transition-from-iphones-jpegpng-files-to-pdf-format/"><u>Smooth Transition From iPhone's JPEG/PNG Files to PDF Format</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/superior-websites-promoting-youtube-media/"><u>Superior Websites Promoting YouTube Media</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Through the Lens, Through Editing  Pro Secrets of Stunning Art for 2024\""
-date: 2024-11-11T20:12:52.933Z
-updated: 2024-11-17T21:47:08.795Z
+date: 2024-11-22T18:38:15.742Z
+updated: 2024-11-27T20:57:38.808Z
 tags: 
   - screen-recording
   - ai video
@@ -42,17 +42,7 @@ Luckily, every photography editing software offers the primary crop tool. You ca
 ![crop the image](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Presets are your Friends
@@ -63,13 +53,6 @@ When processing multiple images at once, the editing process can be tiring and b
 
 Image alt: use presets for image editing
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Play With the Colors
 
 If you look around closely, you can find that everything is associated with a specific color. From the lush green grass to the vibrant dreamy blue skies, everything has its shade. But upon closer inspection, you will find that it’s not just a single constituent color. The grass’s green contains shades of yellow, brown, and orange too.
@@ -78,18 +61,15 @@ If you train your eye to see these hidden colors, you can easily make your image
 
 ![play with the image colors](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Adjust the Contrast
 
 One of the main reasons your images are looking flat is low contrast. Without a clear difference between foregrounds and backgrounds, the image can seemingly lack focus. You can play with the blacks and whites to adjust the contrast in your photo. Some of the best photography editing software offers a contrast slider that can help refine your image.
 
 ![adjust the image contrast](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Try Overlays
 
@@ -98,6 +78,10 @@ Layering different textures and images to your photo is a great way to create vi
 Overlays are also useful for creating double exposure effects in your image. If you want to highlight some specific part of your photo, you can do it by adding a simple overlay. You can even adjust the transparency and intensity of the overlay to reach the desired effect.
 
 ![apply overlays to image](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6\. Straighten the Horizon
 
@@ -114,10 +98,11 @@ During the photography editing process, a little split-tone can go a long way. T
 ![use split tone feature](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8\. Know your White Balance
@@ -128,6 +113,10 @@ While JPEG images can somewhat bend to a specific color temperature, RAW files o
 
 ![adjust image white balance](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 9\. Pay Attention to Details
 
 Being a photographer means having to keep a close eye on the details. No matter what type of photographs you are capturing, everything from nature to headshots requires keen attention to detail. One way of doing so is to remove spots or any background clutter from your picture.
@@ -136,19 +125,6 @@ Most of the prime photography editing apps offer spot removal tools. You will of
 
 ![remove the spots from image](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-9.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 10\. Don’t Take It Too Far
 
 It is quite easy to get carried away during photography editing. Remember not to take your editing a step too far. Try to keep the natural element of the image intact and avoid overdoing the contrast and color saturation. Heavy editing can often cause a perfectly good image to fall apart. Steer clear of unnatural editing and strong color grading.
@@ -156,16 +132,7 @@ It is quite easy to get carried away during photography editing. Remember not to
 ![do natural image editing](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-10.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Wrapping Up
@@ -198,16 +165,22 @@ You can try the photography editing tips mentioned above to enhance your images 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-supercharge-your-tweet-views-for-flawless-hd/"><u>[New] 2024 Approved Supercharge Your Tweet Views for Flawless HD</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-professional-techniques-for-superior-audacity-sessions-for-2024/"><u>[New] Professional Techniques for Superior Audacity Sessions for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-angled-artistry-a-guide-for-social-media-users-to-spin-their-photos-on-the-fly/"><u>[Updated] Angled Artistry A Guide for Social Media Users to Spin Their Photos on the Fly</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-skyrocket-your-storage-top-20-free-cloud-services-to-choose-from-1tbplus/"><u>[Updated] Skyrocket Your Storage - Top 20 Free Cloud Services to Choose From (1TB+)</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-best-rated-vr-joysticks-unveiled/"><u>2024 Approved Best-Rated VR Joysticks Unveiled</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-high-end-broadcast-decision-pmix-vs-wirecast-for-professionals/"><u>2024 Approved High-End Broadcast Decision PMix Vs. Wirecast for Professionals</u></a></li>
-<li><a href="https://app-tips.techidaily.com/companies-scale-up-genai-strategy-insights-from-a-new-bloombergzdnet-study/"><u>Companies Scale Up GenAI Strategy: Insights From a New Bloomberg/ZDNet Study</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/dasungs-colorful-new-addition-to-the-market-a-849-12-inch-flexible-touchscreen-paperlike-monitor/"><u>Dasung's Colorful New Addition to the Market: A $849, 12-Inch Flexible Touchscreen Paperlike Monitor</u></a></li>
-<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-google-pixel-8-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Google Pixel 8? Look No Further | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/resolving-the-error-how-to-fix-the-application-failed-to-launch-error-code-0xc0000142/"><u>Resolving the Error: How to Fix 'The Application Failed to Launch - Error Code 0xC0000142'</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-the-ultimate-guide-to-integrating-audacity-into-your-ubuntu-workflow-from-installation-to-uninstallation/"><u>Updated In 2024, The Ultimate Guide to Integrating Audacity Into Your Ubuntu Workflow - From Installation to Uninstallation</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-understanding-limits-to-instagram-videography/"><u>[New] Understanding Limits to Instagram Videography</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-unleashing-creativity-essential-tips-for-canva-pros/"><u>[New] Unleashing Creativity Essential Tips for Canva Pros</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-effortless-mpeg-creation-from-youtube-content/"><u>[Updated] 2024 Approved Effortless MPEG Creation From YouTube Content</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-best-of-the-best-smartphone-ready-vr-headset-roundup-for-2024/"><u>[Updated] Best of the Best Smartphone-Ready VR Headset Roundup for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-mastering-camera-stability-in-photo-and-video-for-2024/"><u>[Updated] Mastering Camera Stability in Photo & Video for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-proven-methods-for-snappy-signature-bg-removal/"><u>[Updated] Proven Methods for Snappy Signature Bg Removal</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-preventing-complete-loss-of-visuals-in-youtube-streaming/"><u>2024 Approved Preventing Complete Loss of Visuals in YouTube Streaming</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-silent-symphonies-tranquil-audio-transitioning-tools/"><u>2024 Approved Silent Symphonies Tranquil Audio Transitioning Tools</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-tap-into-audience-desires-strategies-for-video-templates/"><u>2024 Approved Tap Into Audience Desires Strategies for Video Templates</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-guide-to-text-preset-mastery/"><u>2024 Approved The Ultimate Guide to Text Preset Mastery</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-infinix-hot-30i-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Infinix Hot 30i to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-essential-techniques-for-securing-product-placements-on-youtube/"><u>In 2024, Essential Techniques for Securing Product Placements on Youtube</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-pinpointing-video-picks-s-social-landscape-facebook/"><u>In 2024, Pinpointing Video Picks 'S Social Landscape (Facebook)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/leading-vr-gear-for-drone-operators-for-2024/"><u>Leading VR Gear for Drone Operators for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-tecno-spark-10-5g-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Tecno Spark 10 5G? 7 Ways to Resolve | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/top-6-economical-action-cams-available-for-99-or-below/"><u>Top 6 Economical Action Cams Available for $99 or Below</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unveiling-streaming-screens-using-netflixs-pip-mode-for-2024/"><u>Unveiling Streaming Screens Using Netflix's PIP Mode for 2024</u></a></li>
 </ul></div>
 

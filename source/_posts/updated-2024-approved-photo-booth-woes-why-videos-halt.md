@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Photo Booth Woes  Why Videos Halt?\""
-date: 2024-11-14T17:50:10.028Z
-updated: 2024-11-17T23:35:48.346Z
+date: 2024-11-21T19:13:17.344Z
+updated: 2024-11-27T20:00:39.959Z
 tags: 
   - screen-recording
   - ai video
@@ -49,6 +49,10 @@ Here are some ways you can try to fix the photo booth from freezing:
 * When you record a video with the camera, be sure it works in iMovie (from the camera icon somewhere down the left-hand side). If the problem persists in iMovie, it indicates a problem with the camera hardware, necessitating the return of the Mac to Apple.
 * If iMovie works fine, try removing the Photo Booth preferences: /Library/Preferences/com.apple. In addition, PhotoBooth.plist should be deleted.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bonus tip: How to edit a video on a computer?
 
 Wondershare Filmora is the greatest [video editor for PC](https://tools.techidaily.com/wondershare/filmora/download/) on the market, without a doubt, and it deserves to be at the top of our list.
@@ -60,6 +64,10 @@ You'll discover some professional tools to help you improve video quality and ov
 To access the primary editing interface, open Wondershare Filmora and select "New Project." Then select "Import" to load files from your computer. You can also connect your devices by dragging and dropping files into the software or using the Import option. Filmora can handle images, video, and audio files with ease.
 
 ![photo-booth-video-freezing-](https://images.wondershare.com/filmora/article-images/2022/05/photo-booth-video-freezing-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2: Organize the media**
 
@@ -75,16 +83,13 @@ You may now disconnect the audio and video files, add music, make transitions be
 
 ![photo-booth-video-freezing-](https://images.wondershare.com/filmora/article-images/2022/05/photo-booth-video-freezing-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If you want to add opening titles, end credits, or subtitles to a video, click the Text /Credit icon. The software comes with various text templates that you can use for various reasons. Drag and drop the template you chose to the proper spot on the timeline, then use the software's preview box to add the required text.
 
 ![photo-booth-video-freezing-](https://images.wondershare.com/filmora/article-images/2022/05/photo-booth-video-freezing-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Next to the Text/Credit symbol, you'll find the Transitions icon in the editor's toolbar, which gives you access to hundreds of settings. Learn more about video transitions and how to apply them in Filmora by watching this video tutorial.
 
@@ -132,10 +137,7 @@ Filmora's Media tab, underneath the Load button, will hold the files you import 
 ![photo-booth-video-freezing-](https://images.wondershare.com/filmora/article-images/2022/05/photo-booth-video-freezing-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 To create and name a new folder, click the Add a New Folder icon in the top right corner of the editor's screen, situated at the bottom of the My Project page. You can sort the footage alphabetically or any other way that improves your efficiency and reduces the time you spend looking through files.
@@ -161,10 +163,7 @@ Select the file type that best suits the project you're working on from the Form
 ![photo-booth-video-freezing-](https://images.wondershare.com/filmora/article-images/2022/05/photo-booth-video-freezing-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 How to fix the photo booth video to keep freezing?
@@ -196,25 +195,11 @@ To access the primary editing interface, open Wondershare Filmora and select "Ne
 
 ![photo-booth-video-freezing-](https://images.wondershare.com/filmora/article-images/2022/05/photo-booth-video-freezing-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2: Organize the media**
 
 Filmora's Media tab, underneath the Load button, will hold the files you import into the editor. However, when searching for the video clips, you want to add to the timeline, working with many different files in a single project becomes considerably more difficult. To reduce clutter and confusion, use the My Album feature, which allows you to create folders and organize your files.
 
 ![photo-booth-video-freezing-](https://images.wondershare.com/filmora/article-images/2022/05/photo-booth-video-freezing-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 To create and name a new folder, click the Add a New Folder icon in the top right corner of the editor's screen, situated at the bottom of the My Project page. You can sort the footage alphabetically or any other way that improves your efficiency and reduces the time you spend looking through files.
 
@@ -224,15 +209,16 @@ You may now disconnect the audio and video files, add music, make transitions be
 
 ![photo-booth-video-freezing-](https://images.wondershare.com/filmora/article-images/2022/05/photo-booth-video-freezing-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you want to add opening titles, end credits, or subtitles to a video, click the Text /Credit icon. The software comes with various text templates that you can use for various reasons. Drag and drop the template you chose to the proper spot on the timeline, then use the software's preview box to add the required text.
 
 ![photo-booth-video-freezing-](https://images.wondershare.com/filmora/article-images/2022/05/photo-booth-video-freezing-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Next to the Text/Credit symbol, you'll find the Transitions icon in the editor's toolbar, which gives you access to hundreds of settings. Learn more about video transitions and how to apply them in Filmora by watching this video tutorial.
@@ -274,18 +260,15 @@ To access the primary editing interface, open Wondershare Filmora and select "Ne
 
 ![photo-booth-video-freezing-](https://images.wondershare.com/filmora/article-images/2022/05/photo-booth-video-freezing-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2: Organize the media**
 
 Filmora's Media tab, underneath the Load button, will hold the files you import into the editor. However, when searching for the video clips, you want to add to the timeline, working with many different files in a single project becomes considerably more difficult. To reduce clutter and confusion, use the My Album feature, which allows you to create folders and organize your files.
 
 ![photo-booth-video-freezing-](https://images.wondershare.com/filmora/article-images/2022/05/photo-booth-video-freezing-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 To create and name a new folder, click the Add a New Folder icon in the top right corner of the editor's screen, situated at the bottom of the My Project page. You can sort the footage alphabetically or any other way that improves your efficiency and reduces the time you spend looking through files.
 
@@ -295,16 +278,13 @@ You may now disconnect the audio and video files, add music, make transitions be
 
 ![photo-booth-video-freezing-](https://images.wondershare.com/filmora/article-images/2022/05/photo-booth-video-freezing-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If you want to add opening titles, end credits, or subtitles to a video, click the Text /Credit icon. The software comes with various text templates that you can use for various reasons. Drag and drop the template you chose to the proper spot on the timeline, then use the software's preview box to add the required text.
 
 ![photo-booth-video-freezing-](https://images.wondershare.com/filmora/article-images/2022/05/photo-booth-video-freezing-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Next to the Text/Credit symbol, you'll find the Transitions icon in the editor's toolbar, which gives you access to hundreds of settings. Learn more about video transitions and how to apply them in Filmora by watching this video tutorial.
 
@@ -340,14 +320,24 @@ Select the file type that best suits the project you're working on from the Form
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-optimize-workflow-effective-methods-of-capturing-macs-screen-via-shortcut-keys/"><u>[New] Optimize Workflow Effective Methods of Capturing Mac’s Screen via Shortcut Keys</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-precise-methods-for-creating-impactful-client-spots-on-film/"><u>[New] Precise Methods for Creating Impactful Client Spots on Film</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-how-to-live-stream-to-facebook-from-dji-drone/"><u>[Updated] 2024 Approved How to Live Stream to Facebook From DJI Drone?</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-unlocking-potential-switch-pro-controller-on-steam/"><u>[Updated] 2024 Approved Unlocking Potential Switch Pro Controller on Steam</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-crafting-an-engaging-tiktok-closing-credits/"><u>[Updated] In 2024, Crafting An Engaging TikTok Closing Credits</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/expert-tweeting-tools-top-video-converters/"><u>Expert Tweeting Tools - Top Video Converters</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-best-10-camera-lenses-to-use/"><u>In 2024, Best 10 Camera Lenses to Use</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/tap-into-the-rhythm-web-free-and-comprehensive-for-2024/"><u>Tap Into the Rhythm Web (FREE & Comprehensive) for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-narakeet-review-text-to-speech-convenient-voice-maker/"><u>Updated In 2024, Narakeet Review Text to Speech Convenient Voice Maker</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-scrutinizing-vrs-enchantment-and-challenges-ahead/"><u>[New] 2024 Approved Scrutinizing VR's Enchantment and Challenges Ahead</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-are-m1-laptops-setting-the-standard-in-editing-studios/"><u>[New] Are M1 Laptops Setting the Standard in Editing Studios?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-eliminating-suggested-podcast-selections-on-spotify-for-2024/"><u>[New] Eliminating Suggested Podcast Selections on Spotify for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-exploring-hand-tracking-an-in-depth-look-for-2024/"><u>[Updated] Exploring Hand Tracking An In-Depth Look for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-free-visual-magic-for-your-videos-online/"><u>[Updated] Free Visual Magic for Your Videos Online</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-explore-best-gopro-cases-rated-1-10/"><u>[Updated] In 2024, Explore Best GoPro Cases Rated #1-10</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-return-crafting-kit/"><u>[Updated] In 2024, Return Crafting Kit</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-resonant-revelry-auditory-additions-to-whatsapp-statues/"><u>[Updated] Resonant Revelry Auditory Additions to WhatsApp Statues</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unveiling-the-art-of-video-crafting-on-pc-for-youtube-audiences/"><u>[Updated] Unveiling the Art of Video Crafting on PC for YouTube Audiences</u></a></li>
+<li><a href="https://fox-links.techidaily.com/a-complete-look-at-hand-recognition-systems/"><u>A Complete Look at Hand Recognition Systems</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/engage-audiences-with-substance-mastering-the-art-of-tiktok-captions-top-5/"><u>Engage Audiences with Substance Mastering the Art of TikTok Captions (Top 5)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-laugh-ledger-a-treasure-trove-of-free-meme-creations/"><u>In 2024, Laugh Ledger A Treasure Trove of FREE Meme Creations</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-pickus-claim-the-ultimate-editor-or-just-another-featured-app-in-android/"><u>In 2024, PickU's Claim – The Ultimate Editor or Just Another Featured App in Android?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/kit-list-for-road-trip-movie-making-for-2024/"><u>Kit List for Road-Trip Movie Making for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/reviving-your-typing-experience-how-to-perform-a-full-keyboard-reset/"><u>Reviving Your Typing Experience: How to Perform a Full Keyboard Reset</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/solidify-zoom-sounds-avoid-amplified-annoyances-for-2024/"><u>Solidify Zoom Sounds Avoid Amplified Annoyances for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/spotting-sham-talkers-openais-solution-for-chatgpt-fakes/"><u>Spotting Sham Talkers: OpenAI's Solution for ChatGPT Fakes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-pioneer-bdr-xs06-portability-without-compromise-on-performance-in-high-quality-dvd-burning/"><u>The Pioneer BDR-XS06 - Portability Without Compromise on Performance in High-Quality DVD Burning</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/the-ultimate-list-10-best-phones-and-pc-for-chatting-for-2024/"><u>The Ultimate List 10 Best Phones & PC for Chatting for 2024</u></a></li>
 </ul></div>
 

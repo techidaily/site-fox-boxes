@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Shades & Tints in Action  Practical Application for 2024\""
-date: 2024-11-14T20:08:36.486Z
-updated: 2024-11-17T22:28:36.141Z
+date: 2024-11-21T16:02:26.600Z
+updated: 2024-11-27T16:19:16.782Z
 tags: 
   - screen-recording
   - ai video
@@ -27,11 +27,19 @@ If you are more selective with your colors in your videos or imagery the viewer 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is Color Theory
 
 Color theory consists of many elements that could fill a library on its own but for this guide we will focus on two key elements. The color wheel and color harmony. By understanding the color wheel and color harmony you can hand pick which colors to add or use in your pieces to create a well-balanced viewing experience which can help in viewer engagement and enjoyment.
 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Color Wheel
 
@@ -48,10 +56,7 @@ So now we know how the wheel is made and what it looks like. What does it do? We
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
@@ -69,10 +74,7 @@ You may still be unsure as to how to implement color theory into your videos. Le
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
@@ -81,20 +83,10 @@ As you can see from this example the base color for the scene is a dark blue/pur
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -131,20 +123,14 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-flash-frame-filmmakers-plan/"><u>[New] 2024 Approved Flash Frame Filmmaker's Plan</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-digital-dreamscapes-compared-metaverse-vs-omniverse-in-the-limelight/"><u>[New] In 2024, Digital Dreamscapes Compared Metaverse Vs. Omniverse in the Limelight</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-guide-to-selecting-9-superior-streamscape-filters/"><u>[New] The Ultimate Guide to Selecting 9 Superior Streamscape Filters</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-superior-viewing-experience-essentials-of-4k-downloading/"><u>[Updated] Superior Viewing Experience Essentials of 4K Downloading</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-top-5-ultra-hd-screens-mastering-hue-and-shade-for-2024/"><u>[Updated] Top 5 Ultra-HD Screens Mastering Hue and Shade for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-how-to-download-final-cut-pro-for-free/"><u>2024 Approved How to Download Final Cut Pro for Free?</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/game-review-commanding-power-in-tropico-6s-paradise-isle/"><u>Game Review: Commanding Power in Tropico 6'S Paradise Isle</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/get-the-complete-toolset-for-macxdvd-secure-your-legitimate-full-version-today-complimentary/"><u>Get the Complete Toolset for MacXDVD – Secure Your Legitimate Full Version Today, Complimentary!</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/guia-gratuita-para-reparar-videos-mp4-danados-en-computadoras-mac-y-windows/"><u>Guía Gratuita Para Reparar Vídeos MP4 Dañados en Computadoras Mac Y Windows</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-movie-journey-for-inspiration-seekers/"><u>In 2024, The Ultimate Movie Journey for Inspiration Seekers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leading-edge-lens-tripod-travelers-trusty-sidekick/"><u>Leading-Edge Lens Tripod: Traveler's Trusty Sidekick</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/professional-video-editing-does-m1-macbook-air-hold-up-for-2024/"><u>Professional Video Editing Does M1 MacBook Air Hold Up for 2024</u></a></li>
-<li><a href="https://win-info.techidaily.com/securing-multiple-drives-on-windows-11-a-comprehensive-guide/"><u>Securing Multiple Drives on Windows 11 – A Comprehensive Guide</u></a></li>
-<li><a href="https://apple-account.techidaily.com/troubleshooting-error-connecting-to-the-apple-id-server-from-iphone-se-2022-by-drfone-ios/"><u>Troubleshooting Error Connecting to the Apple ID Server From iPhone SE (2022)</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/uniting-sections-smoothly-inshot-transition-essentials/"><u>Uniting Sections Smoothly Inshot Transition Essentials</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-subtitled-out-of-a-zip-how-to-convert-files/"><u>[New] 2024 Approved Subtitled Out of a Zip! How To Convert Files</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-swift-guide-eliminating-images-backdrops-with-affinity-photo/"><u>[Updated] Swift Guide Eliminating Images' Backdrops with Affinity Photo</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-top-30-whatsapp-biographies-for-every-astrology-follower-for-2024/"><u>[Updated] Top 30 WhatsApp Biographies for Every Astrology Follower for 2024</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-5-ways-to-send-ringtones-from-apple-iphone-13-pro-to-iphone-including-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 5 Ways to Send Ringtones from Apple iPhone 13 Pro to iPhone Including iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-videos-from-realme-narzo-60-5g-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Videos from Realme Narzo 60 5G to iPad | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-stolen-iphone-14-pro-max-in-different-conditionsin-by-drfone-ios/"><u>In 2024, How To Unlock Stolen iPhone 14 Pro Max In Different Conditionsin</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-the-pro-drone-experience-a-thorough-look-at-dji-phantom-4/"><u>In 2024, The Pro Drone Experience A Thorough Look at DJI Phantom 4</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/mov-video-rotator-top-5-free-downloads-for-2024/"><u>MOV Video Rotator Top 5 Free Downloads for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/wie-man-onedrive-unter-windows-10-nicht-mehr-entfernen-kann-vier-effiziente-methoden/"><u>Wie Man OneDrive Unter Windows 10 Nicht Mehr Entfernen Kann: Vier Effiziente Methoden</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Streamlining Windows Photos Experience with Music and Aesthetic Filters"
-date: 2024-11-13T20:15:21.129Z
-updated: 2024-11-17T21:17:57.938Z
+date: 2024-11-25T17:26:32.900Z
+updated: 2024-11-27T20:38:14.003Z
 tags: 
   - screen-recording
   - ai video
@@ -50,6 +50,10 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
 **Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
@@ -57,13 +61,6 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
 **Step 5**: Just select one you like. Preview it and then click Done.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How to add music on Windows 10 Photos App
 
@@ -78,23 +75,21 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5**: Hit the ‘Done’ button.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -104,10 +99,7 @@ From the above article, we conclude that Windows 10 Photos app is an amazing app
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -135,20 +127,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-mobile-communication-redefined-best-10-secured-free-video-call-apps-to-keep-you-covered-on-devices-for-2024/"><u>[Updated] Mobile Communication Redefined Best 10 Secured, Free Video Call Apps to Keep You Covered on Devices for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-cinematic-upgrade-gopro-hero5-black-vs-hero4-silver-edition/"><u>2024 Approved Cinematic Upgrade GoPro Hero5 Black vs Hero4 Silver Edition</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-exclusive-metaverse-playmates-list-roundup/"><u>2024 Approved Exclusive Metaverse Playmates' List Roundup</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-frosty-slopes-showdown-olympic-snowboard-cross-action/"><u>2024 Approved Frosty Slopes Showdown Olympic Snowboard Cross Action</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-perfecting-pixels-lighting-setup-secrets-unveiled/"><u>2024 Approved Perfecting Pixels Lighting Setup Secrets Unveiled</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/apple-podcasts-get-your-audio-fix-instantly-for-2024/"><u>Apple Podcasts Get Your Audio Fix Instantly for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/best-companions-for-podcast-lovers-activities-and-tasks-for-2024/"><u>Best Companions for Podcast Lovers Activities and Tasks for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/compare-and-save-with-top-6-affordable-camera-picks-for-2024/"><u>Compare and Save with Top 6 Affordable Camera Picks for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/converging-zoom-and-fb-live-for-professional-broadcasts/"><u>Converging ZOOM and FB Live for Professional Broadcasts</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/crucial-tech-devices-every-modern-learner-should-possess/"><u>Crucial Tech Devices Every Modern Learner Should Possess</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/efficient-techniques-for-correcting-the-not-detected-msvcrt40dll-problem/"><u>Efficient Techniques for Correcting the 'Not Detected: msvcrt40.dll' Problem</u></a></li>
-<li><a href="https://program-issues.techidaily.com/mastering-roller-champions-multiplayer-mayhem-a-step-by-step-strategy-guide-for-pc-gamers/"><u>Mastering Roller Champions Multiplayer Mayhem: A Step-by-Step Strategy Guide for PC Gamers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/stellaris-unveiled-mastering-the-cosmos-in-an-epic-strategy-adventure/"><u>Stellaris Unveiled: Mastering the Cosmos in an Epic Strategy Adventure</u></a></li>
-<li><a href="https://win-dash.techidaily.com/step-by-step-guide-burning-business-dvds-using-a-windows-pc/"><u>Step-by-Step Guide: Burning Business DVDs Using a Windows PC</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/0-global-youtube-personalities-peak-of-viewership/"><u>Top 10 Global YouTube Personalities Peak of Viewership</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-get-hooked-our-curated-12-best-pc-clicker-titles/"><u>[New] 2024 Approved Get Hooked Our Curated 12 Best PC Clicker Titles</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-grateful-reels-exclusive-free-and-paid-otus/"><u>[New] In 2024, Grateful Reels Exclusive Free & Paid OTUs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-mastering-youtube-traffic-for-new-content-creators/"><u>[New] In 2024, Mastering YouTube Traffic for New Content Creators</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-recording-webinars/"><u>[New] In 2024, Recording Webinars</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-quick-load-techniques-to-enhance-tiktok-videography-for-2024/"><u>[New] Quick-Load Techniques to Enhance TikTok Videography for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-ultimate-guide-to-controlling-playback-rate-on-snapchat/"><u>[New] The Ultimate Guide to Controlling Playback Rate on Snapchat</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-10-top-ranked-no-cost-image-format-switchers-jpg-to-gif/"><u>[Updated] 10 Top-Ranked No-Cost Image Format Switchers (JPG to GIF)</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-proficiently-upload-impressive-elongated-youtube-content/"><u>[Updated] 2024 Approved How to Proficiently Upload Impressive, Elongated YouTube Content</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-iconic-20-anime-series-intros/"><u>[Updated] 2024 Approved Iconic 20 Anime Series Intros</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-turning-tape-backwards-instagrams-video-trickery/"><u>[Updated] In 2024, Turning Tape Backwards Instagram's Video Trickery</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-smartly-craft-your-podcast-title-with-these-tools/"><u>[Updated] Smartly Craft Your Podcast Title with These Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-through-the-lens-through-editing-pro-secrets-of-stunning-art-for-2024/"><u>[Updated] Through the Lens, Through Editing Pro Secrets of Stunning Art for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/discover-the-ultimate-selection-8-favourite-free-roku-channels-this-year/"><u>Discover the Ultimate Selection: 8 Favourite Free Roku Channels This Year!</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-tecno-spark-20-pro-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Tecno Spark 20 Pro to New Android? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/lightning-speed-view-for-windows-photos-for-2024/"><u>Lightning Speed View for Windows Photos for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-insights-into-its-pedagogy/"><u>Mondly: Insights Into Its Pedagogy</u></a></li>
 </ul></div>
 

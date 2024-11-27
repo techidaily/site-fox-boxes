@@ -1,7 +1,7 @@
 ---
 title: "PureImage's Backdrop Refinement Feature"
-date: 2024-11-10T23:09:30.554Z
-updated: 2024-11-17T23:24:14.204Z
+date: 2024-11-24T16:56:20.044Z
+updated: 2024-11-27T20:04:46.871Z
 tags: 
   - screen-recording
   - ai video
@@ -31,13 +31,6 @@ No matter you are a professional content creator or a newbie, we'll be discussin
 
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Erase a White Background in Affinity Designer
 
 To erase a white background in Affinity Designer, do these steps:
@@ -52,16 +45,13 @@ Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and 
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
 
@@ -70,13 +60,6 @@ Step4 Next, zoom in on your subject. Press & hold the ALT key on your keyboard, 
 Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** menu. A red mask will be applied to your subject, giving you an idea of how your image will look once you remove the background. Zoom in and if any details are excluded, paint them over. Once you are satisfied, click **"Apply"** to save your changes.
 
 ![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
 
@@ -109,7 +92,15 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Best Alternative of Affinity Photo
 
@@ -118,6 +109,10 @@ Since Affinity Photo is a desktop software available for a one-time purchase of 
 Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
@@ -134,6 +129,10 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Create a free account for easier future access.
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -145,13 +144,6 @@ And if you have any interests in finding free images to expand your resource, yo
 
 Hopefully, this article and video can help you create ideal images!
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The Best Alternative of Affinity Photo
 
 Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
@@ -175,13 +167,6 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Create a free account for easier future access.
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -217,14 +202,24 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-ignite-passion-an-essential-guide-to-10-motivational-films/"><u>[New] Ignite Passion An Essential Guide to 10 Motivational Films</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-meringue-movie-magic-step-by-step-guide-to-ice-cream-capture/"><u>[Updated] 2024 Approved Meringue Movie Magic Step-by-Step Guide to Ice Cream Capture</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-the-reimagined-sony-bdp-s6700-experience/"><u>[Updated] 2024 Approved The Reimagined Sony BDP-S6700 Experience</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-photo-pace-crafting-time-lapse-videos-on-your-galaxy-phone/"><u>[Updated] In 2024, Photo Pace Crafting Time-Lapse Videos on Your Galaxy Phone</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/1726223380696-wav3g2movavi/"><u>無料で効果的なWAVファイルと3G2形式間のMovaviオンライン変換ツール</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/full-tutorial-to-bypass-your-samsung-galaxy-a05s-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Samsung Galaxy A05s Face Lock?</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-breaking-down-sony-bdp-s6700-updates/"><u>In 2024, Breaking Down Sony BDP-S6700 Updates</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-superior-video-capture-leading-webcams-for-podcasts/"><u>In 2024, Superior Video Capture Leading Webcams for Podcasts</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210187876-9781250817761-the-prophet-the-complete-original-edition/"><u>The Prophet: The Complete Original Edition | Free Book</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-fine-tuning-fade-effects-in-music-software/"><u>[New] 2024 Approved Fine-Tuning Fade Effects in Music Software</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-essential-online-sources-for-high-quality-tones/"><u>[New] In 2024, Essential Online Sources for High-Quality Tones</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-shades-and-tints-in-action-practical-application-for-2024/"><u>[New] Shades & Tints in Action Practical Application for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-enhance-browsing-performance-unlocking-the-power-of-picture-in-picture/"><u>[Updated] 2024 Approved Enhance Browsing Performance Unlocking the Power of Picture-in-Picture</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-gtx-gems-the-best-for-high-res-gaming/"><u>[Updated] 2024 Approved GTX Gems The Best for High-Res Gaming</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-pinnacle-video-capture-selecting-the-top-7-4k-camcorders/"><u>[Updated] 2024 Approved Pinnacle Video Capture Selecting the Top 7 4K Camcorders</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-echovideo-capture-toolkit-for-fb-for-2024/"><u>[Updated] EchoVideo Capture Toolkit for FB for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-aural-elements-in-online-visuals/"><u>[Updated] In 2024, Aural Elements in Online Visuals</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-loves-anthem-top-10-songs-that-define-proposal-moments-for-2024/"><u>[Updated] Love's Anthem Top 10 Songs That Define Proposal Moments for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-advanced-hd-screen-documentation-gadgets/"><u>2024 Approved Advanced HD Screen Documentation Gadgets</u></a></li>
+<li><a href="https://app-tips.techidaily.com/how-to-remove-icloud-backup-data-from-your-iphone-pc-or-mac-save-storage/"><u>How to Remove iCloud Backup Data From Your iPhone, PC, or Mac: Save Storage</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-resonant-rhythms-where-to-download-classical-ringtones/"><u>In 2024, Resonant Rhythms Where to Download Classical Ringtones</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/jumpstart-your-marketing-game-with-these-top-reddit-insights/"><u>Jumpstart Your Marketing Game with These Top Reddit Insights</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/navigating-the-net-abroad-check-out-our-2024-guide-to-premium-travel-vpns-tested-by-pros-cnet/"><u>Navigating the Net Abroad? Check Out Our 2024 Guide to Premium Travel VPNs, Tested by Pros | CNET</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-strategies-for-excelling-at-pokemon-unite/"><u>Step-by-Step Strategies for Excelling at Pokémon Unite</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/strategies-to-locate-your-clandestine-snaps-for-2024/"><u>Strategies to Locate Your Clandestine Snaps for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-underrated-value-of-gaming-accessories/"><u>The Underrated Value of Gaming Accessories</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-unseen-enthusiasts-blueprint-for-instagram-live-viewership-for-2024/"><u>The Unseen Enthusiast’s Blueprint for Instagram Live Viewership for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Vivo S17t | Dr.fone</u></a></li>
 </ul></div>
 

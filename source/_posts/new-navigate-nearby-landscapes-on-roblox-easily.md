@@ -1,7 +1,7 @@
 ---
 title: "[New] Navigate Nearby Landscapes on Roblox Easily"
-date: 2024-11-13T21:46:01.010Z
-updated: 2024-11-17T23:26:01.120Z
+date: 2024-11-22T18:22:58.326Z
+updated: 2024-11-27T20:16:10.015Z
 tags: 
   - screen-recording
   - ai video
@@ -26,6 +26,10 @@ The modern gamers have made Roblox the center of attention on social media, wher
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Way 1\. Zoom In/Out with Keyboard Shortcut
 
@@ -55,20 +59,25 @@ Step1Go to the Roblox website in your favourite web browser by opening it. Start
 
 ![start testing game session roblox](https://images.wondershare.com/filmora/article-images/2022/07/start-testing-game-session-roblox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2Once your gaming session has begun, you may zoom by using the wheel while moving ahead. Once again, if you scroll all the way down, this action will put you in first person perspective. Now all you have to do is use your cursor to scroll ahead to zoom in.
 
 ![zoom in with cursoe scroll](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-with-cursoe-scroll.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step3When the game's map is in your field of vision and you reach the maximum zoom level, just scroll backward with your mouse to zoom out. It will be essential to do the opposite operation, namely scroll the other direction, to zoom out on your character, in order to zoom in.
 
 Step4In order to play at your selected zoom level, scroll backwards and forth. Because your character will be presented in such tiny type, it will be challenging to play comfortably and see it clearly. Therefore, maintaining balance is crucial in order to have the zoom adjusted to your preferred playing style.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Way 3\. Use Xbox Controller Thumbsticks to Zoom
 
@@ -80,16 +89,13 @@ Step1There is a simple and convenient technique to manage the zoom while playing
 
 ![push r3 button ontroller](https://images.wondershare.com/filmora/article-images/2022/07/push-r3-button-controller.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2Zoom in by pressing forward on the right thumbstick that has been clicked down.
 
 ![press forward right thumbstick](https://images.wondershare.com/filmora/article-images/2022/07/press-forward-right-thumbstick.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3Pull rearward on the clicked-down right thumbstick to zoom out. The same joystick (right) must constantly be pulled rearward to zoom out.
 
@@ -103,13 +109,6 @@ Step1Open the Roblox app, sign in, and then start a test gaming session. The fir
 
 ![zoom in roblox teblet](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-roblox-teblet.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2To zoom, just use two fingers and slide them apart (for zooming in) or together (for zooming out) like you would to do so on a smartphone (zoom out).
 
 ![zoom roblox with fingers](https://images.wondershare.com/filmora/article-images/2022/07/zoom-roblox-with-fingers.jpg)
@@ -119,13 +118,6 @@ Step3You will be given the best method using the touchpad: while holding down th
 Step4The camera angle and/or your character will only move if one of your fingers, preferably the index, remains steady on the screen. This will prevent the zoom level from changing.
 
 ![zoom character on roblox](https://images.wondershare.com/filmora/article-images/2022/07/zoom-character-on-roblox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -163,14 +155,20 @@ You may wish to change your viewpoint when playing games on Roblox, the most cut
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-cut-the-confusion-learn-quickly-how-to-add-timestamps-in-videos/"><u>[New] Cut the Confusion Learn Quickly How to Add Timestamps in Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-10-key-tactics-to-amplify-your-youtube-presence-and-engagement-for-2024/"><u>[Updated] 10 Key Tactics to Amplify Your YouTube Presence and Engagement for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-art-of-crafting-gopro-time-lapses/"><u>2024 Approved The Art of Crafting GoPro Time-Lapses</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-unbeatable-prices-for-top-6-action-cams-under-100/"><u>2024 Approved Unbeatable Prices for Top 6 Action Cams Under $100</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-honor-100-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Honor 100? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-sony-xperia-5-v-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Sony Xperia 5 V to Another | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-instagram-image-enhancement-tips/"><u>In 2024, Instagram Image Enhancement Tips</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/introducing-the-user-friendly-overhaul-of-stellars-data-rescue-application/"><u>Introducing the User-Friendly Overhaul of Stellar’s Data Rescue Application</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/kid-tested-wet-weather-videography-gear-for-newbies-for-2024/"><u>Kid-Tested Wet Weather Videography Gear for Newbies for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-harnessing-the-potential-of-youtube-shorts-advertising-for-2024/"><u>[New] Harnessing the Potential of YouTube Shorts Advertising for 2024</u></a></li>
+<li><a href="https://discover-able.techidaily.com/comprehensive-guide-to-using-aomei-image-deployment-essential-qandas/"><u>Comprehensive Guide to Using AOMEI Image Deployment - Essential Q&As</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/easy-broadcast-obs-plus-streamlabs-tutorial-for-mac-users/"><u>Easy Broadcast OBS + Streamlabs Tutorial for Mac Users</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/easy-to-follow-tips-for-hassle-free-high-dynamic-range-imaging-for-2024/"><u>Easy-to-Follow Tips for Hassle-Free High Dynamic Range Imaging for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/elevate-your-mobile-game-skills-a-deep-dive-into-kinemaster-review/"><u>Elevate Your Mobile Game Skills A Deep Dive Into KineMaster Review</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/elite-editions-high-end-macpc-video-decode-tools-for-2024/"><u>Elite Editions High-End Mac/PC Video Decode Tools for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/enhance-your-videos-with-easy-cuts-on-windows-11/"><u>Enhance Your Videos with Easy Cuts on Windows 11</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/enrich-your-browsing-routine-picture-in-picture-techniques-for-edge-for-2024/"><u>Enrich Your Browsing Routine Picture-in-Picture Techniques for Edge for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/expert-tips-to-soften-sound-tracks-in-logic-pro-for-2024/"><u>Expert Tips to Soften Sound Tracks in Logic Pro for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-and-retrieve-picturesvideos-from-a-water-damaged-iphone-11-pro-max-that-wont-turn-on-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Fix & Retrieve Pictures/Videos From a Water Damaged iPhone 11 Pro Max That Wont Turn on | Stellar</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Motorola G54 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/necessary-processor-velocity-how-quick-should-your-computer-operate/"><u>Necessary Processor Velocity: How Quick Should Your Computer Operate?</u></a></li>
+<li><a href="https://windows11.techidaily.com/steps-to-overcome-upgrade-errors-on-windows-11-systems/"><u>Steps to Overcome Upgrade Errors on Windows 11 Systems</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/260439-9781101220054-the-haunting-of-the-presidents/"><u>The Haunting of the Presidents | Free Book</u></a></li>
 </ul></div>
 

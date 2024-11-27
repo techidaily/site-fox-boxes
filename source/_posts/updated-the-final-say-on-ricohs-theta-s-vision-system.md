@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Final Say on Ricoh's Theta S Vision System"
-date: 2024-11-15T19:04:37.587Z
-updated: 2024-11-17T22:02:21.811Z
+date: 2024-11-21T21:01:44.811Z
+updated: 2024-11-27T20:10:57.649Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,10 @@ Large numbers of people are talking about Ricoh these days so it becomes essenti
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1 Complete Review of Ricoh Theta S
 
 **Brief Introduction about Ricoh Theta S**
@@ -56,6 +60,10 @@ Theta S is going to serve like a push button to the growing world of spherical i
 **How to use**
 
 ![Ricoh Theta S - How to use](https://images.wondershare.com/filmora/article-images/ricoh-theta-S-details.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This Theta S camera unit can be easily used by beginners as well as professional photographers because of its incredibly interactive features. Simply turn on your camera by pressing the button provided and release the shutter; as it used to cover spherical images so you are advised to hold camera till the time it captures scene around you. The Wi-Fi facility as well as the self-timer feature is very handy so you need not to worry about anything. It can be directly connected to Android as well as iOS devices with available wireless network and one can change the settings of device as per need. It is possible to enjoy live previews of captured photographs but this facility is not available for videos; however, it is possible to transfer everything to PC via USB or HDMI port so that direct streaming can be enjoyed.
 
@@ -76,10 +84,7 @@ The picture quality is simply outstanding and is rated to be much better than al
 As this device provides easy connectivity to other iOS, Android devices as well as to PCs so it becomes much easier to transfer captured images and videos for further editing. Theta App allows users to create wonders out of spherical imaging where panning and zooming features are commonly used. The desktop version of Theta app limits users to just view and share their data without any editing feature whereas the third app known as Theta+ Video is capable enough to work for editing on iOS devices.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2 Pros and Cons at a glance
@@ -94,19 +99,6 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | Great still image quality                                                              |                                                                       |
 | Cloud service for image sharing                                                        |                                                                       |
 | Remote control (via App)                                                               |                                                                       |
-
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3 Basic specs of Ricoh Theta S
 
@@ -125,10 +117,7 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | **Image format**         | JPEG (EXIF 2.3)- The most commonly used format.           | **Video File Format** | Live streaming via HDMI supported (L:1920x1080/30fps M: 1280x720/30fps S: 720x480/30fps); Live streaming (USB): MP4 (video: MPEG-4 AVC); Motion JPEG (1280x720/15fps) |
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4 Should I buy Ricoh Theta S
@@ -140,10 +129,7 @@ Theta S is one of the most useful products for photography lovers whether they a
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -171,24 +157,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-mastering-gifs-a-step-by-step-snapchat-guide/"><u>[New] 2024 Approved Mastering GIFs A Step-by-Step Snapchat Guide</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-building-a-competitive-advantage-through-in-depth-industry-analysis/"><u>[New] Building a Competitive Advantage Through In-Depth Industry Analysis</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-chuckles-and-chortles-reviewing-the-goofy-movie-on-vhs/"><u>[New] In 2024, 'Chuckles and Chortles' - Reviewing The Goofy Movie on VHS</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-acclaimed-ideas-top-tone-creators-for-apple-phones/"><u>[New] In 2024, Acclaimed Ideas Top Tone Creators for Apple Phones</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-snicker-spinner-picture-editor/"><u>[New] Snicker Spinner Picture Editor</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-top-28-youtube-music-splitters-for-easy-audio-extraction/"><u>[New] Top 28 YouTube Music Splitters for Easy Audio Extraction</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-total-command-mastery-powerdirector-review-and-guide/"><u>[New] Total Command Mastery PowerDirector Review & Guide</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-unveiling-costless-creativity-a-deep-dive-into-best-luts/"><u>[New] Unveiling Costless Creativity A Deep Dive Into Best LUTs</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-mastering-video-trimming-on-windows-10-tips-for-efficiency-and-precision/"><u>[Updated] 2024 Approved Mastering Video Trimming on Windows 10 Tips for Efficiency and Precision</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-discover-10-premier-stock-source-for-vectors/"><u>[Updated] In 2024, Discover 10 Premier Stock Source for Vectors</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-ultimate-guide-to-no-cost-high-quality-srt-editors/"><u>[Updated] In 2024, The Ultimate Guide to No-Cost, High-Quality Srt Editors</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-intuitive-audio-fading-strategies-with-garageband/"><u>[Updated] Intuitive Audio Fading Strategies with Garageband</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-ironclad-guide-to-bio-and-profile-url-association-in-tiktok/"><u>2024 Approved The Ironclad Guide to Bio and Profile URL Association in TikTok</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/epic-encounters-topping-10-royale-battles/"><u>Epic Encounters Topping 10 Royale Battles</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/harmonize-body-and-mind-through-these-top-10-yogis-videos/"><u>Harmonize Body and Mind Through These Top 10 Yogis' Videos</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-in-depth-look-at-high-quality-minecraft-recordings/"><u>In 2024, In-Depth Look at High-Quality Minecraft Recordings</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-photo-cartoony-kick-cross-platform-windows-and-mac-software/"><u>In 2024, Photo Cartoony Kick Cross-Platform Windows & Mac Software</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-stealthy-techniques-to-skip-online-classroom-vids/"><u>In 2024, Stealthy Techniques to Skip Online Classroom Vids</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/master-your-edits-with-top-15-affordable-web-based-editors-2023-for-2024/"><u>Master Your Edits with Top 15 Affordable Web-Based Editors, 2023 for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-elite-selection-of-steadicams-for-drones-in-videography-for-2024/"><u>[New] Elite Selection of Steadicams for Drones in Videography for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-fast-forward-freedom-in-snapchat-a-noobs-handbook/"><u>[New] Fast-Forward Freedom in Snapchat A Noob’s Handbook</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-incorporating-multimedia-in-school-curricula-for-2024/"><u>[New] Incorporating Multimedia in School Curricula for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-downloading-youtube-srt-simplified-with-3-ways/"><u>[Updated] In 2024, Downloading YouTube (SRT) Simplified with 3 Ways</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-secrets-of-success-in-capturing-breathtaking-gopro-time-lapse/"><u>[Updated] Secrets of Success in Capturing Breathtaking GoPro Time-Lapse</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-perfect-path-from-srt-to-multiple-subtitle-standards/"><u>2024 Approved The Perfect Path From SRT to Multiple Subtitle Standards</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/catchy-captions-the-ultimate-guide-to-animated-text-on-ig-for-2024/"><u>Catchy Captions The Ultimate Guide to Animated Text on IG for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/effizientes-und-prazises-transcodieren-10-wege-um-quicktime-ts-in-mpeg-4-mp4-zu-transformieren/"><u>Effizientes Und Präzises Transcodieren: 10 Wege, Um QuickTime (TS) in MPEG-4 (MP4) Zu Transformieren</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/explore-the-premier-news-compilation-services-of-2024-editors-favorites/"><u>Explore the Premier News Compilation Services of 2024 - Editor's Favorites</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/getting-started-with-photography-the-leading-cams-for-2024/"><u>Getting Started with Photography The Leading Cams for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Xiaomi Redmi Note 12R? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Honor 90 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-yi-hero-review-transform-your-videography-with-4k/"><u>In 2024, YI Hero Review Transform Your Videography with 4K</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/lullaby-movies-assessment-and-overview-for-2024/"><u>Lullaby Movies Assessment & Overview for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/solving-officejets-no-print-malaise/"><u>Solving OfficeJet's No Print Malaise</u></a></li>
+<li><a href="https://common-error.techidaily.com/steam-setback-overcome-installation-glitches-with-these-proven-solutions/"><u>Steam Setback? Overcome Installation Glitches with These Proven Solutions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/top-gamers-screen-guide-best-monitors-at-4k-quality-for-2024/"><u>Top Gamers' Screen Guide Best Monitors at 4K Quality for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unlock Creative Potential  Top Methods for Green Screen Filming\""
-date: 2024-11-16T16:01:54.644Z
-updated: 2024-11-17T21:17:56.453Z
+date: 2024-11-25T17:38:38.143Z
+updated: 2024-11-27T17:23:27.048Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,10 @@ If you are wondering how to compositing the shot green screen video with your ma
 
 **Related:**[Resources for green screen effects](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5 Tips for shooting better green screen video
 
 We’ve figured out some useful green screen tricks, have fun and hope you’ll be more creative with the help of Filmora green screen video compositing software.
@@ -54,11 +58,19 @@ Don’t throw too much light onto the green background. That will create hotspot
 
 ![Lighting tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-lighting-tips.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Check out our picks of [the best lighting equipment for shooting videos](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 2Camera tips in shooting a Green Screen Video
 
 ![Camera tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-6.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 When lighting your key surface, make sure the bounce light is not directed at the camera (as shown in the image above). For example, if your camera faces the key surface directly, set your lights at 45 degree angles to the key surface. This will ensure that the bounce light bounces toward the other light and not at the camera.
 
@@ -72,6 +84,10 @@ Looking for some best cameras for shooting green screen video? Check our picks o
 
 ![Clothing tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There are some mistakes that you can avoid to help your green screen video look more professional and more realistic. Perhaps one of the simplest mistakes that many people make with green screen video shooting is actually wearing green clothing. If you are wearing clothing or clothing that has buttons or accents that are a similar color green as your selected background green, the image that you project onto the green screen in post-editing will also get picked up by these accents on your clothing or by the clothing itself. This is great if you want to cut off part of an actor's body, but not so professional if you are trying to make an actor appear in a realistic scene.
 
 #### 4 Wrinkles problem in shooting a Green Screen Video
@@ -83,6 +99,10 @@ Wrinkles in your screen can actually lead to heavy shadows and distorted image q
 #### 5 Motion blur problem in shooting a Green Screen Video
 
 ![Motion blur problem in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-4.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If you are planning on shooting a high action scene in front of a green screen with a camera that only has lower shutter speeds, you can run into real problems. When using a camera with a lower shutter speed consider doing action shots in slow motion or getting subjects to not make any sudden movements in front of the green screen. Motion blur from someone moving rapidly on camera in front of a green screen can really ruin the scene and ruin the realism of the scene. Alternately you could also consider renting a high shutter speed camera to avoid this motion blur if you do plan on shooting a lot of action scenes. Ultimately this is something that you will need to test for yourself before shooting a green screen video, so that you can get a feel for how much action your camera can handle with a green screen without motion blur.
 
@@ -121,27 +141,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-syncing-scores-and-screenplays-top-tunes-for-video-unboxing/"><u>[New] Syncing Scores and Screenplays Top Tunes for Video Unboxing</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-transforming-smartphone-videos-into-earnings-a-2024-guide-to-monetization/"><u>[New] Transforming Smartphone Videos Into Earnings A 2024 Guide to Monetization</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-asian-miniature-villages-in-creative-sphere-of-mc-for-2024/"><u>[Updated] Asian Miniature Villages in Creative Sphere of MC for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-unmatched-8-visual-effects-for-smooth-live-videos/"><u>[Updated] In 2024, Unmatched 8 Visual Effects for Smooth Live Videos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-sunshine-strategies-to-lighten-up-android-videos/"><u>[Updated] Sunshine Strategies to Lighten up Android Videos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-the-genesis-of-apples-m1-an-insight/"><u>[Updated] The Genesis of Apple's M1 An Insight</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-top-25-secrets-for-effective-win10-use/"><u>2024 Approved Top 25 Secrets for Effective Win10 Use</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/appreciation-showcase-outro-themes-for-all-budgets/"><u>Appreciation Showcase Outro Themes for All Budgets</u></a></li>
-<li><a href="https://win-manuals.techidaily.com/enhance-your-windows-experience-with-free-powertoys-fancyzones-benefits-and-usage-tutorial/"><u>Enhance Your Windows Experience with Free PowerToys FancyZones: Benefits and Usage Tutorial</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-vivo-v30-by-fonelab-android-recover-call-logs/"><u>How To Restore Missing Call Logs from Vivo V30</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-ideal-microphones-for-precision-in-4k-video-and-sound-recording/"><u>In 2024, Ideal Microphones for Precision in 4K Video & Sound Recording</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-screen-surfing-simplified-navigate-with-netflixs-pip/"><u>In 2024, Screen Surfing Simplified Navigate with Netflix's PIP</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/mastering-the-art-of-crafting-exclusive-cover-photos-on-instagram/"><u>Mastering the Art of Crafting Exclusive Cover Photos on Instagram</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Oppo Find N3 Flip | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ye-olde-piratical-verbal-currency/"><u>Ye Olde Piratical Verbal Currency</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-unlock-the-potential-of-your-films-with-final-cut-pro/"><u>[New] 2024 Approved Unlock the Potential of Your Films with Final Cut Pro</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-becoming-a-pro-in-spotify-ad-deals-for-2024/"><u>[New] Becoming a Pro in Spotify Ad Deals for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-brand-engagement-through-opening-for-2024/"><u>[Updated] Brand Engagement Through Opening for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-explore-this-costless-voice-changer-to-boost-valorant-skills-for-2024/"><u>[Updated] Explore This Costless Voice Changer to Boost Valorant Skills for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-exceptional-value-premium-asmr-microphones-at-low-costs/"><u>[Updated] In 2024, Exceptional Value Premium ASMR Microphones at Low Costs</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-youtube-sub4sub-does-it-really-work/"><u>2024 Approved YouTube Sub4Sub Does It Really Work?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-income-through-effective-video-marketing-for-2024/"><u>Boosting Income Through Effective Video Marketing for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/ffmpeg-and-its-proficiency-in-original-audio-extraction/"><u>FFmpeg and Its Proficiency in Original Audio Extraction</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/generate-laughter-giphys-art/"><u>Generate Laughter Giphy's Art</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-forgot-locked-iphone-6s-plus-password-learn-the-best-methods-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Forgot Locked iPhone 6s Plus Password? Learn the Best Methods To Unlock | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-lava-agni-2-5g-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Lava Agni 2 5G Phones with/without a PC</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-tecno-pop-7-pro-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Tecno Pop 7 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/investigating-diverse-google-ar-adornments/"><u>Investigating Diverse Google AR Adornments</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/re-energizing-eg2-a-guide-to-reactivating-in-game-audio-features/"><u>Re-Energizing EG2: A Guide to Reactivating In-Game Audio Features</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-editors-edge-secrets-to-professional-photo-refining-for-2024/"><u>The Editor's Edge Secrets to Professional Photo Refining for 2024</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/trouble-free-methods-sync-photos-with-your-iphone-apart-from-using-itunes/"><u>Trouble-Free Methods: Sync Photos with Your iPhone Apart From Using iTunes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-the-samsung-galaxy-s21-ultra-reigns-supreme-in-androids-elite-lineup-a-thorough-appraisal/"><u>Why the Samsung Galaxy S21 Ultra Reigns Supreme in Android's Elite Lineup: A Thorough Appraisal</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Lighting the Way in Film  Tips for Immaculate Visuals\""
-date: 2024-11-10T23:11:22.736Z
-updated: 2024-11-17T22:45:31.663Z
+date: 2024-11-25T17:41:26.098Z
+updated: 2024-11-27T19:07:32.373Z
 tags: 
   - screen-recording
   - ai video
@@ -59,6 +59,10 @@ The key light is the main light that illuminates the subject. You can place it i
 
 ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
 
 ##### Step3 Set the Backlight
@@ -73,6 +77,10 @@ Practical lights appear on the camera to add some visual flair. It can be any li
 
 ![use practical lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
 
 ![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
@@ -80,6 +88,10 @@ Then, we also have a LED ring light that shines toward the camera. The light add
 Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
 
 ![other small led lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 After setting up all the lighting above, you can take a look at the comparison below:
 
@@ -91,6 +103,10 @@ After setting up all the lighting above, you can take a look at the comparison b
 
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **_3) Pro Tips: The light setting_**
 
 We usually set the lights around 50% brightness and a color temperature of 5600K.
@@ -98,10 +114,7 @@ We usually set the lights around 50% brightness and a color temperature of 5600K
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Summary
@@ -138,24 +151,17 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-enhance-your-smartphone-photos-with-these-free-innovative-tools/"><u>[New] 2024 Approved Enhance Your Smartphone Photos with These Free, Innovative Tools</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-ultimate-guide-to-top-8-android-collaboration-platforms/"><u>[New] 2024 Approved Ultimate Guide to Top 8 Android Collaboration Platforms</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-canvas-audio-guide-adding-tweaking-and-refining-sounds/"><u>[New] Canva's Audio Guide Adding, Tweaking, & Refining Sounds</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-filmmakers-blueprint-to-panoramic-perfection-9-key-techniques/"><u>[New] In 2024, The Filmmaker's Blueprint to Panoramic Perfection 9 Key Techniques</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-perfecting-iphone-360-video-posts-for-your-feed/"><u>[New] Perfecting iPhone 360 Video Posts for Your Feed</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-speech-to-text-magic-for-ms-word-users-for-2024/"><u>[New] Speech-to-Text Magic for MS Word Users for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2023s-premier-tale-spinners-on-yt/"><u>[Updated] 2023’S Premier Tale Spinners on YT</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-essential-guide-to-preserving-screen-chats/"><u>[Updated] In 2024, Essential Guide to Preserving Screen Chats</u></a></li>
-<li><a href="https://extra-information.techidaily.com/360-degree-panoramic-stands/"><u>360-Degree Panoramic Stands</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/a-streamlined-approach-simplifying-film-projects-with-movie-maker-for-2024/"><u>A Streamlined Approach Simplifying Film Projects with Movie Maker for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/drone-frontier-deconstructing-djis-mavic-pro-masterpiece/"><u>Drone Frontier - Deconstructing DJI's Mavic Pro Masterpiece</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/exploring-magix-pixel-mastery-review/"><u>Exploring MAGIX Pixel Mastery Review</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/find-the-best-value-top-6-budget-friendly-camera-options-for-2024/"><u>Find the Best Value Top 6 Budget-Friendly Camera Options for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-enrich-your-browsing-routine-picture-in-picture-techniques-for-edge/"><u>In 2024, Enrich Your Browsing Routine Picture-in-Picture Techniques for Edge</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-master-kinemasters-features-with-ease-ranked-by-best-opponent-games/"><u>In 2024, Master KineMaster's Features with Ease, Ranked by Best Opponent Games</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Tecno Spark Go (2023) | Dr.fone</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/mastering-windows-tdr-troubleshooting-fixes-and-explanations-for-atikmpagsys-failures/"><u>Mastering Windows # TDR Troubleshooting: Fixes and Explanations for Atikmpag.sys Failures</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/mline-your-youtube-experience-creating-custom-subscription-bar-with-filmora-for-2024/"><u>Streamline Your YouTube Experience Creating Custom Subscription Bar with Filmora for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/yearly-list-prime-free-video-editing-software/"><u>Your Yearly List Prime Free Video Editing Software</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-boosting-visibility-key-steps-in-submitting-on-reddit/"><u>[New] 2024 Approved Boosting Visibility Key Steps in Submitting on Reddit</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-best-scribblers-ios-and-androids-leading-image-editors/"><u>[New] In 2024, Best Scribblers IOS & Android's Leading Image Editors</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-essential-tips-for-youtube-video-to-mpeg/"><u>[New] In 2024, Essential Tips for YouTube Video to MPEG</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-step-by-step-precise-screen-recording-on-dell-laptops/"><u>[New] Step-by-Step Precise Screen Recording on Dell Laptops</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-ultimate-tutorial-downloading-and-extracting-audio-from-vids-on-social-platforms-for-2024/"><u>[Updated] Ultimate Tutorial Downloading and Extracting Audio From Vids on Social Platforms for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-conquer-the-camera-prostrate-techniques-with-gopro-hero5-black/"><u>2024 Approved Conquer the Camera Prostrate Techniques With GoPro Hero5 Black</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-your-urdu-skills-in-a-flash/"><u>Boost Your Urdu Skills in a Flash</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/guida-facile-per-tagliare-i-filmini-in-vlc-i-passaggi-essenziali/"><u>Guida Facile per Tagliare I Filmini in VLC: I Passaggi Essenziali</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-14-pro-max-to-android-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 14 Pro Max To Android? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/seamless-kodi-setup-step-by-step-guide-to-adding-leias-grindbox-feature/"><u>Seamless Kodi Setup: Step-by-Step Guide to Adding Leia's Grindbox Feature</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/straightforward-methods-to-save-insta-story-videos/"><u>Straightforward Methods to Save Insta Story Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-complete-guide-to-enhancing-tiktok-bio-with-linktree/"><u>The Complete Guide to Enhancing TikTok Bio with Linktree</u></a></li>
 </ul></div>
 

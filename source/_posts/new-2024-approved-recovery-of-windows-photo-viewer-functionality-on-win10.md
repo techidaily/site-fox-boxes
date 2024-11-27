@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Recovery of Windows Photo Viewer Functionality on Win10\""
-date: 2024-11-11T20:21:59.665Z
-updated: 2024-11-17T20:55:37.629Z
+date: 2024-11-20T17:02:24.987Z
+updated: 2024-11-27T21:16:10.410Z
 tags: 
   - screen-recording
   - ai video
@@ -60,13 +60,14 @@ Here is why they want to restore Windows Photo Viewer –
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 1 to restore Windows Photo Viewer
@@ -77,23 +78,9 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -114,10 +101,7 @@ Here is the detailed guide –
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -126,7 +110,15 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -153,24 +145,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-expert-tips-for-post-upload-video-improvement/"><u>[New] 2024 Approved Expert Tips for Post-Upload Video Improvement</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-updated-inquiry-collection-for-podcast-appeal/"><u>[New] Updated Inquiry Collection for Podcast Appeal</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-key-elements-impacting-youtube-content-visibility/"><u>[Updated] In 2024, Key Elements Impacting YouTube Content Visibility</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-best-free-count-down-timers/"><u>2024 Approved Best Free Count Down Timers</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-best-ios-photo-editors-to-eliminate-objects-effectively/"><u>2024 Approved Best iOS Photo Editors to Eliminate Objects Effectively</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-intro-to-drone-flying-check-out-the-syma-x5c-review/"><u>2024 Approved Intro to Drone Flying? Check Out the Syma X5C Review</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-step-by-step-turning-on-windows-11s-high-dynamic-range-mode/"><u>2024 Approved Step-by-Step Turning On Windows 11'S High Dynamic Range Mode</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-total-movement-insights-2023/"><u>2024 Approved Total Movement Insights 2023</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-zeroing-in-on-the-high-def-spectacle-samsungs-ue590-review/"><u>2024 Approved Zeroing in on the High-Def Spectacle - Samsung's UE590 Review</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Nokia C22 | Dr.fone</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/4-ways-to-transfer-contacts-from-apple-iphone-12-pro-max-to-iphone-quickly-drfone-by-drfone-transfer-from-ios/"><u>4 Ways to Transfer Contacts from Apple iPhone 12 Pro Max to iPhone Quickly | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/4k-ultra-hdblu-ray/"><u>4K Ultra HDプレイヤーの選び方：Blu-Rayや配信用機器と仕組み</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/a-photographers-journey-to-jaw-dropping-colors/"><u>A Photographer's Journey to Jaw-Dropping Colors</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/accelerating-video-success-on-youtube-for-100kplus-views-for-2024/"><u>Accelerating Video Success on YouTube for 100K+ Views for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/crisp-capture-leaders-the-ultimate-list-of-premium-4k-phone-cameras-for-2024/"><u>Crisp Capture Leaders The Ultimate List of Premium 4K Phone Cameras for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-huawei-p60-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Huawei P60 Phone without Any Data Loss</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-xiaomi-mix-fold-3-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Xiaomi Mix Fold 3 without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/oxytocin-pitocin-is-a-common-pharmacological-agent-used-to-induce-labor-by-stimulating-uterine-contractions/"><u>Oxytocin (Pitocin) Is a Common Pharmacological Agent Used to Induce Labor by Stimulating Uterine Contractions.</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/pc-gaming-saved-no-more-rogue-company-glitches-after-latest-patch/"><u>PC Gaming Saved: No More Rogue Company Glitches After Latest Patch</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-expert-tips-for-adding-stunning-motion-blur-effects-to-photos-for-2024/"><u>[New] Expert Tips for Adding Stunning Motion Blur Effects to Photos for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-mastering-voice-changes-in-psgames-for-2024/"><u>[New] Mastering Voice Changes in PSGames for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-unlock-full-screen-browsing-potential-in-safari-for-apple/"><u>[Updated] In 2024, Unlock Full-Screen Browsing Potential in Safari for Apple</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-maximize-gameplay-efficiency-with-top-monitor-extensions-for-2024/"><u>[Updated] Maximize Gameplay Efficiency With Top Monitor Extensions for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-the-ultimate-guide-to-adaptive-igtv-video-dimensions/"><u>[Updated] The Ultimate Guide to Adaptive IGTV Video Dimensions</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/action-camera-showdown-2022-gopro-vs-garmin-virb-face-off/"><u>Action Camera Showdown 2022 GoPro Vs. Garmin VIRB Face-Off</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/how-to-check-what-youve-liked-on-facebook-lately/"><u>How To Check What You've Liked on Facebook Lately</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-free-online-movie-making-software-top-picks/"><u>In 2024, Free Online Movie Making Software Top Picks</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-get-ready-to-be-amazed-the-best-4k-video-clips/"><u>In 2024, Get Ready to Be Amazed The Best 4K Video Clips</u></a></li>
+<li><a href="https://article-posts.techidaily.com/quicktime-magic-precise-timelapse-shots-with-samsung/"><u>Quicktime Magic Precise Timelapse Shots with Samsung</u></a></li>
 </ul></div>
 

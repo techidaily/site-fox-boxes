@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Visualizing the Spectrum of Curves in Photoshop"
-date: 2024-11-13T00:32:51.158Z
-updated: 2024-11-17T16:12:30.512Z
+date: 2024-11-25T17:35:02.018Z
+updated: 2024-11-27T16:50:41.299Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ In this Photoshop tutorial, we're going to carve an image using four simple step
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Simple Steps to Curve an Image in Photoshop
 
 ##### Step1Create a New Document
@@ -44,6 +48,10 @@ After creating the new document, open the image that you want to curve. You may 
 Now we'll curve the image using the Warp Tool. Select the Warp Tool by clicking and holding on the Transform Tool in the toolbar. The Warp Tool is located at the bottom of the Transform Tool's fly-out menu. Alternatively, you may press Ctrl+T or Command+T on your keyboard to open the Transform Tool's fly-out menu and then select the Warp Tool from there.
 
 ![wrap image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/wrap-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 With the Warp Tool selected, hover your cursor over the image. You'll see a grid appear over the image. Click and drag one of the middle nodes in the horizontal direction to begin curving the image. As you drag, you'll see the image curve along with your cursor. If you want to increase or decrease the amount of curvature, simply press and hold the Shift key while dragging the node.
 
@@ -63,6 +71,10 @@ The **Bend Direction** option rotates the angle of the bend.
 
 ![bend direction image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/bend-direction-image-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Flip any of these effects in the opposite direction by placing a negative sign in front of the percentage. Here's -20% in the **Bend** box with a vertical bend.
 
 ![flip effect image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/flip-effect-image-photoshop.jpg)
@@ -74,10 +86,11 @@ Once you're happy with the way your image looks, go to File > Save As in the men
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -114,16 +127,17 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-cinematic-transformation-best-15-gopro-color-correction-look-ups-explored/"><u>2024 Approved Cinematic Transformation Best 15 GoPro Color Correction Look-Ups Explored</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-elevate-your-art-with-professional-color-alteration/"><u>2024 Approved Elevate Your Art with Professional Color Alteration</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-unlocking-secure-periscope-streaming-techniques-and-strategies/"><u>2024 Approved Unlocking Secure Periscope Streaming Techniques & Strategies</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/ai-driven-branding-the-top-10-podcast-name-makers-for-2024/"><u>AI-Driven Branding The Top 10 Podcast Name Makers for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/choreograph-cheeky-comics-via-giphy-for-2024/"><u>Choreograph Cheeky Comics via Giphy for 2024</u></a></li>
-<li><a href="https://driver-error.techidaily.com/diagnosing-and-repairing-battleye-driver-loading-mishaps-for-smooth-gaming-sessions/"><u>Diagnosing and Repairing BattlEye Driver Loading Mishaps for Smooth Gaming Sessions</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Apple iPhone SE | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/methods-to-reorganize-overlapping-system-icons/"><u>Methods to Reorganize Overlapping System Icons</u></a></li>
-<li><a href="https://win-answers.techidaily.com/overcoming-swtor-initialization-errors-for-a-seamless-galactic-experience/"><u>Overcoming SWTOR Initialization Errors for a Seamless Galactic Experience</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/quick-routines-for-disorganized-youtube-playlists-for-2024/"><u>Quick Routines for Disorganized YouTube Playlists for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-ultimate-guide-for-high-definition-enthusiasts-on-purchasing-a-monitor-for-2024/"><u>The Ultimate Guide for High-Definition Enthusiasts on Purchasing a Monitor for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-assessing-max-360-and-hero-11-the-ultimate-gopro-video-experience-for-2024/"><u>[New] Assessing Max 360 & Hero 11 The Ultimate GoPro Video Experience for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-audience-appreciation-assessment-self-and-seekers-vs-rival-repertoires-for-2024/"><u>[New] Audience Appreciation Assessment Self and Seekers Vs. Rival Repertoires for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-premiered-patterns-for-panzoid-creation/"><u>[New] Premiered Patterns for Panzoid Creation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-prime-15-luts-to-perfect-gopro-cinematic-shots/"><u>[New] Prime 15 LUTs to Perfect GoPro Cinematic Shots</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-leveraging-zoom-features-for-immersive-fb-live-views/"><u>[Updated] 2024 Approved Leveraging Zoom Features for Immersive FB Live Views</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-mastering-the-art-of-self-care-with-asmr-sounds/"><u>[Updated] Mastering the Art of Self-Care with ASMR Sounds</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/flashback-filmmaking-top-tricks-from-80s-vhs-to-enhance-todays-edits-for-2024/"><u>Flashback Filmmaking Top Tricks From 80S VHS to Enhance Today’s Edits for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-proficiency-counting-in-spanish/"><u>From Novice to Proficiency: Counting in Spanish</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-apple-iphone-15-pro-activation-lock-by-drfone-ios/"><u>How to Remove Apple iPhone 15 Pro Activation Lock</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-3-ways-to-track-apple-iphone-se-2022-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, 3 Ways to Track Apple iPhone SE (2022) without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-pajama-plots-revisited-critique-and-analysis-for-kids-slumber/"><u>In 2024, Pajama Plots Revisited Critique and Analysis for Kids' Slumber</u></a></li>
 </ul></div>
 
