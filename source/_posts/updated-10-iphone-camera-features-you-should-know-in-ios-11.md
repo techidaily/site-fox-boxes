@@ -1,7 +1,7 @@
 ---
 title: "[Updated] 10 iPhone Camera Features You Should Know in iOS 11"
-date: 2024-09-01T14:11:36.015Z
-updated: 2024-09-02T14:11:36.015Z
+date: 2024-12-03T04:40:12.582Z
+updated: 2024-12-06T22:05:35.025Z
 tags: 
   - screen-recording
   - ai video
@@ -31,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/09fee241173a4d75afd314bc2889ac10d1158fd98
 **You may also like:** [Best Camera Apps for iPhone X/10/8 Plus/7 Plus](https://tools.techidaily.com/wondershare/filmora/download/)
 
  Each iPhone photographer has to ask themselves the same question: 'Am I really using the full capacity of my camera?'If the answer is no, maybe these iPhone camera features can help you improve the quality of your photos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10 iPhone Camera Features You Should Know in iOS 11
 
@@ -64,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/09fee241173a4d75afd314bc2889ac10d1158fd98
 
 ![](https://images.wondershare.com/filmora/article-images/use-timer-on-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  iPhone X weighs only 174 grams, which makes it nearly impossible to hold perfectly still. This complicates things even further in difficult light conditions, but the Timer feature on iPhone X can help you solve this problem. You can compose your shot and set the Timer for 3 or 10 seconds and the device will take ten photos in a row, which will enable you to select the sharpest photo and delete the others.
 
 #### 5\. Edit Live Photos
@@ -81,6 +89,10 @@ thumbnail: https://thmb.techidaily.com/09fee241173a4d75afd314bc2889ac10d1158fd98
 #### 7\. Take Selfies in Portrait Mode - Only for iPhone X
 
 ![](https://images.wondershare.com/filmora/article-images/selfie-portrait-mode-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image resource: Tom's Guide
 
@@ -100,6 +112,10 @@ thumbnail: https://thmb.techidaily.com/09fee241173a4d75afd314bc2889ac10d1158fd98
 
 ![](https://images.wondershare.com/filmora/article-images/portrait-lighting-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  iPhone 8 Plus and iPhone X offer a new feature, specifically designed to let you find the perfect lighting for the subject of your photos. This feature doesn't work like a filter, but rather like a real-time light meter, that calculates the optimum light values on the face of the person or persons depicted in a photo.
 
 ## Post Production Software for iPhone photography
@@ -107,6 +123,10 @@ thumbnail: https://thmb.techidaily.com/09fee241173a4d75afd314bc2889ac10d1158fd98
  iPhone photographers, who would like to take their photos and videos a step further will unquestionably benefit from using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). The editor lets you create 9:16 aspect ratio images, designed to help mobile users who don't want to have the black bars alongside the edges of their vertically oriented photos and videos. Adding blur effects to your photos or videos, enhancing the colors or applying effects to your videos are just a few out of many possibilities provided by the Wondershare's software.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
@@ -133,9 +153,22 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-leading-edge-headsets-for-drone-vr-use/"><u>[New] 2024 Approved Leading Edge Headsets for Drone VR Use</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-boost-your-content-with-top-notch-tiktok-video-edit-tricks/"><u>[New] Boost Your Content with Top-Notch TikTok Video Edit Tricks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-top-8-collage-champions-finding-affordable-premium-video-mosaics-android/"><u>[New] In 2024, Top 8 Collage Champions Finding Affordable, Premium Video Mosaics (Android)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-time-is-money-learn-to-slash-youtube-video-durations/"><u>[New] Time Is Money - Learn to Slash YouTube Video Durations</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-transform-your-twitter-usage-best-unfollower-tools-reviewed/"><u>[New] Transform Your Twitter Usage Best Unfollower Tools Reviewed</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-cutting-edge-chips-excellent-editing-made-easy-and-fast/"><u>[Updated] 2024 Approved Cutting Edge Chips Excellent Editing Made Easy and Fast</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-unlocking-the-potential-of-bandicam-your-ultimate-guide/"><u>[Updated] 2024 Approved Unlocking the Potential of Bandicam – Your Ultimate Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-top-drone-propellers-selecting-prime-quadcopter-engines/"><u>[Updated] In 2024, Top Drone Propellers Selecting Prime Quadcopter Engines</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-maximizing-impact-video-marketing-on-youtube/"><u>[Updated] Maximizing Impact Video Marketing on YouTube</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/cannot-play-mkv-files-on-motorola-g24-power-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Cannot play MKV files on Motorola G24 Power</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/capturar-la-pantalla-con-excelencia-en-windows-top-5-herramientas-para-grabar-cualquier-parte-del-escritorio/"><u>Capturar La Pantalla Con Excelencia en Windows: Top 5 Herramientas Para Grabar Cualquier Parte Del Escritorio</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/dont-miss-out-shop-the-high-capacity-8tb-samsung-t5-ssd-at-a-steep-36-price-cut-only-on-amazon-insights/"><u>Don't Miss Out! Shop the High-Capacity 8TB Samsung T5 SSD at a Steep 36% Price Cut Only on Amazon | Insights</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-elevate-your-digital-life-top-wins11-experiences/"><u>In 2024, Elevate Your Digital Life Top Wins11 Experiences</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-honor-play-7t-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Honor Play 7T with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/solved-issue-troubleshooting-non-functional-numeric-buttons/"><u>Solved Issue: Troubleshooting Non-Functional Numeric Buttons</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->

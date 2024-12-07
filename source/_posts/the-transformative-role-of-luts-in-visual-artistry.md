@@ -1,7 +1,7 @@
 ---
 title: "The Transformative Role of LUTs in Visual Artistry"
-date: 2024-11-21T21:04:09.174Z
-updated: 2024-11-27T18:43:29.938Z
+date: 2024-12-04T16:41:54.575Z
+updated: 2024-12-06T21:58:14.465Z
 tags: 
   - screen-recording
   - ai video
@@ -44,7 +44,7 @@ LUTs also aid in the organization of your post-production processes. You must kn
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How will LUTs change your photography?
@@ -59,10 +59,6 @@ Warm or cold tones and bold or washed-out styles are all options provided by the
 
 Photographers may now utilize the same techniques that film, and television editors have used for years to achieve the excellent new aesthetics seen in blockbusters. With quick LUT looks, you can now apply LUTs to your photographs to make your editing work stand out.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to use LUTs using Photoshop CC?
 
 LUTs come pre-installed with programs, but you may also purchase them online and add them to your software. You may even buy a look from your favorite film or television show. In Photoshop, LUTs are simple to apply. You can begin in Photoshop with the original photo, which is an image that was captured locally, unprocessed, and straight out of the camera.
@@ -70,6 +66,10 @@ LUTs come pre-installed with programs, but you may also purchase them online and
 1. Select the Adjustment Layer icon from the drop-down menu.
 
 ![how to use luts using Photoshop cc](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Choose Adjustment Layer
 
@@ -79,6 +79,10 @@ Choose Adjustment Layer
 
 ![how to use luts using Photoshop cc - load 3d lut](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 load 3d lut
 
 1. When you select one, you'll see how the color and tone of the image change.
@@ -87,16 +91,16 @@ load 3d lut
 
 LUTs come pre-installed in Photoshop, and you can use them as adjustment layers. As mentioned earlier, they'll alter the image's colors, and some of them will also alter the contrast. But what if you want to add LUTs? To add LUTs to Photoshop, you have two options. The first is really simple; all you have to do is discover the LUT and apply it to that specific project. The alternative is a little more difficult, but it enables you to access your LUTs at all times.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Here's the first method
 
 1. It would be best to unzip the LUT before using it in your project. This is relatively simple, and you may either use specialized software or the built-in unzipping utility in Windows.
 2. When discussing Photoshop, the project is typically an image, so go ahead and open it. Open a new one by pressing 'Ctrl+O' or importing something from your cloud.
 3. To do so, go to the 'Adjustments' tab and select the 'Color Lookup' button.
 4. Select the 'Load 3D LUT' button, then navigate to the directory where you unpacked the LUT files.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Here's the second one
 
@@ -115,7 +119,7 @@ Grow Together
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Closing Thoughts:
@@ -127,10 +131,6 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](#)
 
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Closing Thoughts:
 
@@ -162,24 +162,17 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-a-comprehensive-review-of-the-lightroom-app-on-android/"><u>[New] A Comprehensive Review of the Lightroom App on Android</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-adjust-macs-captured-screen-storage-place-for-2024/"><u>[New] Adjust Mac's Captured Screen Storage Place for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-decoding-the-mystery-of-post-color-correction-for-2024/"><u>[New] Decoding the Mystery of Post-Color Correction for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-exclusive-list-of-top-iphone-vr-game-hits/"><u>[New] In 2024, Exclusive List of Top iPhone VR Game Hits</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-exclusive-listing-leading-8-4k-ultra-hd-players/"><u>[New] In 2024, Exclusive Listing Leading 8 4K Ultra HD Players</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-recording-live-videos-on-periscope-with-maximum-quality/"><u>[New] In 2024, Recording Live Videos on Periscope with Maximum Quality</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-perfect-cone-view-mounts-vr/"><u>[New] Perfect Cone View Mounts VR</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-understanding-the-role-of-software-in-high-quality-screencasts-for-2024/"><u>[New] Understanding the Role of Software in High-Quality Screencasts for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-unlocking-iphones-potential-podcast-harmony/"><u>[New] Unlocking iPhone's Potential - Podcast Harmony</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-step-by-step-to-emoji-stickers-a-complete-tutorial-for-telegram-and-beyond/"><u>[Updated] 2024 Approved Step-by-Step to Emoji Stickers A Complete Tutorial for Telegram and Beyond</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-top-9-live-stream-enhancers-ultimate-filter-guide/"><u>[Updated] 2024 Approved Top 9 Live-Stream Enhancers Ultimate Filter Guide</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-100-working-method-for-adding-link-to-tiktok-bio/"><u>[Updated] In 2024, 100% Working Method for Adding Link to TikTok Bio</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-mastering-the-mystique-of-moonlit-portraits/"><u>[Updated] In 2024, Mastering the Mystique of Moonlit Portraits</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-smoothie-your-phone-converting-iphones-jpegpng-to-pdf/"><u>[Updated] In 2024, Smoothie Your Phone Converting iPhone's JPEG/PNG to PDF</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-infinix-note-30-pro-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Infinix Note 30 Pro</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-elevate-your-instagram-feed-vertical-video-edits-in-fcpx/"><u>In 2024, Elevate Your Instagram Feed Vertical Video Edits in FCPX</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Lava Blaze Curve 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/unveiling-the-flyquest-edition-standing-desk-by-andaseat-a-review-of-innovative-design-and-functionality/"><u>Unveiling the FlyQuest Edition Standing Desk by AndaSeat: A Review of Innovative Design and Functionality</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-gopros-battle-royale-hero5-b-stacked-against-session/"><u>[New] GoPro's Battle Royale Hero5 B Stacked Against Session</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-pro-quality-footage-selecting-the-ultimate-7-cameras-for-2024/"><u>[New] Pro Quality Footage Selecting the Ultimate 7 Cameras for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-new-face-of-sony-updates-to-s6500-blu-rayhd-player/"><u>[New] The New Face of Sony Updates to S6500 Blu-Ray/HD Player</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-total-review-demystifying-googles-podcast-app/"><u>[Updated] 2024 Approved Total Review Demystifying Google's Podcast App</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-prime-picks-7-superior-apple-video-viewers/"><u>[Updated] In 2024, Prime Picks 7 Superior Apple Video Viewers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-secure-and-simple-grab-your-desired-youtube-cover-at-no-charge-for-2024/"><u>[Updated] Secure & Simple Grab Your Desired YouTube Cover at No Charge for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/complete-step-by-step-instructions-to-get-sony-vaio-drivers-for-windows-computers/"><u>Complete Step-by-Step Instructions to Get Sony Vaio Drivers for Windows Computers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/envelop-your-senses-in-virtual-realms-the-best-vr-playback-systems-for-pc-for-2024/"><u>Envelop Your Senses in Virtual Realms The Best VR Playback Systems for PC for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/illustration-elevation-incorporating-text-into-3d-artwork-for-2024/"><u>Illustration Elevation Incorporating Text Into 3D Artwork for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-aviations-new-titans-dji-phantom-pro-and-gopro-k20-ii/"><u>In 2024, Aviation's New Titans DJI Phantom Pro & GoPro K20 II</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-recording-made-simple-a-comprehensive-guide-to-archiving-roblox-games-on-your-macbook/"><u>In 2024, Recording Made Simple A Comprehensive Guide to Archiving Roblox Games on Your MacBook</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unraveling-the-power-of-superzoom-with-canon-sx70-hs-review/"><u>Unraveling the Power of Superzoom with Canon SX70 HS Review</u></a></li>
 </ul></div>
 

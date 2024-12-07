@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Audience Experience  Top Cameras to Capture Live Music\""
-date: 2024-11-22T16:58:14.319Z
-updated: 2024-11-27T17:32:40.206Z
+date: 2024-12-02T03:45:02.379Z
+updated: 2024-12-06T20:44:12.291Z
 tags: 
   - screen-recording
   - ai video
@@ -48,7 +48,7 @@ You may also like: [11 Best Bridge Cameras \[Ultimate Review\]](https://tools.te
 ![Sony Alpha a6500 ](https://images.wondershare.com/filmora/filmorapro/sony-alpha-a6500.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Price**: $799.99 MSRP
@@ -69,7 +69,7 @@ Weighing less than a pound without a lens (and not much more if you use one), th
 **Pros:** The Sony Alpha a6500 Mirrorless Camera is very easy to hold, so filming is simple. It has a heavy-duty body and is compatible with multiple lens options. Also, it is more affordable than similar options.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2. [Canon EOS 5D Mark IV](https://www.amazon.com/Canon-Mark-Frame-Digital-Camera/dp/B01KURGS9E/ref=sr%5F1%5F4?keywords=Canon+EOS+5D+Mark+IV&qid=1583239074&sr=8-4)
@@ -96,6 +96,10 @@ With options for both still and 4k video, the Canon EOS 5D Mark IV is the latest
 
 ![Blackmagic URSA Mini 4K Digital Cinema](https://images.wondershare.com/filmora/filmorapro/blackmagic-design-ursa-4k-cinema.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Price**: $2,995.00 MSRP
 
 Among [4K video cameras](https://tools.techidaily.com/wondershare/filmora/download/), the Blackmagic Design URSA Mini 4K Digital Cinema camera has been designed to record high-end, cinema-quality video with its high-end 4k global shutter sensor. The balanced body is easy to hold and perfect for any filmmaker. Also designed with an EF mount that can mount the most popular lenses, you can get any sort of “look” you’re seeking from your films.
@@ -111,7 +115,7 @@ Among [4K video cameras](https://tools.techidaily.com/wondershare/filmora/downlo
 **Pros:** The Blackmagic Design URSA Mini 4K Digital Cinema is super easy to hold and transport, which makes it a top choice for many who are looking to do fast-action shots for music videos. It’s great for filmmakers of any experience level, heavy-duty build for any situation, and has high-quality output for all video content that it produces.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4. [PANASONIC LUMIX ZS200 4K Digital Camera](https://www.amazon.com/PANASONIC-DC-ZS200K-Megapixel-VARIO-ELMAR-Stabilization/dp/B079QYMWZX/ref=sr%5F1%5F5?crid=3EDB6B2L8IOTM&keywords=panasonic+lumix+dmc-lx5&qid=1583239342&sprefix=Panasonic+Lumix+DMC-LX5%2Caps%2C364&sr=8-5)
@@ -131,10 +135,6 @@ If you’ve been looking for a travel size camera that you can use for those on-
 * Fisheye Lens
 
 **Pros:** The Lumix ZS200 is one of the most affordable options that offer this level of portability, while also providing high-quality images. It’s straightforward to adjust and use, and it has an attached lens (with customizability options that are easy to work out).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5. [Canon EOS 60D](https://www.amazon.com/Canon-CMOS-Digital-Camera-Body/dp/B0040JHVCC/ref=sr%5F1%5F3?keywords=Canon+EOS+60D&qid=1583239432&sr=8-3)
 
@@ -173,17 +173,9 @@ If you’re looking to put together a music video that has a lifelike quality to
 
 **Pros:** Budding videographers love the multiple options and ease of use that this particular camcorder provides. Many families have found that it’s a good, safe option for teens and young adults that may be dipping their toes into videography for the first time. Since it’s so popular for new videographers, there are dozens of tutorials that can help you to learn how to use its settings as effectively and quickly as possible.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7. [Canon VIXIA HF G20 Camcorder](https://www.amazon.com/Canon-Camcorder-30-4mm-304mm-Touchscreen-Internal/dp/B01MDV2I3L/ref=sr%5F1%5F3?keywords=Canon+VIXIA+HF+G20+HD+Camcorder&qid=1583239604&sr=8-3)
 
 ![Canon VIXIA HF G20 Camcorder](https://images.wondershare.com/filmora/filmorapro/canon-vixia-hf-g20-hd-camcorder.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Price**: $899.99 MSRP
 
@@ -221,12 +213,16 @@ Seeking out a full-featured 4k HD camcorder? The JVC GY-HM250U Ultra 4K is a goo
 **Pros:** One of the best features of the GY-HM250U is that it’s super easy to add overlays into any of your videos directly from the camera; this is great for streaming and recording. It also connects to Wi-Fi quickly and offers top-end low light performance. This is one of the most affordable camcorders, especially when compared to options with similar features.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 9. [Canon EOS Rebel T6 Digital SLR Camera](https://www.amazon.com/Canon-EOS-Rebel-T6-Digital/dp/B07FYCLVMG/ref=sr%5F1%5F8?keywords=Canon+EOS+Rebel+T5+EF-S&qid=1583239830&sr=8-8)
 
 ![Canon EOS Rebel T6 ](https://images.wondershare.com/filmora/filmorapro/canon-eos-rebel-t6-digital-slr-camera.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Price:** $399.99 MSRP
 
@@ -248,6 +244,10 @@ For many aspiring videographers, the Canon EOS Rebel T6 Digital SLR Camera is th
 
 ![Nikon D7000 DSLR](https://images.wondershare.com/filmora/filmorapro/nikon-d7000-dslr.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Price**: $799.99 MSRP
 
 Videography focuses a lot on what it is that you’re filming, and the best music videos are developed when you use a high-resolution camera to make it happen. The Nikon D7000 DSLR focuses on providing highly detailed videos and pictures every time that you hit the button, making it simple for you to get great results. Low noise shutter and audio input options allow for top quality audio, as well.
@@ -267,21 +267,25 @@ Videography focuses a lot on what it is that you’re filming, and the best musi
 
 There are all sorts of cameras on the market, but some stand out as the best. Out of the ten cameras that we explored above, we think that these 2 are the best cameras to shoot music videos.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. [PANASONIC LUMIX ZS200](https://www.amazon.com/PANASONIC-DC-ZS200K-Megapixel-VARIO-ELMAR-Stabilization/dp/B079QYMWZX/ref=sr%5F1%5F5?crid=3EDB6B2L8IOTM&keywords=panasonic+lumix+dmc-lx5&qid=1583239342&sprefix=Panasonic+Lumix+DMC-LX5%2Caps%2C364&sr=8-5)
 
 No matter which website you go to, you will find that the Lumix ZS200 is often listed among the best of what is available on the market today (in 2021, when this article was written).
 
 Panasonic has been a brand long sought out by camera enthusiasts, and this one is no different. With state of [the art 4k technology](https://www.creativebloq.com/computer-arts/what-does-4k-mean-you-51411622), this stands out as one of the best 4k cameras for music videos, hands down.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. [Blackmagic Design Digital Cinema Camera](https://www.amazon.com/Blackmagic-Design-Digital-EF-Mount-CINECAMURSAM40K/dp/B00WNFHZB2/ref=sr%5F1%5F3?crid=1ZUDSZ3Y4I2WE&keywords=blackmagic+design+ursa+mini+4k&qid=1583239166&sprefix=Blackmagic+Design+URSA+%2Caps%2C419&sr=8-3)
 
 If you’re seeking out the best camera for music videos and you have a bigger budget, then we think that the Blackmagic Design Digital Cinema Camera is your top choice in this regard.
 
 This high-end camera is going to be pricey for you, but its mini handheld design makes it simple for you to get all of the best shots. This 4k camera is going to give you the best look for your videos every time.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Music Video Camera FAQs
 
@@ -320,10 +324,6 @@ On average, it takes around **two weeks** to get everything recorded and ready t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -349,24 +349,22 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-guide-to-acquiring-free-picture-frame-videos/"><u>[New] Guide to Acquiring Free Picture Frame Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-a-comprehensive-look-at-editing-and-uploading-virtual-reality-videos-to-youtube/"><u>[New] In 2024, A Comprehensive Look at Editing and Uploading Virtual Reality Videos to YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-ensuring-earning-potential-on-youtubers-for-2024/"><u>[Updated] Ensuring Earning Potential on YouTubers for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-ultimate-selection-12-free-video-players-for-pcmobile-enthusiasts/"><u>[Updated] In 2024, The Ultimate Selection 12 Free Video Players for PC/Mobile Enthusiasts</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-laughing-moments-crafting-with-adobe/"><u>[Updated] Laughing Moments Crafting with Adobe</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-exploring-per-view-money-flow-among-youtubers/"><u>2024 Approved Exploring Per-View Money Flow Among YouTubers</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-14-plus-to-other-iphone-11-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 14 Plus to other iPhone 11 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-secret-strategies-to-outshine-with-canva-photos/"><u>In 2024, Secret Strategies to Outshine with Canva Photos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-thorough-appraisal-gopro-silver-hero4-specimen/"><u>In 2024, Thorough Appraisal GoPro Silver HERO4 Specimen</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-unlocking-m1-max-clip-potentials/"><u>In 2024, Unlocking M1 Max Clip Potentials</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-the-ultimate-list-of-online-video-rotators/"><u>New In 2024, The Ultimate List of Online Video Rotators</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/quick-fix-get-your-acer-wi-fi-driver-for-free-today/"><u>Quick Fix: Get Your Acer Wi-Fi Driver for Free Today!</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/spectrum-mastery-in-depth-color-techniques/"><u>Spectrum Mastery In-Depth Color Techniques</u></a></li>
-<li><a href="https://win-forum.techidaily.com/the-definitive-guide-to-removing-windows-1sic-10-accounts-using-revo-uninstaller/"><u>The Definitive Guide to Removing Windows 1([Sic] 10 Accounts Using Revo Uninstaller</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/the-secrets-of-editing-numerical-data-in-tiktoks-for-2024/"><u>The Secrets of Editing Numerical Data in TikToks for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/the-ultimate-mobile-cinema-showcase-apples-best-freepluspaid-film-watchers-guide/"><u>The Ultimate Mobile Cinema Showcase Apple's Best FREE+Paid Film Watchers Guide</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/transforming-recording-into-stunning-podcast-edits-for-2024/"><u>Transforming Recording Into Stunning Podcast Edits for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/turbocharge-video-on-snapchat-new-users-edition-for-2024/"><u>Turbocharge Video on Snapchat New Users Edition for 2024</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-shrink-your-webm-videos-best-online-compression-services/"><u>Updated In 2024, Shrink Your WebM Videos Best Online Compression Services</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-are-critiques-on-items-compensated-monetarily/"><u>[New] 2024 Approved Are Critiques on Items Compensated Monetarily?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-direct-from-mobile-how-to-upload-videos-on-twit/"><u>[New] 2024 Approved Direct From Mobile How to Upload Videos on Twit</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-fb-video-retrieval-the-top-5-software-compared-for-2024/"><u>[New] FB Video Retrieval The Top 5 Software Compared for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-legal-pathways-for-flawless-free-imagery-purchases/"><u>[New] In 2024, Legal Pathways for Flawless Free Imagery Purchases</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-binary-divide-metaverse-vs-multiverse-explained-for-2024/"><u>[New] The Binary Divide Metaverse Vs Multiverse Explained for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-a-filmmakers-approach-to-classroom-instructional-videos/"><u>[Updated] 2024 Approved A Filmmaker’s Approach to Classroom Instructional Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-instant-transcription-absolutely-complimentary/"><u>[Updated] In 2024, Instant Transcription, Absolutely Complimentary</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-art-of-conversion-boosting-click-through-rates-on-social-platforms/"><u>[Updated] In 2024, The Art of Conversion Boosting Click-Through Rates on Social Platforms</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-premium-timepieces-for-your-dream-wedding-on-smartphones/"><u>[Updated] Premium Timepieces for Your Dream Wedding on Smartphones</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpt-inspired-infographics-and-data-tables/"><u>ChatGPT-Inspired Infographics and Data Tables</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/cutting-edge-techniques-youtube-trailers-through-filmoras-lens/"><u>Cutting Edge Techniques YouTube Trailers Through Filmora's Lens</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-xiaomi-14-pro-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Xiaomi 14 Pro to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-add-fade-inout-premiere-pro/"><u>In 2024, Add Fade In/Out Premiere Pro</u></a></li>
+<li><a href="https://win11.techidaily.com/mastery-over-windows-10-history-reviewing-and-purge-guide/"><u>Mastery over Windows 10 History: Reviewing & Purge Guide</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-2024-approved-a-comprehensive-guide-for-free-video-translator-downloading/"><u>New 2024 Approved A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/reimagine-fuzzy-images-selecting-the-ultimate-10-internet-tools-for-2024/"><u>Reimagine Fuzzy Images Selecting the Ultimate 10 Internet Tools for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/unlocking-virtualization-a-comprehensive-tutorial-for-turning-on-hyper-v-in-windows-10/"><u>Unlocking Virtualization: A Comprehensive Tutorial for Turning On Hyper-V in Windows 10</u></a></li>
 </ul></div>
 

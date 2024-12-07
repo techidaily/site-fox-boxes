@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Innovative Interface Intensity for 2024"
-date: 2024-11-24T21:07:49.070Z
-updated: 2024-11-27T18:06:35.377Z
+date: 2024-12-03T01:05:11.749Z
+updated: 2024-12-06T23:25:56.366Z
 tags: 
   - screen-recording
   - ai video
@@ -34,11 +34,7 @@ Glitch text effect is a trendy effect that gets the viewers’ attention immedia
 ![glitch text effect toolkit ae](https://images.wondershare.com/filmora/article-images/2022/07/glitch-text-effect-toolkit-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Liquid Text Animation
@@ -53,19 +49,19 @@ There is always a high demand for dynamic text animations in After Effects. This
 
 ![dynamic text animations ae](https://images.wondershare.com/filmora/article-images/2022/07/dynamic-text-animations-ae.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Squash & Stretch Preset
 
 If you want to add texts and titles in your video that looks like the games meant for kids, squash and stretch. Therefore, if your video content is based on comedy or you make videos for kids, this is the effect and animation you should apply on the text of your video. The animation looks cool and funny at the same time. The animations are designed by professionals and you get regular as well as advanced adjustments. There are also built-in sound effects available to make the animations for entertaining.
 
 ![squash stretch preset ae](https://images.wondershare.com/filmora/article-images/2022/07/squash-stretch-preset-ae.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. CounterPro Preset
 
@@ -73,19 +69,11 @@ In this pack, you will find unique text effects, and you can animate text with k
 
 ![counterpro preset ae](https://images.wondershare.com/filmora/article-images/2022/07/counterpro-preset-ae.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. Text Library
 
 If there is a must-have preset you should manage to have in After Effects is Text Library. There are as many as 1000 text presets available and this will serve all your requirements completely. Starting from animations and effects to transitions, everything is available in different categories for you to choose from and apply to your text. The pack keeps on updating to include trendy and funky text effects so that you do not miss out anything.
 
 ![text library effect ae](https://images.wondershare.com/filmora/article-images/2022/07/text-library-effect-ae.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 7\. Kinetic Text Animation
 
@@ -93,11 +81,23 @@ Kinetic text effect is a part of dynamic text effects and there is a high demand
 
 ![kinetic text aniamtion ae](https://images.wondershare.com/filmora/article-images/2022/07/kinetic-text-aniamtion-ae.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 8\. Text Animation Lower Third
 
 You get eleven styles of elements in the pack, and you can customize the designs to get into any size as per your requirements. You get the elements in HD and Full HD resolution, and you can use them in the intro or outro of the video to show text and title credits. You can also use them to show quotes or keywords. Most of them have highlighted background, and technically, they are referred to as lower thirds.
 
 ![text animation lower thirds ae](https://images.wondershare.com/filmora/article-images/2022/07/text-animation-lower-thirds-ae.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -133,21 +133,22 @@ As the saying goes, the more the merrier and the more presets you have, the more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/oosting-channel-profitability-famebit-powered-sponsorship-tactics/"><u>[New] Boosting Channel Profitability FameBit-Powered Sponsorship Tactics</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-how-to-perfectly-blend-audiotracks-in-slideshows/"><u>[New] How to Perfectly Blend Audiotracks in Slideshows</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-prime-7-multimedia-players-for-macos/"><u>[New] In 2024, Prime 7 Multimedia Players for MacOS</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-time-traveling-tactics-top-7-historic-battles-reimagined/"><u>[New] Time-Traveling Tactics Top 7 Historic Battles Reimagined</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-unparalleled-costless-pixel-perfection-software-for-2024/"><u>[New] Unparalleled, Costless Pixel Perfection Software for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-revolutionize-post-production-the-best-11-tutorials-on-color-workflow/"><u>[Updated] 2024 Approved Revolutionize Post-Production The Best 11 Tutorials on Color Workflow</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unlock-reddits-potential-for-your-brand-with-these-top-tactics/"><u>[Updated] 2024 Approved Unlock Reddit's Potential for Your Brand with These Top Tactics</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-easy-steps-to-activatedisable-video-multitasking-on-devices-for-2024/"><u>[Updated] Easy Steps to Activate/Disable Video Multitasking on Devices for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-how-to-build-circles-and-spheres-in-minecraft-for-2024/"><u>[Updated] How to Build Circles and Spheres in Minecraft for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-seamlessly-fuse-videos-using-blend-modes-for-2024/"><u>[Updated] Seamlessly Fuse Videos Using Blend Modes for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/canon-powershot-sx740-hs-review/"><u>Canon PowerShot SX740 HS Review</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/hacking-tiktoks-video-pace-efficiently/"><u>Hacking TikTok's Video Pace Efficiently</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-factory-unlock-your-telstra-apple-iphone-15-pro-max-by-drfone-ios/"><u>In 2024, How To Factory Unlock Your Telstra Apple iPhone 15 Pro Max</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/mastery-in-myths-and-modernity-the-yt-story-channels-of-23-for-2024/"><u>Mastery in Myths and Modernity The YT Story Channels of '23 for 2024</u></a></li>
-<li><a href="https://techidaily.com/use-device-manager-to-update-your-hardware-drivers-in-windows-11-and-10-and-7-by-drivereasy-guide/"><u>Use Device Manager to update your hardware drivers in Windows 11 & 10 & 7</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/windows-10-search-not-working-solved/"><u>Windows 10 Search Not Working [Solved]</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-present-trends-in-drone-technology-for-the-future/"><u>[New] 2024 Approved Present Trends in Drone Technology for the Future</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-getting-to-know-apods-downloads-on-mobile-devices/"><u>[New] Getting to Know APods Downloads on Mobile Devices</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-top-tactical-choices-for-future-cameras-2024/"><u>[New] Top Tactical Choices for Future Cameras, 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-master-facebook-seo-essential-techniques-to-skyrocket-engagement/"><u>[Updated] 2024 Approved Master Facebook SEO Essential Techniques to Skyrocket Engagement</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-harness-your-windows-10-sound-power/"><u>[Updated] Harness Your Windows 10 Sound Power</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-prodigious-editing-power-utilizing-inshot-on-devices/"><u>[Updated] In 2024, Prodigious Editing Power Utilizing Inshot on Devices</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-ultimate-guide-to-instagram-stardom-unleash-your-potential-with-9-key-strategies/"><u>[Updated] In 2024, The Ultimate Guide to Instagram Stardom - Unleash Your Potential with 9 Key Strategies</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-essential-compendium-of-affordable-rich-graphics-resources-online/"><u>[Updated] The Essential Compendium of Affordable, Rich Graphics Resources Online</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-step-by-step-applying-the-cartoon-face-filter-in-snapchat/"><u>2024 Approved Step-by-Step Applying the Cartoon Face Filter in Snapchat</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enhancing-your-websites-performance-with-advanced-analytics-tools/"><u>Cookiebot: Enhancing Your Website's Performance with Advanced Analytics Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-streamline-content-creation-leading-after-effects-plugins/"><u>In 2024, Streamline Content Creation Leading After Effects Plugins</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-poco-m6-pro-4g-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Poco M6 Pro 4G Phone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/laugh-ledger-premium-free-meme-collections-for-2024/"><u>Laugh Ledger Premium, FREE Meme Collections for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/secure-the-ultimate-bargain-the-high-refresh-rate-gaming-masterpiece-from-gigabyte-gs3n32q-for-an-unbeatable-price-199/"><u>Secure the Ultimate Bargain - The High Refresh Rate Gaming Masterpiece From Gigabyte (GS3n32Q) for an Unbeatable Price: $199</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/sony-a6400-video-failure-what-to-do-next-for-2024/"><u>Sony A6400 Video Failure What To Do Next for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-essential-funimate-guidebook-for-2024/"><u>The Essential Funimate Guidebook for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/top-hash-tags-skyrocketing-to-6-figure-views-on-youtube-for-2024/"><u>Top Hash Tags Skyrocketing to 6-Figure Views on YouTube for 2024</u></a></li>
 </ul></div>
 

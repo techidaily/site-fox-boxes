@@ -1,7 +1,7 @@
 ---
 title: "[New] Extracting Images From Movies Using Windows 10 Photos App for 2024"
-date: 2024-11-26T20:12:30.882Z
-updated: 2024-11-27T16:53:03.242Z
+date: 2024-12-03T20:34:27.431Z
+updated: 2024-12-06T16:44:51.142Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,10 @@ In this article, you will learn how to save photo from Windows 10 Photos app and
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to save photo from Windows 10 Photos app
 
 In this part of the article, we are going to discuss, how you would save photo from video with Windows 10 Photos app. The Photos app has numerous features for you, and the editing tools would simply amaze you. You can use the Windows Ink to write on the images or capture stills from a video for that matter. Let’s see, how to save photo from video using Windows 10 Photos app –
@@ -52,6 +56,10 @@ Creating a living image:
 
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Now, you can see the living picture by tapping ‘Play’ button.
 
 These photos are stored in the ‘Pictures’ folder of your computer having ‘LI’ appended file names. Now, it’s time to save the living image as photo on your computer using Photos app.
@@ -61,21 +69,17 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
 
-* This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+* This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
 ## Part 2: Why I can’t save photo from video
 
 In case, you are not able to save photos from video on Windows 10 Photos App. There might be issues with an outdated [Microsoft OS patch update](https://support.microsoft.com/en-us/help/311047/how-to-keep-your-windows-computer-up-to-date) or the Microsoft account is having any problem. But, you don’t have to worry about the same.
 
 We are explaining the solutions here –
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Check the update
 
@@ -98,14 +102,14 @@ Here comes the guide –
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -113,10 +117,6 @@ Here comes the guide –
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -143,16 +143,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-enhance-videos-with-music-inshots-simple-methods/"><u>[New] In 2024, Enhance Videos with Music InShot's Simple Methods</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-unlocking-the-secrets-behind-youtube-shorts-success/"><u>[New] In 2024, Unlocking the Secrets Behind YouTube Shorts Success</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-strategies-for-effective-b-roll-application/"><u>[New] Strategies for Effective B-Roll Application</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-the-fast-photography-path-to-crafting-quick-google-collage-pics-for-2024/"><u>[New] The Fast Photography Path to Crafting Quick Google Collage Pics for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-sony-bdp-s6500-review-updated/"><u>[Updated] 2024 Approved Sony BDP-S6500 Review - Updated</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-mastering-video-top-10-camcorders-reviewed/"><u>[Updated] In 2024, Mastering Video - Top 10 Camcorders Reviewed</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-bypass-the-required-apple-store-verification-for-apple-iphone-7-drfone-by-drfone-ios/"><u>In 2024, How To Bypass the Required Apple Store Verification For Apple iPhone 7 | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/mastering-iphone-long-exposure-a-comprehensive-guide-for-2024/"><u>Mastering iPhone Long Exposure A Comprehensive Guide for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ate-user-handbook-youtube-conduct-codes/"><u>Ultimate User Handbook YouTube Conduct Codes</u></a></li>
-<li><a href="https://techidaily.com/undeleted-lost-videos-from-xiaomi-14-pro-by-fonelab-android-recover-video/"><u>Undeleted lost videos from Xiaomi 14 Pro</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/unparalleled-top-5-lightweight-cinematography-devices-for-2024/"><u>Unparalleled Top 5 Lightweight Cinematography Devices for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixed-age-of-empires-2-wont-launch-on-windows-10/"><u>[FIXED] Age of Empires 2 Won’t Launch on Windows 10</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2023-how-to-share-twitter-videos-on-whatsapp-for-2024/"><u>[New] 2023 | How to Share Twitter Videos on WhatsApp for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-top-7-camcorder-reviews-for-mountain-enthusiasts/"><u>[New] 2024 Approved Top 7 Camcorder Reviews for Mountain Enthusiasts</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-bridge-iphone-android-and-pc-timelines-for-syncing-zoom/"><u>[New] Bridge iPhone, Android, and PC Timelines for Syncing Zoom</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-import-audio-tracks-in-premiere-pro/"><u>[New] Import Audio Tracks in Premiere Pro</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-ultimate-collection-of-elite-cost-free-vfx-and-editing-websites/"><u>[New] In 2024, The Ultimate Collection of Elite, Cost-Free VFX & Editing Websites</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-jokejuxtaposer-quickly-craft-memes-for-all-occasions-for-2024/"><u>[New] JokeJuxtaposer Quickly Craft Memes for All Occasions for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-syncing-images-android-iphone-file-transfer-guide/"><u>[New] Syncing Images Android-iPhone File Transfer Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unleashing-creativity-with-pexels-finding-fabulous-images-for-2024/"><u>[New] Unleashing Creativity with Pexels Finding Fabulous Images for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-expert-strategies-for-efficient-whatsapp-use-for-2024/"><u>[Updated] Expert Strategies for Efficient WhatsApp Use for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-adjust-twitter-video-compact-summary/"><u>[Updated] In 2024, Adjust Twitter Video Compact Summary</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-decoding-second-count-in-20mb-video-files/"><u>[Updated] In 2024, Decoding Second Count in 20MB Video Files</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-prioritize-your-videography-with-top-12-players/"><u>[Updated] In 2024, Prioritize Your Videography with Top 12 Players</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-zte-axon-40-lite-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On ZTE Axon 40 Lite? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-tips-for-when-cs-go-fails-to-open/"><u>Troubleshooting Tips for When CS: GO Fails to Open</u></a></li>
 </ul></div>
 

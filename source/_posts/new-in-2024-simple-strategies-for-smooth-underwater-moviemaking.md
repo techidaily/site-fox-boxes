@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Simple Strategies for Smooth Underwater Moviemaking"
-date: 2024-11-25T16:30:52.709Z
-updated: 2024-11-27T19:54:51.987Z
+date: 2024-12-03T04:52:53.295Z
+updated: 2024-12-06T22:50:59.234Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/287414ff43ab53f27880b8114eed3693184381a70
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tips on shooting video underwater
 
 #### 1\. Frame your shots
@@ -65,10 +69,6 @@ thumbnail: https://thmb.techidaily.com/287414ff43ab53f27880b8114eed3693184381a70
 
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 4\. Stay steady
 
  Many amateurs think they won’t have a problem with wobbly movements when filming underwater, but even the smallest amount of jerkiness can be detrimental to your content.
@@ -82,6 +82,10 @@ thumbnail: https://thmb.techidaily.com/287414ff43ab53f27880b8114eed3693184381a70
  Unfortunately, other divers have a tendency to get in the way when you’re shooting footage underwater. Many video production professionals opt to intentionally include clips of divers in their footage so everything flows nicely and cuts work well together if their presence in other shots is unavoidable.
 
 ![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 6\. Wide angle
 
@@ -98,11 +102,11 @@ thumbnail: https://thmb.techidaily.com/287414ff43ab53f27880b8114eed3693184381a70
 ![shoot shot](https://images.wondershare.com/filmora/article-images/shoot-colour.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit your footage
@@ -118,14 +122,10 @@ thumbnail: https://thmb.techidaily.com/287414ff43ab53f27880b8114eed3693184381a70
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -152,22 +152,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-disseminating-tweeted-videos-on-the-worlds-biggest-social-site-for-2024/"><u>[New] Disseminating Tweeted Videos on the World's Biggest Social Site for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-tips-for-adding-youtube-music-to-video/"><u>[New] In 2024, Tips For Adding YouTube Music To Video</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-ultimate-guide-to-iphones-macro-and-close-up-photography-tactics/"><u>[New] In 2024, Ultimate Guide to iPhone's Macro & Close-Up Photography Tactics</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-unveiling-the-superior-video-compression-in-av1/"><u>[New] Unveiling the Superior Video Compression in AV1</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-exploring-top-tier-no-cost-webm-video-streamers-for-browsers/"><u>[Updated] Exploring Top-Tier, No-Cost WebM Video Streamers for Browsers</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-step-by-step-slow-motion-mastery-in-phantom-cameras/"><u>[Updated] In 2024, Step-by-Step Slow Motion Mastery in Phantom Cameras</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-mastering-quantum-hdr-techniques-for-professionals-for-2024/"><u>[Updated] Mastering Quantum HDR Techniques for Professionals for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-the-great-gimbal-debate-hero-black-vs-km-170-for-2024/"><u>[Updated] The Great Gimbal Debate HERO Black vs KM-170 for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-protection-an-in-depfth-analysis-of-the-procase-macbook-pro-13-sleeve/"><u>Affordable Protection: An In-Depfth Analysis of the ProCase MacBook Pro 13 Sleeve</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/tless-entertainment-looping-youtube-videos-for-tv-viewers/"><u>Effortless Entertainment Looping YouTube Videos for TV Viewers</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-dynamic-color-balance-helper/"><u>In 2024, Dynamic Color Balance Helper</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-expert-tips-to-improve-skype-broadcasts-using-obs/"><u>In 2024, Expert Tips to Improve Skype Broadcasts Using OBS</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-itel-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Itel A05s | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/innovative-solutions-for-your-ultimate-3d-viewing-needs/"><u>Innovative Solutions for Your Ultimate 3D Viewing Needs</u></a></li>
-<li><a href="https://sound-optimizing.techidaily.com/new-2024-approved-fine-tuning-audacitys-decibel-settings-for-perfect-balance/"><u>New 2024 Approved Fine-Tuning Audacitys Decibel Settings for Perfect Balance</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/professional-gamers-choice-in-depth-analysis-of-dough-spectrums-27-oled-display-top-tiers-in-color-precision-and-visual-fidelity/"><u>Professional Gamers' Choice: In-Depth Analysis of Dough Spectrum's 27 OLED Display - Top Tiers in Color Precision & Visual Fidelity</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/troubleshooting-guide-why-are-my-plex-subtitles-missing-and-how-can-i-get-them/"><u>Troubleshooting Guide: Why Are My Plex Subtitles Missing and How Can I Get Them?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-elevating-systems-essential-tips-for-successful-upgrades/"><u>[New] 2024 Approved Elevating Systems Essential Tips for Successful Upgrades</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-understanding-magixs-acid-pro-and-its-market-rivals/"><u>[New] 2024 Approved Understanding Magix's ACID Pro and Its Market Rivals</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-how-much-space-does-a-days-video-take-up-for-2024/"><u>[New] How Much Space Does a Day's Video Take Up for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-gag-galore-a-treasury-of-no-cost-memes/"><u>[New] In 2024, Gag Galore A Treasury of No-Cost Memes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-integrating-subtitles-into-your-online-social-videography-efforts/"><u>[New] Integrating Subtitles Into Your Online Social Videography Efforts</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-pioneering-tools-for-modern-gameplay-recording-for-2024/"><u>[New] Pioneering Tools for Modern Gameplay Recording for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-insightful-recap-updated-sony-bdp-s3700-features/"><u>[Updated] 2024 Approved Insightful Recap Updated Sony BDP-S3700 Features</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-is-inshot-outshining-others-in-editing-features/"><u>[Updated] 2024 Approved Is InShot Outshining Others in Editing Features?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-a-teachers-journey-through-multimedia-educational-practices/"><u>[Updated] A Teacher’s Journey Through Multimedia Educational Practices</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unleashing-content-effortless-download-of-youtube-video-for-ios/"><u>[Updated] In 2024, Unleashing Content Effortless Download of Youtube Video for iOS</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-photographers-ultimate-cloud-companion-infinite-free-and-paid-sky-sanctuaries/"><u>[Updated] Photographer’s Ultimate Cloud Companion Infinite, Free & Paid Sky Sanctuaries</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1-troubleshooting-audio-issues-how-to-fix-incorrect-sound-on-your-device-guided-by-yl-computing/"><u>1. Troubleshooting Audio Issues: How To Fix Incorrect Sound on Your Device - Guided by YL Computing</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-securing-your-ps4-adventures-with-advanced-recording/"><u>2024 Approved Securing Your PS4 Adventures with Advanced Recording</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On ZTE Nubia Z60 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fostering-love-with-fluency-beyond-words/"><u>Fostering Love with Fluency Beyond Words</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-zte-blade-a73-5g-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked ZTE Blade A73 5G in Minutes | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-realme-gt-5-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from Realme GT 5 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-livestream-leap-backwards-twenty-efficient-ways-for-twitch-enthusiasts/"><u>In 2024, Livestream Leap Backwards Twenty Efficient Ways for Twitch Enthusiasts</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-unheard-film-footage-appraisal-and-parallel-projects/"><u>In 2024, Unheard Film Footage Appraisal and Parallel Projects</u></a></li>
 </ul></div>
 

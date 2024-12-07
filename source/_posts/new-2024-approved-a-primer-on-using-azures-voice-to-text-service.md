@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  A Primer on Using Azure's Voice-to-Text Service\""
-date: 2024-11-22T16:13:33.418Z
-updated: 2024-11-27T21:26:33.291Z
+date: 2024-12-03T18:08:44.188Z
+updated: 2024-12-06T17:10:17.713Z
 tags: 
   - screen-recording
   - ai video
@@ -44,7 +44,7 @@ If you're not good with programming languages, use Speech CLI, a command tool th
 It is also worth noting that Azure Speech Studio supports keyword recognition or keyword spotting. You can generate keyword recognition models and specify any short phrase or word. Users can also personalize keywords with the correct punctuations. And best of all, there is no extra cost for customizing keywords.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Step by Step Guide to Transcribe Speech to Text with Microsoft Speech Studio
@@ -67,14 +67,10 @@ Step6Now it's time to convert speech to text using Azure STT Service. To do that
 
 ![icon note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note:** Click [this video](https://docs.microsoft.com/en-us/shows/one-dev-minute/how-to-use-the-azure-cognitive-services-net-speech-sdk-for-recognition) for a detailed guide on how to use Azure Speech Services with Visual Basic (SDK).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: What Are the Free Alternatives to the Microsoft Speech to Text Service?
@@ -91,6 +87,10 @@ When you want to make perfect videos, you can use Filmora's STT feature. Wonders
 
 What's more, now Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription in Filmora.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Top Adavantages of Filmora STT
 
 * Supports direct transcription of bilingual subtitles.
@@ -102,7 +102,7 @@ What's more, now Filmora's STT feature supports direct transcription of bilingua
 [Make STT Videos](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Use Filmora To Make STT videos
@@ -113,15 +113,15 @@ Select the audio asset in the timeline, and click the "Speech-to-Text" icon in t
 
 ![toolbar stt](https://images.wondershare.com/filmora/guide/guide-win/toolbar-stt.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step 2
 
 Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription
 
 ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Google Docs - Free
 
@@ -155,10 +155,6 @@ Step2Drag-n-drop your video or audio file on the program and then choose the tra
 
 Step3Finally, click the transcribed text file to edit it with new texts and punctuations on the inbuilt editor. You can export your transcription in .txt, .srt, or .docx formats. Directly export to Google Drive is also available.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Final Words
 
 Up to this point, you should be ready to get started with the **Microsoft Cognitive Services Speech**. The speech-to-text feature allows you to convert unlimited voices to text on your computer. However, the program can be challenging to set up if you're not a techie.
@@ -172,6 +168,11 @@ In that case, use a more straightforward option like Google Docs to dictate text
 [Try STT Now](https://tools.techidaily.com/wondershare/filmora/download/) [Try STT Now](https://tools.techidaily.com/wondershare/filmora/download/) [Explore STT](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
+
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 
 <ins class="adsbygoogle"
@@ -192,19 +193,22 @@ In that case, use a more straightforward option like Google Docs to dictate text
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-demystifying-digital-dreamscapes-a-vr-primer/"><u>[New] Demystifying Digital Dreamscapes A VR Primer</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-sculpt-social-shares/"><u>[New] Sculpt Social Shares</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-enhance-visuals-in-video-calls-with-ms-teams-zoom-for-2024/"><u>[Updated] Enhance Visuals in Video Calls with MS Teams Zoom for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-exploring-top-open-source-video-tools-for-pcs-and-macs/"><u>[Updated] In 2024, Exploring Top Open Source Video Tools for PCs and Macs</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-sky-archives-reimagined-exploring-the-best-cloud-vaults-of-2024/"><u>[Updated] Sky Archives Reimagined Exploring the Best Cloud Vaults of 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-social-media-video-to-music-conversion-guide/"><u>[Updated] Social Media Video to Music Conversion Guide</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-integrating-b-roll-effectively-without-distraction/"><u>2024 Approved Integrating B Roll Effectively Without Distraction</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723015949127-audio-malfunction-in-chrome-heres-the-fix-that-works/"><u>Audio Malfunction in Chrome? Here's the Fix That Works</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-music-from-oneplus-open-by-fonelab-android-recover-music/"><u>Best Android Data Recovery - Undelete Lost Music from OnePlus Open</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Google Pixel Fold | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-the-activation-lock-on-your-ipad-and-apple-iphone-15-pro-max-without-apple-account-by-drfone-ios/"><u>In 2024, How to Remove the Activation Lock On your iPad and Apple iPhone 15 Pro Max without Apple Account</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-navigating-the-intricacies-of-networked-livestream-with-vlc/"><u>In 2024, Navigating the Intricacies of Networked Livestream with VLC</u></a></li>
-<li><a href="https://driver-error.techidaily.com/seagate-external-drives-and-windows-10-connection-woes/"><u>Seagate External Drives & Windows 10 Connection Woes</u></a></li>
-<li><a href="https://driver-error.techidaily.com/the-ultimate-fix-for-a-missing-intel-xeon-coprocessor-driver-on-windows-10-tutorial/"><u>The Ultimate Fix for a Missing Intel Xeon Coprocessor Driver on Windows 10: Tutorial</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-aerial-innovations-explained-drone-technology-simplified/"><u>[New] 2024 Approved Aerial Innovations Explained Drone Technology Simplified</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-crafting-artful-iphone-snaps-master-these-top-10-design-tactics/"><u>[New] 2024 Approved Crafting Artful iPhone Snaps - Master These Top 10 Design Tactics</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-how-to-download-and-share-tiktok-videos-on-iphone-no-watermark-present/"><u>[New] 2024 Approved How to Download and Share TikTok Videos on iPhone, No Watermark Present</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-high-res-horizons-in-depth-analysis-of-samsung-ue590-tv/"><u>[New] In 2024, High-Res Horizons In-Depth Analysis of Samsung UE590 TV</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-how-to-fix-iphone-camera-not-focusing-problem/"><u>[New] In 2024, How to Fix iPhone Camera Not Focusing Problem</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-introduction-to-effective-telegram-promotion-for-rookies/"><u>[Updated] 2024 Approved Introduction to Effective Telegram Promotion for Rookies</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-premium-selection-of-portable-mp4s/"><u>[Updated] Premium Selection of Portable MP4s</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/convertir-imagenes-dng-a-jpg-gratuito-en-linea-con-movavi/"><u>Convertir Imágenes DNG a JPG Gratuito en Línea Con Movavi</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/dynamic-focus-enhanced-handheld-shot-quality-for-2024/"><u>Dynamic Focus Enhanced Handheld Shot Quality for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/guide-on-how-to-change-your-apple-id-email-address-on-apple-iphone-12-mini-drfone-by-drfone-ios/"><u>Guide on How To Change Your Apple ID Email Address On Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-vivo-s17e-by-drfone-android/"><u>How to Bypass FRP on Vivo S17e?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/imovie-magic-ranking-the-best-8-free-and-paid-film-apps/"><u>IMovie Magic Ranking the Best 8 Free and Paid Film Apps</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-reclaim-your-loss-with-these-top-10-iphone-x-hacks/"><u>In 2024, Reclaim Your Loss with These Top 10 iPhone X Hacks</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-vivo-y78plus-t1-edition-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Vivo Y78+ (T1) Edition Screen | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/perfecting-proximity-views-an-essential-for-roblox-enthusiasts-for-2024/"><u>Perfecting Proximity Views An Essential for Roblox Enthusiasts for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/swift-searches-for-abandoned-reddit-discussions/"><u>Swift Searches for Abandoned Reddit Discussions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-evolution-of-music-production-software-with-magix-studio-max-2024/"><u>The Evolution of Music Production Software with Magix Studio Max 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] A Beginner's Guide to Understanding YouTube Responses for 2024"
-date: 2024-11-26T16:30:36.581Z
-updated: 2024-11-27T16:19:16.702Z
+date: 2024-11-30T03:24:15.019Z
+updated: 2024-12-07T01:08:08.850Z
 tags: 
   - screen-recording
   - ai video
@@ -34,7 +34,7 @@ Want to become the master of moderation? Read on for everything you need to know
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What is YouTube Comment
@@ -45,6 +45,10 @@ Not only does it show your fans followers that you care about what they have to 
 
 For YouTubers who are serious about growing their channel and making their brand profitable, you know by now that there are certain tricks and strategies that you have to apply and put in place to make your YouTube channel what you want it to be.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Advantage of YouTube comments
 
 If you're wondering whether you really need to monitor your YouTube comments, here are three compelling reasons why you should:
@@ -52,6 +56,10 @@ If you're wondering whether you really need to monitor your YouTube comments, he
 * YouTube comments can help you gauge customer sentiment: How do your viewers respond to your content? Positively? Negatively? Not at all? Monitoring your comments can help you understand how viewers feel about your brand.
 * YouTube comments present an opportunity for engagement: Responding quickly to negative comments could help you improve your image-not just with an unhappy viewers, but also with other YouTube viewers who see how you respond to conflict.
 * YouTube comments could help you develop new content: YouTube users aren't shy about expressing their opinions. Pay attentions to what they're saying about your content, and how can develop new content that they want to see.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Comment on a YouTube Video
 
@@ -83,16 +91,12 @@ Step1 Open your chosen browser, head to YouTube, then sign in to your Google/You
 
 ![sign in youtube account](https://images.wondershare.com/filmora/article-images/2022/11/sign-in-youtube-account.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 On the YouTube homepage, click on the three horizontal parallel lines in the top-left corner. A drop down menu appears, including the trending videos of the day, your subscriptions and your settings.
 
 ![horizontal parallel lines youtube](https://images.wondershare.com/filmora/article-images/2022/11/horizontal-parallel-lines-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step3 From the drop down menu, select “History”.
@@ -102,7 +106,7 @@ Step4 On the right side under the “Manage all history” section, click on “
 ![manage all history comments youtube](https://images.wondershare.com/filmora/article-images/2022/11/manage-all-history-comments-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step5 To edit your comment, click on the “vertical ellipsis” (three vertical dots) on the far right side of the listed video page.
@@ -134,10 +138,6 @@ Retrieve a comment so that you can share it with others outside of YouTube.
 Comments history also contains the link to the video where you've left the comment along with the date and time when the comment was made. Clicking on this link will open the video page with your comment highlighted at the top of the comment section.
 
 ![delete unwanted youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/delete-unwanted-youtube-comments.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -175,24 +175,20 @@ One way you can encourage people to leave comments on your videos is to finish t
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-a-comprehensive-list-of-excellent-fb-cover-photo-creators/"><u>[New] 2024 Approved A Comprehensive List of Excellent FB Cover Photo Creators</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-composing-the-unseen-background-sounds-for-movie-teasers-for-2024/"><u>[New] Composing the Unseen Background Sounds for Movie Teasers for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-comprehensive-list-zoom-recording-must-haves/"><u>[New] Comprehensive List Zoom Recording Must-Haves</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-channel-charisma-standing-out-with-strategic-telegram-promotion/"><u>[New] In 2024, Channel Charisma Standing Out with Strategic Telegram Promotion</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-prime-portals-for-digital-type-art-for-2024/"><u>[New] Prime Portals for Digital Type Art for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-10-powerful-igtv-video-tips-for-amplified-brand-impact-for-2024/"><u>[Updated] 10 Powerful IGTV Video Tips for Amplified Brand Impact for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-ultimate-selection-top-hdr-camera-picks/"><u>[Updated] 2024 Approved Ultimate Selection Top HDR Camera Picks</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unleash-the-content-free-movie-player-windowsmac/"><u>[Updated] 2024 Approved Unleash the Content FREE MOVIE PLAYER (Windows/Mac)</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-elite-visualsai-cutting-edge-photo-transformations/"><u>[Updated] Elite VisualsAI Cutting-Edge Photo Transformations</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-diy-tips-for-instant-custom-youtube-shorts-coverage/"><u>[Updated] In 2024, DIY Tips for Instant Custom YouTube Shorts Coverage</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/guide-to-managing-web-videos-online-uploading-downloading-converting-and-editing-techniques/"><u>Guide to Managing Web Videos Online: Uploading, Downloading, Converting, and Editing Techniques</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-tecno-camon-20-premier-5g-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Tecno Camon 20 Premier 5G</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-yield-yonder-the-financial-fidelity-of-a-fanfare-figure/"><u>In 2024, Yield Yonder The Financial Fidelity of a Fanfare Figure</u></a></li>
-<li><a href="https://common-error.techidaily.com/navigate-windows-10-like-a-pro-advanced-guide-to-file-explorer/"><u>Navigate Windows 10 Like a Pro: Advanced Guide to File Explorer</u></a></li>
-<li><a href="https://windows11.techidaily.com/navigating-the-not-written-memory-crisis-in-win/"><u>Navigating the 'Not Written' Memory Crisis in Win</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/premier-listing-sierras-best-video-maker-apps-for-2024/"><u>Premier Listing Sierra's Best Video Maker Apps for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/simplifying-the-windows-search-interface-no-graphics/"><u>Simplifying the Windows Search Interface: No Graphics</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/untapped-realities-of-instagram-story-watchers/"><u>Untapped Realities of Instagram Story Watchers</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/zoom-video-refinement-best-three-enhancement-steps-for-2024/"><u>Zoom Video Refinement Best Three Enhancement Steps for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-revive-your-experience-with-these-key-iphone-x-tips/"><u>[New] 2024 Approved Revive Your Experience with These Key iPhone X Tips</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-vinyl-virtuoso-access-to-premium-dj-video-samples/"><u>[New] 2024 Approved Vinyl Virtuoso Access to Premium DJ Video Samples</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-visual-storytelling-scribing-text-over-image-realms-online/"><u>[New] 2024 Approved Visual Storytelling Scribing Text over Image Realms Online</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-simplifying-cross-platform-sharing-instagram-and-facebook-integration/"><u>[Updated] 2024 Approved Simplifying Cross-Platform Sharing Instagram & Facebook Integration</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209900940-9781623174934-deep-liberation/"><u>Deep Liberation | Free Book</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/focal-flares-amplifying-your-footage-visually/"><u>Focal Flares Amplifying Your Footage Visually</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138570758-9780595612413-for-those-who-care-to-learn/"><u>For Those Who Care to Learn | Free Book</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-fake-gps-without-root-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Fake GPS Without Root On Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-oppo-f25-pro-5g-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Oppo F25 Pro 5G?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-samsung-galaxy-a25-5g-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Samsung Galaxy A25 5G FRP In 3 Different Ways</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-quintessential-scriptwriting-throughout-the-film-landscape/"><u>In 2024, Quintessential Scriptwriting Throughout the Film Landscape</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/incorporating-picture-in-picture-in-browsing-with-edge-for-2024/"><u>Incorporating Picture-In-Picture in Browsing with Edge for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/precision-viewing-at-a-glance-quick-minigame-tips-for-2024/"><u>Precision Viewing at a Glance Quick Minigame Tips for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/televising-streamed-social-media-vids-in-households/"><u>Televising Streamed Social Media Vids in Households</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-budding-filmmakers-companion-understanding-display-quality-101-for-2024/"><u>The Budding Filmmaker’s Companion Understanding Display Quality 101 for 2024</u></a></li>
 </ul></div>
 

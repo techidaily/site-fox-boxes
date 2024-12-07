@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Synthesizing Worlds  Latest Trends in Virtual Tech for 2024\""
-date: 2024-11-22T21:16:45.910Z
-updated: 2024-11-27T20:42:41.941Z
+date: 2024-12-03T19:15:22.900Z
+updated: 2024-12-07T00:12:15.035Z
 tags: 
   - screen-recording
   - ai video
@@ -31,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/f0eb15dbd4d3bc9550ae7ac5d466cfd7136ebba59
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What’s the popular VR platforms and what is developing fast?
 
  Well, the fourth Annual GDC European State of the Industry was held just about a month ago and as always, developers from various parts of this continent took part in it. It was very clear from the developers that they are still launching games keeping the PC and Smart Phones in mind. These are still the most popular platforms where 49 percent of the developers made their latest release on PC/Mac, around 41 percent chose smart phones and tablets to be the best medium.
@@ -41,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/f0eb15dbd4d3bc9550ae7ac5d466cfd7136ebba59
  )
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The VR gaming development is truly rising then
@@ -51,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/f0eb15dbd4d3bc9550ae7ac5d466cfd7136ebba59
 ![vr-gaming ](https://images.wondershare.com/filmora/resource/vr-gaming1.jpg )
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  This clears the air that VR is turning to be an emerging platform for the European game developers but, which one is preferred more by the professional game developers – is it the Oculus Rift or HTC Vive or something else for that matter? The survey also includes a detailed report on that as well. Asking about which VR platform they are using – 23.1 percent developers said they are using Rift, Vive is slightly behind with 22 percent developers’ preferences. There is PlayStation VR headset as well with 11.8 percent preferences.
@@ -59,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/f0eb15dbd4d3bc9550ae7ac5d466cfd7136ebba59
  However, despite having such acceptance by the professional game developers, the confidence for the VR games market seems to have dropped a bit – at least the recent survey is showing something like that. Last year, 71.7 percent of the game developers considered VR to be a sustainable long-term market while in this year, it slipped a little with 68.8 percent developers are thinking VR could be a long sustaining gaming market.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## About the European VR game makers and their funding
@@ -68,10 +72,6 @@ thumbnail: https://thmb.techidaily.com/f0eb15dbd4d3bc9550ae7ac5d466cfd7136ebba59
 
 ![ vr-developer](https://images.wondershare.com/filmora/resource/vr-developer.jpg )
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  We know that crowdsourced funding is also a preferable way to manage funds but, this seems not very convenient for the VR game developers since a very poor percentage (5.2) of the developers replied that they are working on games the fund of which is crowdsourced. While some developers consider this as an awful idea, some mentioned this to be a tricky process.
 
  Overall, this is what cooking inside the VR gaming world and this survey report explains the different aspects of virtual reality that clearly presents the state of the VR industry on this year – 2016\. Hopefully, we will come across much more advancement to this process in the coming years since gaming on VR headsets is massively exciting and fun.
@@ -79,7 +79,7 @@ thumbnail: https://thmb.techidaily.com/f0eb15dbd4d3bc9550ae7ac5d466cfd7136ebba59
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -107,18 +107,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-how-to-trim-youtube-videos-like-a-pro/"><u>[New] 2024 Approved How to Trim YouTube Videos Like a Pro</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-iphones-secret-to-quick-cost-free-red-eye-removal-revealed/"><u>[New] IPhone's Secret to Quick, Cost-Free Red-Eye Removal Revealed</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-chucklecraft-pixel-perfect-humor/"><u>[Updated] 2024 Approved ChuckleCraft Pixel-Perfect Humor</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-immersion-redefined-vrs-cinematic-promise/"><u>[Updated] Immersion Redefined VR's Cinematic Promise</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-expert-tips-for-blending-multiple-hdr-photographs-in-lightroom/"><u>[Updated] In 2024, Expert Tips for Blending Multiple HDR Photographs in Lightroom</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-streaming-selection-saga-choose-between-engaging-podcasts-and-youtube-channels/"><u>[Updated] In 2024, Streaming Selection Saga Choose Between Engaging Podcasts and YouTube Channels</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-free-online-10-the-best-subtitles-tools/"><u>2024 Approved Free Online 10 The Best Subtitles Tools</u></a></li>
-<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-samsung-galaxy-a24-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Samsung Galaxy A24 | Dr.fone</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-harmonizing-scores-with-cinematic-vision-in-film-trailers/"><u>In 2024, Harmonizing Scores with Cinematic Vision in Film Trailers</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-iphone-filmmaking-masterclass-8-steps-to-pro-video-excellence/"><u>In 2024, IPhone Filmmaking Masterclass 8 Steps to Pro Video Excellence</u></a></li>
-<li><a href="https://win-latest.techidaily.com/solucion-para-error-de-acceso-denegado-en-la-sincronizacion-de-archivos-desconectados-en-windows-10/"><u>Solución Para Error De Acceso Denegado en La Sincronización De Archivos Desconectados en Windows 10</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/teaching-techniques-with-youtube-a-practical-approach-for-2024/"><u>Teaching Techniques with YouTube A Practical Approach for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-oneplus-ace-2v-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for OnePlus Ace 2V Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-comparing-top-free-players-vlc-or-mpc/"><u>[New] Comparing Top Free Players VLC or MPC?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-heaviest-inflight-lifters-unveiled-top-10-list/"><u>[New] In 2024, Heaviest Inflight Lifters Unveiled - Top 10 List</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-enhance-video-quality-pc-and-mobile-filter-integration/"><u>[Updated] 2024 Approved Enhance Video Quality PC & Mobile Filter Integration</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-metaverse-persona-design-a-beginners-compreraniary-guide-for-2024/"><u>[Updated] Metaverse Persona Design A Beginner's Compreraniary Guide for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-the-complete-guide-transforming-movie-visuals-using-standardized-luts-from-cg-central-for-2024/"><u>[Updated] The Complete Guide Transforming Movie Visuals Using Standardized Luts From CG Central for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-unveiling-vr-video-versus-spherical-capture-tech-distinctions/"><u>[Updated] Unveiling VR Video versus Spherical Capture Tech Distinctions</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/commanders-quest-the-ultimate-list-of-total-war-classics-for-2024/"><u>Commanders’ Quest The Ultimate List of Total War Classics for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/from-novice-to-expert-crafting-top-tier-reddit-posts/"><u>From Novice to Expert Crafting Top-Tier Reddit Posts</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-live-image-processing-into-continuous-action-frames/"><u>In 2024, Live Image Processing Into Continuous Action Frames</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-the-revolutionary-impact-future-of-vr-cinematic-experience/"><u>In 2024, The Revolutionary Impact Future of VR Cinematic Experience</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-upgrading-to-high-def-facebook-broadcasts/"><u>In 2024, Upgrading to High-Def Facebook Broadcasts</u></a></li>
+<li><a href="https://win-able.techidaily.com/overcoming-dragon-quest-xi-performance-hiccups-solved/"><u>Overcoming Dragon Quest XI Performance Hiccups: Solved!</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/ultimate-handheld-systems-enhanced-stability-on-iosandroiddslr/"><u>Ultimate Handheld Systems Enhanced Stability on iOS/Android/DSLR</u></a></li>
 </ul></div>
 

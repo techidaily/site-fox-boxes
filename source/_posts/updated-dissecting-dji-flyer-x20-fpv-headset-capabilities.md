@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Dissecting DJi Flyer X20 FPV Headset Capabilities"
-date: 2024-09-01T14:11:28.391Z
-updated: 2024-09-02T14:11:28.391Z
+date: 2024-12-05T03:06:59.260Z
+updated: 2024-12-06T16:40:04.978Z
 tags: 
   - screen-recording
   - ai video
@@ -29,6 +29,10 @@ thumbnail: https://thmb.techidaily.com/32a49341dcd2e3ff58b1a58ec7c331011d71244cd
  Last year, DJI released [Mavic Pro's](https://tools.techidaily.com/wondershare/filmora/download/) Foldable small unmanned aerial vehicles, which has a mini body capable of being fit into the camera bag with awesome flight power. And it supports 4K real-time video transmission from up to 2 km away. It has almost compacted every sensor in Phantom 4 inside Mavic Pro. It is an excellent choice for small unmanned aerial vehicles (From 24th May, the best choice is DJI Spark). However, the public has not officially seen an accessory that was revealed in the conference. This is DJI Goggles – a first person perspective FPV flying glasses that has resolution comparable to VR glasses. Now, it is finally online on [DJI website](https://www.dji.com/dji-goggles). The price is $499 and is available for purchase on 20th May.
 
 [Check at Amazon](https://www.amazon.com/gp/product/B071Z6DSHB/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B071Z6DSHB&linkId=7289b5ef284ae3b0206e825eeb794baa)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Design
 
@@ -63,13 +67,11 @@ thumbnail: https://thmb.techidaily.com/32a49341dcd2e3ff58b1a58ec7c331011d71244cd
  Moreover, DJI Goggles can be connected to a computer, PS4 for watching videos and gaming. But, regarding to experience…the same budget can allow you to purchase 28" 4K display.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Main features and experience
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ### Head Tracking
 
 ###### #1\. What is Head Tracking
@@ -93,8 +95,9 @@ thumbnail: https://thmb.techidaily.com/32a49341dcd2e3ff58b1a58ec7c331011d71244cd
  The mission of 3-axis gimbal is to remove any camera shakes and stabilize the footage. But, the DJI Goggles' head tracking actually bring back these shakes which do not come from the camera itself, but as a result of the commands of head tracking.
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Tapfly
 
 ###### #1\. What is Tapfly
@@ -103,9 +106,6 @@ thumbnail: https://thmb.techidaily.com/32a49341dcd2e3ff58b1a58ec7c331011d71244cd
 
 ![DJI Goggle's touchpad](https://images.wondershare.com/filmora/article-images/goggles-touchpad.gif)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Image resource: [DJI Official Site](https://store.dji.com/guides/dji-goggles-unboxing-and-quick-review/)
 
 ###### #2\. Experience
@@ -113,8 +113,9 @@ thumbnail: https://thmb.techidaily.com/32a49341dcd2e3ff58b1a58ec7c331011d71244cd
  DJI Goggles's main interaction needs to be done through the touchpad. This touchpad supports swipe and clicks of single and double fingers. It is responsive to unusual speed. Sometimes it is too sensitive that occasionally, a swipe will be misunderstood as a click. In the case of a fault in touch, we can use double fingers to slide back to lock the touchpad.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
  As DJI's first generation digital image transmission FPV goggles, I think it has a lot of room for improvement. Although Many software issues and hardware design still need to be improved, I think it worth to try.
@@ -122,8 +123,9 @@ thumbnail: https://thmb.techidaily.com/32a49341dcd2e3ff58b1a58ec7c331011d71244cd
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -147,4 +149,20 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-high-quality-webcam-capture-made-easy-review-for-2024/"><u>[New] High-Quality WebCam Capture Made Easy Review for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-revolutionize-how-you-interact-with-tech-best-mac-tts-programs-reviewed-for-2024/"><u>[New] Revolutionize How You Interact with Tech Best Mac TTS Programs Reviewed for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-verdict-on-video-clips-a-deep-dive-into-inshots-performance-for-2024/"><u>[New] The Verdict on Video Clips A Deep Dive Into InShot's Performance for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-lost-footage-immediate-removal-impacts/"><u>[Updated] 2024 Approved Lost Footage Immediate Removal Impacts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exclusive-guide-to-the-best-7-android-browsers-ad-free-for-2024/"><u>[Updated] Exclusive Guide to the Best 7 Android Browsers, Ad-Free for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-mastering-view-access-for-groups-shared-stuff/"><u>[Updated] In 2024, Mastering View Access for Group's Shared Stuff</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-quick-image-transfiguration-winmac-photo-animation-pro/"><u>[Updated] In 2024, Quick Image Transfiguration Win/Mac Photo Animation Pro</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-samsung-photo-editor-review-pros-con-features-and-guide/"><u>[Updated] Samsung Photo Editor Review - Pros, Con, Features, and Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-step-up-your-photo-game-with-these-ingenious-pixlr-techniques/"><u>[Updated] Step Up Your Photo Game with These Ingenious Pixlr Techniques</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-htc-u23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-through-unreachable-device-error-in-windows/"><u>Navigating Through Unreachable Device Error in Windows</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/premier-6-platforms-for-video-localization-for-2024/"><u>Premier 6 Platforms for Video Localization for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1726227254814-mpg-movavi/"><u>무료 MPG 계산기를 사용한 오토바이 도시 가스 대비에서의 원활한 온라인 전환 – Movavi</u></a></li>
+</ul></div>
 

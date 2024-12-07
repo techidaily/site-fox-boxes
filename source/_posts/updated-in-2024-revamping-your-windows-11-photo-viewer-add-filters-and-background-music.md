@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Revamping Your Windows 11 Photo Viewer  Add Filters and Background Music\""
-date: 2024-09-01T14:11:32.227Z
-updated: 2024-09-02T14:11:32.227Z
+date: 2024-12-05T21:01:41.839Z
+updated: 2024-12-06T17:25:52.270Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,10 @@ Having Windows 10 Photos app is an advantage for you. This is not like any other
 
 **You may also like:** [How to Trim Video in Windows 10 Photos Easily >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to add filters on Windows 10 Photos App
 
 If you have got Windows 10 Photos app and wish to add filters, though, it is by default a photo viewing app, its editing features are worth to mention. This step by step guide is your perfect savior in that case.
@@ -53,6 +57,10 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 **Step 5**: Just select one you like. Preview it and then click Done.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to add music on Windows 10 Photos App
 
 Now that you have learnt how to **_add filters using Windows 10 Photos app._** Do you think there is any possibility regarding adding music over it? Adding music to your video would make it more enjoyable. The artificial intelligence feature on Windows 10 Photos app helps it add music to videos with a single click. It’s easy to do, but meanwhile there will be some twitches to the way artificial intelligence videos show up as you try to match the volume and tempo of the music. But, you can do it with the help of default Microsoft tools.
@@ -69,11 +77,16 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5**: Hit the ‘Done’ button.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
@@ -81,8 +94,9 @@ From the above article, we conclude that Windows 10 Photos app is an amazing app
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -106,4 +120,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-best-no-entry-price-voice-transformation-for-valorant-gamers-for-2024/"><u>[New] Best No-Entry Price Voice Transformation for Valorant Gamers for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-phone-speaker-transcriber-voice-logging-iphone-24/"><u>[New] In 2024, Phone Speaker Transcriber Voice Logging (iPhone '24)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-write-on-windows-of-imagery-ios-and-android-leaders/"><u>[New] Write on Windows of Imagery – iOS & Android Leaders</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-captivating-images-with-intentional-leading-lines-iphone/"><u>[Updated] 2024 Approved Captivating Images with Intentional Leading Lines (iPhone)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-comprehensive-list-securing-monetized-youtube-content/"><u>[Updated] 2024 Approved Comprehensive List Securing Monetized YouTube Content</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-full-circle-camera-unboxing-and-tests/"><u>[Updated] 2024 Approved Full Circle Camera Unboxing & Tests</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-finding-chrome-companions-custom-melodies-for-2024/"><u>[Updated] Finding Chrome Companion's Custom Melodies for 2024</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/pro/"><u>「超簡単」:プレミアPro動画容量軽減のコツとテクニック</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ais-influence-on-language-shaping-and-long-term-employment-potential/"><u>AI's Influence on Language Shaping & Long-Term Employment Potential</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/die-ultimative-finanzfuhrersache-erfahrungen-und-tipps-von-deutschlands-spitzentransparente-auf-der-abbyy-konferenz-2016/"><u>Die Ultimative Finanzführersache: Erfahrungen Und Tipps Von Deutschlands Spitzentransparente Auf Der ABBYY-Konferenz 2016</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-oppo-find-n3-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Oppo Find N3 Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-motorola-defy-2-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Motorola Defy 2 to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-immersive-worlds-unveiled-delving-into-mr-ar-and-vrs-distinctions/"><u>In 2024, Immersive Worlds Unveiled Delving Into MR, AR, and VR's Distinctions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-soaring-with-mi-drone-an-in-depth-4k-study/"><u>In 2024, Soaring with MI Drone - An In-Depth 4K Study</u></a></li>
+<li><a href="https://driver-error.techidaily.com/name-discovery-gpus-opengl-capable-in-intel/"><u>Name Discovery: GPU's OpenGL Capable in Intel</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/overcoming-digital-tv-glitches-improve-your-signal-with-a-dedicated-indoor-antenna/"><u>Overcoming Digital TV Glitches? Improve Your Signal with a Dedicated Indoor Antenna</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/smart-shopping-tips-economical-gopro-cameras-for-2024/"><u>Smart Shopping Tips Economical GoPro Cameras for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-ultimate-trivia-collection-general-knowledge-2024/"><u>The Ultimate Trivia Collection - General Knowledge 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-cut-to-the-chase-filmora-coupon-codes-without-the-fuss-for-2024/"><u>Updated Cut to the Chase Filmora Coupon Codes Without the Fuss for 2024</u></a></li>
+</ul></div>
 

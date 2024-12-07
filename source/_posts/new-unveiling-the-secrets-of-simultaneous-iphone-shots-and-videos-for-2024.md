@@ -1,7 +1,7 @@
 ---
 title: "[New] Unveiling the Secrets of Simultaneous iPhone Shots & Videos for 2024"
-date: 2024-11-25T16:10:13.559Z
-updated: 2024-11-27T20:59:04.402Z
+date: 2024-12-04T04:05:10.965Z
+updated: 2024-12-06T23:42:43.001Z
 tags: 
   - screen-recording
   - ai video
@@ -33,10 +33,6 @@ thumbnail: https://thmb.techidaily.com/4d13682289fd093707f3e488098e8b68b405e6325
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to shoot a still photo and record a video simultaneously on your iPhone
 
  The feature of simultaneous photo and video recording had begun since the coming of iPhone 5\. So, iPhone 5 and later model users can enjoy taking photos while recording videos while if we talk about other iOS devices, iPad makes this feature available with its fourth generation as well as iPod touch sixth generation started supporting the feature of capturing stills when recording videos.
@@ -50,7 +46,7 @@ thumbnail: https://thmb.techidaily.com/4d13682289fd093707f3e488098e8b68b405e6325
 ![](https://images.wondershare.com/filmora/article-images/take-photo-while-recording-videos-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image resource: igeeksblog.com
@@ -58,7 +54,7 @@ thumbnail: https://thmb.techidaily.com/4d13682289fd093707f3e488098e8b68b405e6325
 * Now, to take a still, just tap on the white 'take picture' button that can be noticed at the left of the red button. The screen will flicker each time you press the button to take the photo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### The drawbacks of taking photos and videos simultaneously
@@ -77,7 +73,7 @@ thumbnail: https://thmb.techidaily.com/4d13682289fd093707f3e488098e8b68b405e6325
 | **iPhone 7 series**  | 4032 × 3024               | 3412 × 1920                                  | 3840 × 2160                               | 1280 × 720                                    |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Extract frames from video
@@ -95,10 +91,14 @@ thumbnail: https://thmb.techidaily.com/4d13682289fd093707f3e488098e8b68b405e6325
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -125,20 +125,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-a-tutorial-for-adding-vintage-touches-instagram-filters-on-existing-media/"><u>[New] 2024 Approved A Tutorial for Adding Vintage Touches Instagram Filters on Existing Media</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-androids-best-free-mp3-extraction-tools/"><u>[New] 2024 Approved Android's Best Free MP3 Extraction Tools</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-mobile-audio-enhancers-for-swift-soundplay/"><u>[New] 2024 Approved Mobile Audio Enhancers for Swift Soundplay</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-webinar-playback-recordings/"><u>[New] 2024 Approved Webinar Playback Recordings</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-vital-top-5-compact-action-camera-selections/"><u>[New] In 2024, Vital Top 5 Compact Action Camera Selections</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-peak-performance-photography-the-ultimate-10-4k-mobile-camera-lineup/"><u>[New] Peak Performance Photography The Ultimate 10 4K Mobile Camera Lineup</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-is-inshot-the-best-video-editing-app-our-in-depth-review/"><u>[Updated] 2024 Approved Is InShot the Best Video Editing App? Our In-Depth Review</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-speed-kings-and-queens-key-moments-from-the-short-track-games-for-2024/"><u>[Updated] Speed Kings and Queens Key Moments From the Short Track Games for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-huawei-nova-y71-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Huawei Nova Y71 Wont Charge | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/call-of-duty-vanguard-stuck-heres-how-to-get-it-running-smoothly-again/"><u>Call of Duty: Vanguard Stuck? Here's How to Get It Running Smoothly Again</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Tecno Camon 30 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-enhance-productivity-with-these-20-proven-cost-free-storage-services/"><u>In 2024, Enhance Productivity With These 20 Proven, Cost-Free Storage Services</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/prime-zero-price-point-video-capturer/"><u>Prime Zero-Price Point Video Capturer</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-amazfit-helio-ring-cost-and-launch-details-features-revealed/"><u>Ultimate Guide: Amazfit Helio Ring Cost & Launch Details - Features Revealed</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/winning-the-battle-against-broken-synaptics-drivers-on-windows-10-tips-and-tricks/"><u>Winning the Battle Against Broken Synaptics Drivers on Windows 10 - Tips and Tricks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-navigating-the-world-of-file-conversion-in-vlc-starting-with-mp4/"><u>[New] 2024 Approved Navigating the World of File Conversion in VLC, Starting with MP4</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-picture-power-infusing-textual-elements-on-windows-and-mac-photo-canvas/"><u>[New] 2024 Approved Picture Power Infusing Textual Elements on Windows & Mac Photo Canvas</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-illustration-revolution-adding-depth-to-text-with-3d/"><u>[New] In 2024, Illustration Revolution Adding Depth to Text with 3D</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-image-weaving-the-art-of-photomontages/"><u>[New] In 2024, Image Weaving The Art of Photomontages</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-the-harmony-of-collaboration-brands-and-youtube-unite/"><u>[Updated] 2024 Approved The Harmony of Collaboration Brands & YouTube Unite</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-top-ten-mobile-sticker-adornment-apps-for-photos/"><u>[Updated] 2024 Approved Top Ten Mobile Sticker Adornment Apps for Photos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-basic-principles-of-story-artistry/"><u>[Updated] Basic Principles of Story Artistry</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-insiders-guide-to-pro-windows-10-expertise/"><u>[Updated] In 2024, Insider's Guide to Pro WINDOWS 10 Expertise</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-masterclass-setting-up-windows-movie-maker-60/"><u>[Updated] In 2024, Masterclass Setting Up Windows Movie Maker 6.0</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-ultimate-photography-journey-with-vsco-editing-tool/"><u>[Updated] In 2024, Ultimate Photography Journey with VSCO Editing Tool</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-the-essential-compendium-of-affordable-rich-graphics-resources-online-for-2024/"><u>[Updated] The Essential Compendium of Affordable, Rich Graphics Resources Online for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-crafting-perfection-ios-and-androids-best-montage-aides/"><u>2024 Approved Crafting Perfection IOS & Android's Best Montage Aides</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/explorando-el-formato-png-todo-lo-que-debes-saber-sobre-estos-archivos-comunes-en-internet/"><u>Explorando El Formato PNG: Todo Lo Que Debes Saber Sobre Estos Archivos Comunes en Internet</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-evaluating-superiority-gopros-max-and-hero-11-face-off/"><u>In 2024, Evaluating Superiority GoPro's Max and Hero 11 Face-Off</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Realme 11 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-top-10-tv-streaming-platforms-in-depth-comparisons/"><u>In 2024, Top 10 TV Streaming Platforms In-Depth Comparisons</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-motorola-moto-g73-5g-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Motorola Moto G73 5G to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/syncopating-soundtracks-with-flawless-audio-transitions/"><u>Syncopating Soundtracks with Flawless Audio Transitions</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-itel-a05s-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Itel A05s | Dr.fone</u></a></li>
 </ul></div>
 

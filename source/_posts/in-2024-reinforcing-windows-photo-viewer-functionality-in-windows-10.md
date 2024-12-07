@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Reinforcing Windows Photo Viewer Functionality in Windows 10"
-date: 2024-11-25T19:24:37.253Z
-updated: 2024-11-27T17:11:20.790Z
+date: 2024-12-05T23:33:11.756Z
+updated: 2024-12-06T21:29:43.415Z
 tags: 
   - screen-recording
   - ai video
@@ -42,7 +42,7 @@ Stay tuned to learn more!
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Why you prefer Windows Photo Viewer
@@ -64,11 +64,11 @@ Here is why they want to restore Windows Photo Viewer –
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 1 to restore Windows Photo Viewer
 
@@ -81,6 +81,10 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -101,11 +105,7 @@ Here is the detailed guide –
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -114,11 +114,11 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -145,20 +145,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-harmony-in-transition-crafting-crossfade-effects/"><u>[New] 2024 Approved Harmony in Transition Crafting Crossfade Effects</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-agricultural-adventures-with-allies-top-10-farmers-titles-for-2024/"><u>[New] Agricultural Adventures with Allies Top 10 Farmer's Titles for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-craft-professional-tiktoks-mastery-of-numerical-changes/"><u>[New] Craft Professional TikToks Mastery of Numerical Changes</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-vr-horizons-the-premier-pc-headsets-of-today/"><u>[New] VR Horizons The Premier PC Headsets of Today</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-personalize-your-viewing-experience-building-a-google-cardboard-vr-setup/"><u>[Updated] 2024 Approved Personalize Your Viewing Experience Building a Google Cardboard VR Setup</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unlock-the-power-of-periscope-your-complete-manual/"><u>[Updated] 2024 Approved Unlock the Power of Periscope Your Complete Manual</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-elevating-positivity-in-a-constructive-space-for-2024/"><u>[Updated] Elevating Positivity in a Constructive Space for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-reimagining-stills-as-continuous-motion-sessions/"><u>2024 Approved Reimagining Stills as Continuous Motion Sessions</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/immersive-odyssey-top-10-best-free-mmorpgs-ever-for-2024/"><u>Immersive Odyssey Top 10 Best Free MMORPGs Ever for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-samsung-galaxy-z-flip-5-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Samsung Galaxy Z Flip 5 to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Samsung Galaxy M34 | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-the-updated-method-to-bypass-oppo-reno-11f-5g-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Oppo Reno 11F 5G FRP</u></a></li>
-<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-realme-c67-4g-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Realme C67 4G Phone FRP Lock</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/tiktok-age-update-made-simple-user-friendly-techniques-for-2024/"><u>TikTok Age Update Made Simple User-Friendly Techniques for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-masterclass-navigating-through-the-best-cricket-livestreams/"><u>[New] 2024 Approved Masterclass Navigating Through the Best Cricket Livestreams</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-initiating-earnings-journey-on-periscope-platform-for-2024/"><u>[New] Initiating Earnings Journey on Periscope Platform for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-top-15-royalty-free-music-hideouts-for-video-artists/"><u>[New] Top 15 Royalty-Free Music Hideouts for Video Artists</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-understanding-split-screen-techniques-in-facebook-lives/"><u>[New] Understanding Split Screen Techniques in Facebook Lives</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-inject-harmony-into-ppt-decks/"><u>[Updated] 2024 Approved Inject Harmony Into PPT Decks</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-navigating-cross-platform-social-media-fb-vids-on-whatsapp/"><u>[Updated] 2024 Approved Navigating Cross-Platform Social Media FB Vids on WhatsApp</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-from-flat-to-fantastic-3d-text-creation-tips/"><u>[Updated] From Flat to Fantastic 3D Text Creation Tips</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-gopro-innovations-a-side-by-side-exploration-for-2024/"><u>[Updated] GoPro Innovations A Side-by-Side Exploration for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-inside-the-revolutionary-world-of-jaunt-vr/"><u>[Updated] Inside the Revolutionary World of Jaunt VR</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-is-sns-hdr-pro-worth-it-top-alternatives-reviewed/"><u>[Updated] Is SNS HDR Pro Worth It? Top Alternatives Reviewed</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-expert-techniques-for-swift-mac-screenshotting-using-shortcuts/"><u>2024 Approved Expert Techniques for Swift Mac Screenshotting Using Shortcuts</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-samsung-galaxy-s23-tactical-edition-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Samsung Galaxy S23 Tactical Edition</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exploring-the-use-of-chatgpt-in-effective-proofreading-practices/"><u>Exploring the Use of ChatGPT in Effective Proofreading Practices</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-navigating-the-world-of-lut-based-color-correction/"><u>In 2024, Navigating the World of LUT-Based Color Correction</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/innovative-approaches-to-change-song-speed-on-spotify-for-2024/"><u>Innovative Approaches to Change Song Speed on Spotify for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/no-audio-during-warzone-matches-here-are-top-fixes-for-pc-gamers-202-4/"><u>No Audio During Warzone Matches? Here Are Top Fixes for PC Gamers (202 4)</u></a></li>
+<li><a href="https://win11.techidaily.com/resetting-microsoft-store-on-windows-11-and-11/"><u>Resetting Microsoft Store on Windows 11 & 11</u></a></li>
 </ul></div>
 

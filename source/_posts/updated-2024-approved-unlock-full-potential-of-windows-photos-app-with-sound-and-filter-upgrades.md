@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Unlock Full Potential of Windows Photos App with Sound & Filter Upgrades\""
-date: 2024-11-22T20:14:26.389Z
-updated: 2024-11-27T21:15:57.726Z
+date: 2024-12-01T19:04:44.959Z
+updated: 2024-12-06T22:46:32.293Z
 tags: 
   - screen-recording
   - ai video
@@ -39,7 +39,7 @@ Having Windows 10 Photos app is an advantage for you. This is not like any other
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to add filters on Windows 10 Photos App
@@ -54,19 +54,11 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
 **Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 5**: Just select one you like. Preview it and then click Done.
 
@@ -82,15 +74,23 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5**: Hit the ‘Done’ button.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -99,7 +99,7 @@ From the above article, we conclude that Windows 10 Photos app is an amazing app
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -127,20 +127,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-entry-level-vector-exploration-grasping-different-forms/"><u>[New] 2024 Approved Entry-Level Vector Exploration Grasping Different Forms</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-innovative-subtitle-edits-rank-the-top-10-programs/"><u>[New] 2024 Approved Innovative Subtitle Edits – Rank the Top 10 Programs</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-secrets-to-profit-from-tiktok-in-just-8-ways/"><u>[Updated] 2024 Approved Secrets to Profit From TikTok in Just 8 Ways</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-essential-tools-for-crafting-a-competitive-business-plan/"><u>[Updated] Essential Tools for Crafting a Competitive Business Plan</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-balancing-acts-understanding-the-importance-of-drone-stabilizers/"><u>[Updated] In 2024, Balancing Acts Understanding the Importance of Drone Stabilizers</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-expert-tips-for-applying-apple-music-to-your-videos/"><u>[Updated] In 2024, Expert Tips for Applying Apple Music to Your Videos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-pinnacle-photo-the-leading-6-4k-dslr-cameras-of-the-year/"><u>[Updated] In 2024, Pinnacle Photo The Leading 6 4K DSLR Cameras of the Year</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/2024-approved-a-compact-guide-to-using-discord-spoiler-tags/"><u>2024 Approved A Compact Guide to Using Discord Spoiler Tags</u></a></li>
-<li><a href="https://extra-information.techidaily.com/beyond-illusions-examining-vrs-disadvantages/"><u>Beyond Illusions Examining VR's Disadvantages</u></a></li>
-<li><a href="https://solve-help.techidaily.com/fix-and-setup-enabling-visibility-of-google-drive-within-microsofts-file-explorer-system/"><u>Fix & Setup: Enabling Visibility of Google Drive Within Microsoft's File Explorer System</u></a></li>
-<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-honor-magic-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Honor Magic 5 | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-creating-a-visual-statement-with-stellar-podcast-artwork/"><u>In 2024, Creating a Visual Statement with Stellar Podcast Artwork</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/synching-youtube-songs-to-video-frameworks/"><u>Synching YouTube Songs to Video Frameworks</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/the-art-of-capturing-imagination-best-shot-tips/"><u>The Art of Capturing Imagination Best Shot Tips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-the-mysteries-of-honshus-writing/"><u>Unlocking the Mysteries of Honshū's Writing</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-finest-selection-of-5-sd-cards-for-hero-gopros/"><u>[New] The Finest Selection of 5 SD Cards for Hero GoPros</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-step-by-step-full-screen-preview-tutorials/"><u>[Updated] 2024 Approved Step-by-Step Full Screen Preview Tutorials</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-comprehensive-guide-to-2024s-premier-unboxers-on-youtube/"><u>[Updated] Comprehensive Guide to 2024'S Premier Unboxers on YouTube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-enhance-your-films-with-these-vfx-sites/"><u>[Updated] In 2024, Enhance Your Films with These VFx Sites</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-pushing-the-limits-with-gopro-film-techniques/"><u>[Updated] In 2024, Pushing the Limits with GoPro Film Techniques</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-diy-gif-making-transforming-youtube-videos-into-animated-forms/"><u>2024 Approved DIY GIF Making Transforming YouTube Videos Into Animated Forms</u></a></li>
+<li><a href="https://extra-information.techidaily.com/breaking-through-boundaries-with-hdr-in-editing-for-2024/"><u>Breaking Through Boundaries with HDR in Editing for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-fix-the-enter-key-not-working-on-windows/"><u>How to Fix the Enter Key Not Working on Windows</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-prime-list-cutting-through-the-noise-to-find-top-9-free-tools/"><u>In 2024, The Prime List Cutting Through the Noise to Find Top 9 FREE Tools</u></a></li>
+<li><a href="https://howto.techidaily.com/simple-solutions-to-fix-android-systemui-has-stopped-error-for-tecno-spark-10c-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Simple Solutions to Fix Android SystemUI Has Stopped Error For Tecno Spark 10C | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-videos-back-from-oppo-find-n3-flip-by-fonelab-android-recover-video/"><u>Simple ways to get lost videos back from Oppo Find N3 Flip</u></a></li>
 </ul></div>
 
