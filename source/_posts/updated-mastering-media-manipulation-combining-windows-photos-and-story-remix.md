@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering Media Manipulation  Combining Windows Photos and Story Remix\""
-date: 2024-08-28T11:58:19.801Z
-updated: 2024-08-29T11:58:19.801Z
+date: 2024-12-10T16:32:26.798Z
+updated: 2024-12-12T18:41:20.550Z
 tags: 
   - screen-recording
   - ai video
@@ -63,14 +63,19 @@ How to create a Story Remix project automatically –
 
 ![story remix](https://images.wondershare.com/filmora/article-images/start-remix-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
    1. After the above process gets over, the content gets scanned to automatically create a video adding styles, transitions, and music. The final preview of the project is displayed thereafter.
    2. You can rearrange the content by tapping **Remix it for me** button.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-name-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: How to create a Story Remix project from scratch
 
 Here is the guide –
@@ -81,17 +86,22 @@ Here is the guide –
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-random-min.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Hit on **Create video** afterwards.
 2. Now, you can preview, edit or share your video.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 4: How to edit a Story Remix video
 
 Story Remix has 3 major sections namely, media bin consists of files already included in your card-based timeline and files that you chose in previous steps; preview section with recent changes and timeline shows the card with a running video; and the timeline having the option to drag and drop cards from the media bin.
 
 In the following sections, we have segregated each editing feature of Story Mix for you to explore –
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Adding a new theme
 
@@ -103,8 +113,9 @@ A theme is a built-in feature in Photos, just like music, filters, and text styl
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-theme-min.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Adding image duration
 
 While adding media to the timeline in Story Mix, you will see that there is a default timeline for each image. To adjust the duration, you can do –
@@ -121,9 +132,6 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-text-min.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Adding motion
 
 1. Firstly, choose the content from the timeline and hit on ‘Motion’. Now, select camera motion style from ‘Zoom in center’/’Zoom in right’/’Pan left’/’Tilt up’ etc.
@@ -131,17 +139,11 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-motion-min.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Trimming video clips
 
 1. Pick the video from timeline and choose ‘Trim’ button. Mark the trim area and click ‘Play’ to preview.
 2. Hit ‘Done’ in the end.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 5: How to add 3D effects to a Story Remix project
 
 Adding 3D special effects to video clips is one of the lucrative features of Photos app.
@@ -153,12 +155,9 @@ Adding 3D special effects to video clips is one of the lucrative features of Pho
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-effects-min.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
+
 ## Part 6: How to export a Story Remix video
 
 Now that you have learnt how to edit videos in Story Remix, let’s see how can you export or share them with the world. You can directly share from Photos or use a USB drive to do the needful.
@@ -174,6 +173,10 @@ Now, pick the app or contact and send the video.
 
 Recent videos are found on ‘Collections’ section if they are auto created. Otherwise, all the Story Remix files are located permanently on ‘Creations’ section.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 From this article, we are sure that you have got plenty to learn about Story Remix. This wonderful feature from Windows 10 Photos is going to win hearts.
@@ -184,10 +187,11 @@ If you want to edit video, we recommend [Wondershare Filmora](https://tools.tech
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -212,4 +216,20 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-psychedelic-pulse-the-fade-technique-in-music-mixing/"><u>[Updated] In 2024, Psychedelic Pulse The Fade Technique in Music Mixing</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-unveiling-the-future-of-smartphone-video-with-s8s-4k/"><u>[Updated] In 2024, Unveiling the Future of Smartphone Video with S8’s 4K</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-reviewing-the-high-quality-video-on-galaxy-s8/"><u>[Updated] Reviewing the High-Quality Video on Galaxy S8</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/2024-approved-navigating-through-music-production-software-landscape-can-magix-samplitude-be-considered-supreme/"><u>2024 Approved Navigating Through Music Production Software Landscape Can MAGIX Samplitude Be Considered Supreme?</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/apple-intensifies-mac-gaming-strategy-using-comprehensive-ecosystem-to-capture-audience/"><u>Apple Intensifies Mac Gaming Strategy Using Comprehensive Ecosystem to Capture Audience</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/asus-laptop-vs-macbook-showdown-unveiling-the-superior-alternative-for-tech-enthusiasts-expert-insights/"><u>Asus Laptop Vs. MacBook Showdown: Unveiling the Superior Alternative for Tech Enthusiasts | Expert Insights</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/bring-your-presentations-to-life-with-aiseesoft-screencast-capabilities/"><u>Bring Your Presentations to Life with Aiseesoft Screencast Capabilities</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-elite-road-warriors-game-list/"><u>In 2024, Elite Road Warriors' Game List</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-ispoofer-on-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Samsung Galaxy S24+? | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-premium-20-unrestricted-pubg-captures-array/"><u>In 2024, Premium 20 Unrestricted PUBG Captures Array</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-push-the-limits-a-review-of-lgs-27uhd68-freesync-display/"><u>In 2024, Push the Limits A Review of LG’s 27UHD68 FreeSync Display</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-speech-recognition-a-game-changer-for-visual-presentations/"><u>In 2024, Speech Recognition A Game Changer for Visual Presentations</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-recommended-free-films-available-on-youtube-july-2024-collection/"><u>Top Recommended Free Films Available on YouTube - July 2024 Collection</u></a></li>
+</ul></div>
 

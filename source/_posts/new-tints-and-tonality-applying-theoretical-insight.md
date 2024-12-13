@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Tints & Tonality  Applying Theoretical Insight\""
-date: 2024-12-03T23:15:08.118Z
-updated: 2024-12-06T17:31:59.073Z
+date: 2024-12-09T05:44:55.053Z
+updated: 2024-12-12T22:58:57.485Z
 tags: 
   - screen-recording
   - ai video
@@ -33,20 +33,20 @@ Color theory consists of many elements that could fill a library on its own but 
 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Color Wheel
 
 Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this
 
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Color Harmony
@@ -64,7 +64,7 @@ The blue lines represent what is known as split contrasting colors and these wil
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## But How Do I Use This
@@ -80,13 +80,13 @@ As you can see from this example the base color for the scene is a dark blue/pur
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -123,17 +123,24 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-achieving-high-quality-videos-with-your-cellphone-webcam-for-2024/"><u>[New] Achieving High-Quality Videos with Your Cellphone Webcam for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-10-free-passport-photo-maker-for-desktop-and-online/"><u>[New] In 2024, 10 Free Passport Photo Maker for Desktop and Online</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-beginners-guide-to-motion-artistry/"><u>[Updated] Beginner's Guide to Motion Artistry</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-streamline-editing-how-to-load-music-in-inshot-for-2024/"><u>[Updated] Streamline Editing How to Load Music in InShot for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/alexa-integrated-ultra-hd-ready-insignia-ns-43df710na19-fire-tv-edition-an-unbeatable-combination/"><u>Alexa Integrated, Ultra HD Ready Insignia NS-43DF710NA19 Fire TV Edition - An Unbeatable Combination!</u></a></li>
-<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-vivo-y78plus-t1-edition-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Vivo Y78+ (T1) Edition | Dr.fone</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/from-startup-to-shutdown-steam-on-discord-devices-for-2024/"><u>From Startup to Shutdown Steam on Discord Devices for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-basic-procedure-swapping-video-playback-in-vlc-media-player/"><u>In 2024, Basic Procedure Swapping Video Playback in VLC Media Player</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-dive-into-tiktok-edits-a-comprehensible-guide-for-all/"><u>In 2024, Dive Into TikTok Edits A Comprehensible Guide for All</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-is-inshot-leading-video-cutting-tech-deep-insight-reviewed/"><u>In 2024, Is InShot Leading Video Cutting Tech? Deep Insight Reviewed</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-the-10-best-tools-to-bypass-icloud-activation-lock-on-iphone-14-pro-you-should-try-out-by-drfone-ios/"><u>In 2024, The 10 Best Tools to Bypass iCloud Activation Lock On iPhone 14 Pro You Should Try Out</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-your-motorola-edge-2023s-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Motorola Edge 2023s Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-mobile-access-to-all-you-love-best-download-tools-for-android-and-ios/"><u>[New] 2024 Approved Mobile Access to All You Love Best Download Tools for Android and iOS</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-top-tier-zero-cost-digital-picture-upscaler/"><u>[New] 2024 Approved Top-Tier Zero-Cost Digital Picture Upscaler</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-premiere-pro-tricks-rescuing-washed-out-iphone-hdr-footage-for-2024/"><u>[New] Premiere Pro Tricks Rescuing Washed-Out iPhone HDR Footage for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-refine-your-images-quickly-freepaid-lut-options-for-canon/"><u>[New] Refine Your Images Quickly - Free/Paid LUT Options for Canon</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-creative-memes-made-simple-the-most-effective-8-tools-for-gif-makers/"><u>[Updated] 2024 Approved Creative Memes Made Simple The Most Effective 8 Tools for GIF Makers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-key-gear-for-broadcast-engineers-and-directors/"><u>[Updated] 2024 Approved Key Gear for Broadcast Engineers and Directors</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-master-the-art-of-livestreaming-three-key-approaches-subscriber-less-style/"><u>[Updated] 2024 Approved Master the Art of Livestreaming Three Key Approaches, Subscriber-Less Style</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-cant-see-cursor-only-sony-a6400-glitch/"><u>[Updated] Can't See, Cursor Only - Sony A6400 Glitch</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-elite-corporate-space-for-secure-storage/"><u>[Updated] Elite Corporate Space for Secure Storage</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-best-storage-expansion-for-sony-a7c-cameras/"><u>[Updated] In 2024, Best Storage Expansion for Sony A7C Cameras</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-boosting-your-snapchat-presence-with-easy-voice-modification-tricks/"><u>[Updated] In 2024, Boosting Your Snapchat Presence with Easy Voice Modification Tricks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-explore-top-church-platforms-for-global-audience/"><u>[Updated] In 2024, Explore Top Church Platforms for Global Audience</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-online-facebook-downloader-mp3/"><u>2024 Approved Online Facebook Downloader MP3</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/elevate-your-windows-10-switch-from-32-bit-to-64-bit/"><u>Elevate Your Windows 10: Switch From 32-Bit to 64-Bit</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/here-are-some-of-the-best-free-and-paid-split-screen-video-editors-and-makers-that-you-can-use-online-and-offline-for-2024/"><u>Here Are some of the Best Free and Paid Split-Screen Video Editors and Makers that You Can Use Online and Offline for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-navigating-music-files-to-youtube-space/"><u>In 2024, Navigating Music Files to Youtube Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximize-your-health-isbms-innovative-cbt-approach/"><u>Maximize Your Health: ISBM's Innovative CBT Approach</u></a></li>
+<li><a href="https://driver-install.techidaily.com/modernize-your-printer-download-and-upgrade-hp-officejet-pro-8620-drivers-for-windows/"><u>Modernize Your Printer: Download & Upgrade HP OfficeJet Pro 8620 Drivers for Windows</u></a></li>
+<li><a href="https://common-error.techidaily.com/quick-fixes-for-when-your-laptops-mic-wont-work-now-resolved/"><u>Quick Fixes for When Your Laptop's Mic Won't Work – Now Resolved!</u></a></li>
 </ul></div>
 

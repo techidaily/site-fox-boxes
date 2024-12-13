@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Effective Methods for Stable Windows 11 Photos Viewing"
-date: 2024-12-03T19:42:41.109Z
-updated: 2024-12-06T17:28:32.163Z
+date: 2024-12-07T20:22:11.040Z
+updated: 2024-12-13T03:06:18.838Z
 tags: 
   - screen-recording
   - ai video
@@ -46,14 +46,10 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to fix Windows 10 Photos app crashes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 1: Use the Troubleshooter
 
@@ -66,12 +62,12 @@ Here is how to troubleshoot –
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Solution 2: Restore Default Libraries
 
@@ -85,10 +81,14 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Solution 3: Reset it
 
@@ -122,15 +122,15 @@ Here is how to reinstall the Windows 10 Photos App –
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -159,24 +159,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-elevate-productivity-in-minutes-enhance-learning-in-hours-with-podcasts/"><u>[New] 2024 Approved Elevate Productivity in Minutes, Enhance Learning in Hours (with Podcasts)</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-a-beginners-guide-to-understanding-youtube-responses-for-2024/"><u>[New] A Beginner's Guide to Understanding YouTube Responses for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-essential-elements-creating-striking-podcast-covers-for-2024/"><u>[New] Essential Elements Creating Striking Podcast Covers for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-funimate-masterclass-gameplay-enhancement-for-2024/"><u>[New] Funimate Masterclass Gameplay Enhancement for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-unraveling-untethered-art-top-public-domain-gems/"><u>[New] Unraveling Untethered Art Top Public Domain Gems</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-unveiling-the-world-of-haptic-navigation-systems-for-2024/"><u>[New] Unveiling the World of Haptic Navigation Systems for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-win-and-mac-basic-guide-for-embedding-captions-in-images-for-2024/"><u>[New] Win & Mac Basic Guide for Embedding Captions in Images for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-easy-peasy-podcast-go-live-hack/"><u>[Updated] 2024 Approved Easy-Peasy Podcast Go Live Hack</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-illuminated-influence-elevating-your-cinematic-presentations/"><u>[Updated] In 2024, Illuminated Influence Elevating Your Cinematic Presentations</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-quick-quirky-and-funny-creating-memes-anytime/"><u>[Updated] Quick, Quirky, and Funny Creating Memes Anytime</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/fable-creators-circle-a-list-eight/"><u>Fable Creators Circle - A-List Eight</u></a></li>
-<li><a href="https://driver-error.techidaily.com/fix-itbm-driver-not-available-error-easily/"><u>Fix ITBM Driver Not Available Error. Easily!</u></a></li>
-<li><a href="https://discover-able.techidaily.com/identifying-the-sluggish-hardware-in-your-pc-a-deep-dive-by-yl-computing-and-software/"><u>Identifying the Sluggish Hardware in Your PC: A Deep Dive by YL Computing and Software</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-zte-axon-40-lite-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On ZTE Axon 40 Lite For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Motorola Razr 40 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Realme 12 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/mastering-background-removal-in-figma-step-by-step-tutorial-for-2024/"><u>Mastering Background Removal in Figma Step-by-Step Tutorial for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/stop-office-software-auto-updates-immediately/"><u>Stop Office Software Auto-Updates Immediately</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-how-to-blur-faces-in-photos-and-videos-a-step-by-step-tutorial-for-2024/"><u>Updated How to Blur Faces in Photos and Videos A Step-by-Step Tutorial for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-accelerating-fb-video-optimal-speeds-unveiled/"><u>[New] Accelerating FB Video Optimal Speeds Unveiled</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-gradient-goes-night-premieres-trick/"><u>[New] In 2024, Gradient Goes Night Premiere's Trick</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-ipados-masterpieces-best-pencil-programs/"><u>[New] IPadOS Masterpieces Best Pencil Programs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-top-5-pro-drone-selections-for-professionals-for-2024/"><u>[New] Top 5 Pro Drone Selections for Professionals for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-definitive-guide-to-superior-hdr-photography-gear/"><u>[Updated] In 2024, The Definitive Guide to Superior HDR Photography Gear</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-step-by-step-facebook-live-on-roku-platform/"><u>[Updated] Step-by-Step Facebook Live on Roku Platform</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-windows-movie-maker-the-ultimate-guide-to-youtube-video-production/"><u>2024 Approved Windows Movie Maker The Ultimate Guide to YouTube Video Production</u></a></li>
+<li><a href="https://techtrends.techidaily.com/a-brief-overview-of-electric-car-evolution/"><u>A Brief Overview of Electric Car Evolution</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/battling-the-invisible-screen-on-social-media-a-chromesafari-guide-for-2024/"><u>Battling the Invisible Screen on Social Media A Chrome/Safari Guide for 2024</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/easy-steps-transforming-your-flv-videos-into-high-quality-wmv-format/"><u>Easy Steps: Transforming Your FLV Videos Into High-Quality WMV Format</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-tecno-phantom-v-flip-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Tecno Phantom V Flip</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-crafting-a-perfect-paradise-the-top-stardew-valley-mods-7-14/"><u>In 2024, Crafting a Perfect Paradise The Top Stardew Valley Mods (#7-14)</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Honor X9a? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/leading-360-action-footage-options/"><u>Leading 360° Action Footage Options</u></a></li>
 </ul></div>
 

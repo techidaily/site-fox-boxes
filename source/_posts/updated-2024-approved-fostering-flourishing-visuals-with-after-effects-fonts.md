@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Fostering Flourishing Visuals with After Effects Fonts\""
-date: 2024-08-28T12:00:30.573Z
-updated: 2024-08-29T12:00:30.573Z
+date: 2024-12-06T20:03:36.203Z
+updated: 2024-12-12T18:35:04.119Z
 tags: 
   - screen-recording
   - ai video
@@ -32,6 +32,10 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 
 ![enable fonts adobe after effects](https://images.wondershare.com/filmora/article-images/2022/07/enable-fonts-adobe-after-effects.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * This will direct you to the official website of Adobe Fonts where you can enable the fonts for your After Effects application. Once you are done with that click on the "Browse Fonts" and then in the opened tab, you will see a variety of fonts with their specified categories.
 
 ![browse fonts adobe](https://images.wondershare.com/filmora/article-images/2022/07/browse-fonts-adobe.jpg)
@@ -40,8 +44,16 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 
 ![activitate all fonts after effects](https://images.wondershare.com/filmora/article-images/2022/07/activitate-all-fonts-after-effects.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Now keep the Creative Cloud application up and running in your system and then open your After Effects application. There navigate to "Graphics" and then select "Add Fonts from Adobe Fonts".
 * You can also use the font dropdown menu as a shortcut to use the fonts instantly. In Adobe After Effects interface, you can then select the "Character" panel to add or change the fonts to your videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. Types of Fonts in After Effects
 
@@ -49,9 +61,6 @@ Adobe After Effects provides a ton of families of fonts that can be added and us
 
 Some of the most famous fonts such as "typewriter", "Cursive Handwriting" and many more are categorized under their family of fonts and are very easy to access. Along with this, you can also select fonts with different character strokes and can alter their features while adding to your videos.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ## Part 3\. How to use text effects in After Effects?
 
 Adding text effects in Adobe After Effects is very easy and you can use these effects by following these steps:
@@ -61,15 +70,13 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 ![effects and presets adobe](https://images.wondershare.com/filmora/article-images/2022/07/effects-and-presets-adobe.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 * Now, add that text effect to your video by clicking on it and dragging and dropping it on your video. Then select any animation preset for your text from "Adobe Bridge".
 * Then slide the keyframes to set the text effect on the section of the video where you want to add your text. You can also compose the text by clicking on it and editing it for adjusting its content, height, width, opacity, and color.
 * After you are done, save the project and your text effects will be added to the final video successfully.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4\. Alternative ways to edit text fonts
 
 If for some reason you don't want to use After Effects on your device to edit your videos, or your PC is incompatible with your device, then [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a great alternative for you. Filmora is a paid application that is supported on both Windows as well as Mac and comes with a free version where you can try the different video editing features.
@@ -82,16 +89,10 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
 * If you want to add any opener (Intro) or end credits (outro) to your video, then there are plenty of options available in the "Title" tab. You can apply them by clicking on the "apply" button.
@@ -99,9 +100,6 @@ These features also include adding texts and changing the fonts of those texts o
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 The article discussed the detailed process of **how to add font to Adobe After Effects** application. The descriptive process of adding texts to video projects using After Effects have also been discussed throughout the article and the available alternatives that can help users with the same feature. I also discussed the various types of fonts that are available to the users in the application interface. These fonts are very easy to access and use. I hope this article will help in easing up the whole process of video editing using After Effects.
@@ -111,6 +109,10 @@ The article discussed the detailed process of **how to add font to Adobe After E
 These features also include adding texts and changing the fonts of those texts on your video. And for users who want to edit texts or fonts in their videos using [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), here is how you can do it:
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
@@ -149,4 +151,19 @@ The article discussed the detailed process of **how to add font to Adobe After E
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-journey-through-your-watch-history-find-latest-views-on-fb/"><u>[New] 2024 Approved Journey Through Your Watch History Find Latest Views on FB</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-beyond-apowersoft-top-10-screen-capture-apps-analyzed/"><u>[New] Beyond Apowersoft Top 10 Screen Capture Apps Analyzed</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-breaking-down-advertising-budgets-on-youtube-for-2024/"><u>[New] Breaking Down Advertising Budgets on YouTube for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-elevating-your-macro-videos-a-comprehensive-checklist-for-2024/"><u>[New] Elevating Your Macro Videos A Comprehensive Checklist for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-immersive-entertainment-showdown-google-cardboard-and-samsung-gear/"><u>[New] Immersive Entertainment Showdown Google Cardboard & Samsung Gear</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-master-artwork-accelerated-techniques-for-editing-photos-on-pc/"><u>[New] In 2024, Master Artwork Accelerated Techniques for Editing Photos on PC</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-top-25-backdrop-ideas-for-livestreaming/"><u>[New] In 2024, Top 25 Backdrop Ideas for Livestreaming</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-revolutionary-ios-gaming-apples-best-vr-apps/"><u>[Updated] 2024 Approved Revolutionary iOS Gaming Apple's Best VR Apps</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-free-youtube-sound-ripper-collection-top-17-extractors-revealed/"><u>[Updated] Free YouTube Sound Ripper Collection Top 17 Extractors Revealed</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-step-by-step-guide-to-mastering-windows-media-player-for-cd-management/"><u>[Updated] Step-by-Step Guide to Mastering Windows Media Player for CD Management</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-ultimate-list-of-8-youtube-mistakes-to-evade/"><u>2024 Approved The Ultimate List of 8 Youtube Mistakes to Evade</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/optimisation-des-reglages-de-sauvegarde-conseils-essentiels-pour-une-securite-efficace/"><u>Optimisation Des Réglages De Sauvegarde: Conseils Essentiels Pour Une Sécurité Efficace</u></a></li>
+</ul></div>
 

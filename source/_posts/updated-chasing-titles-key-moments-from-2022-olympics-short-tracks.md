@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Chasing Titles  Key Moments From 2022 Olympics Short Tracks\""
-date: 2024-12-02T02:01:17.532Z
-updated: 2024-12-07T03:17:34.094Z
+date: 2024-12-10T23:49:30.313Z
+updated: 2024-12-12T17:35:58.555Z
 tags: 
   - screen-recording
   - ai video
@@ -27,11 +27,11 @@ Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with contr
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1\. Introduce some highlights in short track speed skating with images
 
@@ -50,12 +50,16 @@ Russia’s Semen Elistratov wins the bronze medal.
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
 
@@ -74,7 +78,7 @@ Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awa
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
@@ -90,10 +94,6 @@ To create such a highlight video on any sports event, there are certain videos e
 **Motion Tracking** – Using motion tracking, you can track the movement of a particular object or athlete in a video. This helps to attach certain elements such as clipart, text, icon to that particular athlete throughout the video for easy identification by the viewers.
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -124,7 +124,7 @@ Step 5: Select individual slides and apply Transition, Effects or add Titles and
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -150,20 +150,21 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-asus-proart-pa-329q-unveiled-a-critical-perspective-on-a-high-end-monitor/"><u>[New] In 2024, Asus ProArt PA 329Q Unveiled A Critical Perspective on a High-End Monitor</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-foundations-of-easing-volume-control-in-audition/"><u>[New] In 2024, Foundations of Easing Volume Control in Audition</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-delving-into-lgs-high-end-gaming-screen-27ud68-review/"><u>[Updated] 2024 Approved Delving Into LG's High-End Gaming Screen 27UD68 Review</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-perfecting-the-art-of-zooming-expert-strategies-for-snapchat-users/"><u>[Updated] 2024 Approved Perfecting the Art of Zooming Expert Strategies for Snapchat Users</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-expanding-screen-coverage-of-youtube-videos-for-2024/"><u>[Updated] Expanding Screen Coverage of YouTube Videos for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-web-based-gag-generator-for-2024/"><u>[Updated] Web-Based Gag Generator for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/gratis-player-zum-abspielen-von-full-hdhdtv-videos-in-voller-qualitat-unter-windows-downloadbar/"><u>Gratis Player Zum Abspielen Von Full HD/HDTV Videos in Voller Qualität Unter Windows Downloadbar</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Infinix Smart 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-sony-xperia-5-v-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Sony Xperia 5 V Phone Now with These Tips</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/inshot-unpacked-editors-edition-detailed-review-for-2024/"><u>InShot Unpacked Editor's Edition Detailed Review for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/logitech-g510-driver-software-optimized-for-windows-78-and-10-systems-free-download/"><u>Logitech G510 Driver Software: Optimized for Windows 7/8 and 10 Systems – Free Download</u></a></li>
-<li><a href="https://win-top.techidaily.com/solving-the-issue-steps-to-retrieve-information-from-an-unresponsive-western-digital-externally-powered-drive/"><u>Solving the Issue: Steps to Retrieve Information From an Unresponsive Western Digital Externally Powered Drive</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/top-3-essential-iphone-13-gadgets-for-maintaining-a-flawless-appearance-insights-from-zdnet/"><u>Top 3 Essential iPhone 13 Gadgets for Maintaining a Flawless Appearance - Insights From ZDNet</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/top-performer-alert-laptop-rivals-macbook-features-yet-remains-a-non-apple-contender-tech-insights/"><u>Top Performer Alert! Laptop Rivals MacBook Features, Yet Remains a Non-Apple Contender | Tech Insights</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unleash-creativity-bings-dall-e-3-demystified-free/"><u>Unleash Creativity: Bing's DALL-E 3 Demystified (FREE)</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-top-eco-friendly-film-tech/"><u>[New] 2024 Approved Top Eco-Friendly Film Tech</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-androidiphones-leading-top-10-cost-free-photo-enhancements/"><u>[New] Android/iPhone's Leading Top 10 Cost-Free Photo Enhancements</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-ethereal-escapades-vr-film-adventures/"><u>[New] Ethereal Escapades VR Film Adventures</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-high-staking-rituals-player-views/"><u>[New] HIGH-STAKING RITUALS Player Views</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-how-to-bring-back-your-preferred-photo-viewer-in-win-11-for-2024/"><u>[New] How to Bring Back Your Preferred Photo Viewer in Win 11 for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-adobe-lightroom-essentials-review/"><u>[New] In 2024, Adobe Lightroom Essentials Review</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-crafting-the-future-workplace-with-vr-technology/"><u>[Updated] Crafting the Future Workplace with VR Technology</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-expert-audacity-tricks-for-premium-audio-for-2024/"><u>[Updated] Expert Audacity Tricks for Premium Audio for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-how-to-remove-red-eye-from-photos-on-iphone-free-for-2024/"><u>[Updated] How to Remove Red Eye From Photos on iPhone [Free] for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-smooth-transition-synchronizing-your-iphones-albums-with-icloud-backup-for-2024/"><u>[Updated] Smooth Transition Synchronizing Your iPhone's Albums with iCloud Backup for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-elegant-volume-attenuation-using-lumafusion/"><u>2024 Approved Elegant Volume Attenuation Using Lumafusion</u></a></li>
+<li><a href="https://discover-data.techidaily.com/effective-techniques-to-remove-dust-from-your-graphics-card-tips-and-tricks-by-yl-computing/"><u>Effective Techniques to Remove Dust From Your Graphics Card - Tips & Tricks by YL Computing</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/free-hp-laserjet-1320-printer-drivers-downloads-and-updates-for-windows-operating-system/"><u>Free HP LaserJet 1320 Printer Drivers: Downloads & Updates for Windows Operating System</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-breakthrough-techniques-for-quick-srt-to-text-file-alteration/"><u>In 2024, Breakthrough Techniques for Quick SRT to Text File Alteration</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-deciphering-lgs-4k-innovations-through-a-detailed-review/"><u>In 2024, Deciphering LG's 4K Innovations Through a Detailed Review</u></a></li>
+<li><a href="https://win11.techidaily.com/tying-your-systems-together-winpc-galaxy-interconnection/"><u>Tying Your Systems Together - WinPC, Galaxy Interconnection</u></a></li>
 </ul></div>
 

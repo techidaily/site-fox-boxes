@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  '90S Chuckles  Dissecting the VHS of The Goofies\""
-date: 2024-09-01T14:10:46.564Z
-updated: 2024-09-02T14:10:46.564Z
+date: 2024-12-11T17:30:21.771Z
+updated: 2024-12-13T00:26:12.319Z
 tags: 
   - screen-recording
   - ai video
@@ -44,6 +44,14 @@ Simply add video effects on Video with [Filmora Video Effect Editor](https://too
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How Was VHS Technology Used in Old Movies?
 
 VHS technology played a significant role in producing and viewing movies during its prime era. Before you apply **Goofy movie VHS effects** to your video, learn how they were used. Here are some ways this technology was used in old movies:
@@ -82,9 +90,6 @@ Such tapes became a valuable resource for film education and study. Film schools
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you don't feel like applying in-built overlays from the 100+ collection of [VHS video effects](https://tools.techidaily.com/wondershare/filmora/download/), then don't because you can create your own. In this portion, you will learn how a movie, like VHS preset, can be created using this tool. These steps will properly explain to you step by step how to create a VHS look effect.
@@ -96,8 +101,9 @@ Launch Wondershare Filmora and open the “Stock Media” tab. Locate “Solid C
 ![add distortion effect and adjust](https://images.wondershare.com/filmora/article-images/2023/add-distortion-effect-and-adjust.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##### Step 2Add the VHS Rewind and Glitch Effect
 
 Drag and drop the "VHS Rewind" effect from the same tab onto the timeline. Further, place the effect over the previous layer and change its alpha value to 10\. Next, place the "Strong Glitch" effect over the previous layer, adjust its alpha value to 25, and click "OK."
@@ -110,18 +116,12 @@ Continue to drag and place the "Chromatic Aberration" effect over the previous l
 
 ![add chromatic aberration and distortion](https://images.wondershare.com/filmora/article-images/2023/add-chromatic-aberration-and-distortion.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step 4Include the Glitch Distortion and Apply the Distort Effect
 
 Proceed to drag and drop the "Glitch Distortion" effect and place it over the previous layer. Also, adjust the alpha value of the effect to 30\. Continue to drag and drop the "Distort" effect to the timeline, and repeat the same process. However, set the following parameters Amplitude to 15, Frequency to 17, and “Opacity” to 0.
 
 ![add glitch distortion to preset](https://images.wondershare.com/filmora/article-images/2023/add-glitch-distortion-to-preset.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ##### Step 5Export Your Edited Video
 
 After finishing your editing, click on the Export button and export your video with the VHS effect to your desired format. By following these steps in Wondershare Filmora, you can easily add **an extreme Goofy movie VHS effect** to your video.
@@ -129,8 +129,13 @@ After finishing your editing, click on the Export button and export your video w
 ![export entire vhs preset](https://images.wondershare.com/filmora/article-images/2023/export-entire-vhs-preset.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 In conclusion, The Goofy Movie holds a special place in the hearts of 90s kids. Its lighthearted storyline, memorable characters, and catchy songs made it a beloved film of that era. You can take yourself back to the era by using **a Goofy Movie 1995 VHS effect** in your videos. To do so, Wondershare Filmora is a tool that can bring a touch of 90s to your video projects.
@@ -181,9 +186,6 @@ Such tapes became a valuable resource for film education and study. Film schools
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you don't feel like applying in-built overlays from the 100+ collection of [VHS video effects](https://tools.techidaily.com/wondershare/filmora/download/), then don't because you can create your own. In this portion, you will learn how a movie, like VHS preset, can be created using this tool. These steps will properly explain to you step by step how to create a VHS look effect.
@@ -193,6 +195,10 @@ If you don't feel like applying in-built overlays from the 100+ collection of [V
 Launch Wondershare Filmora and open the “Stock Media” tab. Locate “Solid Colors” in the “Filmstock” section and drag the black image onto your project timeline. Adjust its duration as needed, and then open the "Effects" tab and type "VHS" in the search box. Choose the "VHS Distortion Bad" effect and drag it onto the timeline. Set the alpha value to 25 and press "OK." Proceed next to open the "Effects" tab and select the "VHS Distortion" effect. Place it on the previous layer and adjust its value to 35.
 
 ![add distortion effect and adjust](https://images.wondershare.com/filmora/article-images/2023/add-distortion-effect-and-adjust.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step 2Add the VHS Rewind and Glitch Effect
 
@@ -213,8 +219,9 @@ Proceed to drag and drop the "Glitch Distortion" effect and place it over the pr
 ![add glitch distortion to preset](https://images.wondershare.com/filmora/article-images/2023/add-glitch-distortion-to-preset.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##### Step 5Export Your Edited Video
 
 After finishing your editing, click on the Export button and export your video with the VHS effect to your desired format. By following these steps in Wondershare Filmora, you can easily add **an extreme Goofy movie VHS effect** to your video.
@@ -222,11 +229,9 @@ After finishing your editing, click on the Export button and export your video w
 ![export entire vhs preset](https://images.wondershare.com/filmora/article-images/2023/export-entire-vhs-preset.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
+
 ## Conclusion
 
 In conclusion, The Goofy Movie holds a special place in the hearts of 90s kids. Its lighthearted storyline, memorable characters, and catchy songs made it a beloved film of that era. You can take yourself back to the era by using **a Goofy Movie 1995 VHS effect** in your videos. To do so, Wondershare Filmora is a tool that can bring a touch of 90s to your video projects.
@@ -253,4 +258,20 @@ In conclusion, The Goofy Movie holds a special place in the hearts of 90s kids. 
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-ultimate-gopro-feature-list-matchup/"><u>[New] 2024 Approved The Ultimate Gopro Feature List Matchup</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-elite-4k-gaming-laptops-ranked-1/"><u>[Updated] 2024 Approved Elite 4K Gaming Laptops Ranked #1</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-mastering-youtube-frames-top-5-cost-free-techniques/"><u>[Updated] 2024 Approved Mastering YouTube Frames Top 5 Cost-Free Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-are-earnings-associated-with-good-and-service-analysis-for-2024/"><u>[Updated] Are Earnings Associated with Good and Service Analysis for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-music-making-magic-selecting-background-beats-for-vids-for-2024/"><u>[Updated] Music Making Magic Selecting Background Beats for Vids for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-pair-off-in-perfection-7-stunning-wedding-films-from-youtube-plus-vimeo/"><u>2024 Approved Pair Off in Perfection 7 Stunning Wedding Films From Youtube + Vimeo</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/choosing-between-ipad-pro-and-macbook-air-a-comprehensive-comparison-for-the-perfect-tech-companion/"><u>Choosing Between iPad Pro and MacBook Air: A Comprehensive Comparison for the Perfect Tech Companion</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>How to Fix Pokemon Go Route Not Working On Apple iPhone 13 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-swiftly-flip-your-iphone-video-clips/"><u>In 2024, Swiftly Flip Your iPhone Video Clips</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-infinix-note-30-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Infinix Note 30? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/mastering-motion-with-polaroids-latest-xs-innovation/"><u>Mastering Motion with Polaroid's Latest XS Innovation</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mastering-your-career-path-essential-tips-for-thriving-among-artificial-intelligence-at-work/"><u>Mastering Your Career Path: Essential Tips for Thriving Among Artificial Intelligence at Work</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/soaring-high-in-virtual-worlds-an-expert-review-of-microsoft-flight-simulator-x-gold-editions-legacy/"><u>Soaring High in Virtual Worlds: An Expert Review of Microsoft Flight Simulator X Gold Edition's Legacy</u></a></li>
+</ul></div>
 

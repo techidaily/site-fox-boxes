@@ -1,7 +1,7 @@
 ---
 title: "[New] Taking Solo Shots From Videos in Windows 10 Photos Interface"
-date: 2024-12-01T01:21:10.203Z
-updated: 2024-12-06T19:09:49.931Z
+date: 2024-12-10T18:27:16.419Z
+updated: 2024-12-13T01:40:25.892Z
 tags: 
   - screen-recording
   - ai video
@@ -52,6 +52,10 @@ Creating a living image:
 
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Now, you can see the living picture by tapping ‘Play’ button.
 
 These photos are stored in the ‘Pictures’ folder of your computer having ‘LI’ appended file names. Now, it’s time to save the living image as photo on your computer using Photos app.
@@ -61,14 +65,10 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Why I can’t save photo from video
@@ -77,20 +77,20 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 
 We are explaining the solutions here –
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
@@ -105,10 +105,6 @@ Here comes the guide –
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
@@ -117,6 +113,10 @@ Here comes the guide –
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -143,22 +143,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-from-today-to-tomorrow-the-drone-evolution-story/"><u>[New] 2024 Approved From Today to Tomorrow The Drone Evolution Story</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-onboard-recorder-use-in-huawei-mate-and-p-series-mate-10-mate-20-p20-p10/"><u>[New] 2024 Approved Onboard Recorder Use in Huawei Mate and P Series (Mate 10, Mate 20; P20, P10)</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-the-artisans-approach-to-color-balancing/"><u>[New] 2024 Approved The Artisan's Approach to Color Balancing</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-7-best-video-player-for-mac/"><u>[New] 7 Best Video Player for Mac</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-elite-5-screen-grab-for-fb-movies/"><u>[New] In 2024, Elite 5 Screen Grab for FB Movies</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-in-depth-look-at-the-gecata-game-capture-tool/"><u>[New] In 2024, In-Depth Look at the Gecata Game Capture Tool</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-bebops-feathered-wings-unleashed-in-the-parrot-review/"><u>[Updated] Bebop's Feathered Wings Unleashed in the Parrot Review</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-increasing-or-slowing-down-frame-rate-on-your-story-feed-for-2024/"><u>[Updated] Increasing or Slowing Down Frame Rate on Your Story Feed for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-soundstage-excellence-critical-interface-tips-for-podcasters/"><u>[Updated] Soundstage Excellence Critical Interface Tips for Podcasters</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-the-undercover-upsell-simple-image-saving-for-2024/"><u>[Updated] The Undercover Upsell Simple Image Saving for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/access-the-newest-compatible-gigabyte-network-drivers-download-now/"><u>Access the Newest Compatible Gigabyte Network Drivers – Download Now!</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211015366-9781612834979-crystals/"><u>Crystals | Free Book</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/innovative-techniques-for-fisheye-sphere-capture-for-2024/"><u>Innovative Techniques for Fisheye Sphere Capture for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/installation-guide-complimentary-logitech-webcam-software-for-windows-operating-system/"><u>Installation Guide: Complimentary Logitech Webcam Software for Windows Operating System</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/kodi-streaming-service-windows-media-replacement-for-2024/"><u>Kodi Streaming Service Windows Media Replacement for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/step-by-step-secure-your-hp-officejet-5740-with-easy-driver-downloads/"><u>Step-by-Step: Secure Your HP OfficeJet 5740 with Easy Driver Downloads</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/ultimate-guide-to-add-srt-to-mp4-2024/"><u>Ultimate Guide to Add SRT to MP4 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-direct-download-vs-alternative-store-instagram-reels-efficiently/"><u>[New] Direct Download vs Alternative Store Instagram Reels Efficiently</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-professionals-way-of-removing-backgrounds-for-2024/"><u>[New] The Professional's Way of Removing Backgrounds for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-navigating-skies-drone-shooting-basics/"><u>[Updated] In 2024, Navigating Skies Drone Shooting Basics</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-navigating-audacity-for-top-notch-audio-recording/"><u>[Updated] Navigating Audacity for Top-Notch Audio Recording</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Lava Blaze 2 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/guide-hd-movie-downloads-on-your-iphone-xs-xs-max-and-xr-get-them-for-free/"><u>Guide: HD Movie Downloads on Your iPhone XS, XS Max & XR - Get Them for Free</u></a></li>
+<li><a href="https://change-location.techidaily.com/honor-magic-vs-2-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Honor Magic Vs 2 Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-itel-p55t-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Itel P55T Phones? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-music-on-redmi-12-by-fonelab-android-recover-music/"><u>How to restore wiped music on Redmi 12</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-oneplus-ace-2-pro-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock OnePlus Ace 2 Pro Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/powerful-wireless-experience-comprehensive-review-of-the-netgear-nighthawk-x1-8ad7200-router/"><u>Powerful Wireless Experience: Comprehensive Review of the Netgear Nighthawk X1 8AD7200 Router</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/ultimate-guide-superior-ios-melody-creators/"><u>Ultimate Guide Superior iOS Melody Creators</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Unlock Free Moving Text in Your Motion Captures for 2024"
-date: 2024-12-06T00:26:19.004Z
-updated: 2024-12-06T21:14:05.475Z
+date: 2024-12-05T22:33:50.622Z
+updated: 2024-12-12T17:42:37.888Z
 tags: 
   - screen-recording
   - ai video
@@ -65,10 +65,6 @@ Right after installing the program, you need to launch the Video editor and the 
 
 ![add media to software](https://images.wondershare.com/filmora/guide/startup-window-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step2 Add Texts to Videos
 
 To give your film the ideal appearance, you may choose from a wide variety of styles, themes, and fonts. The menu on the left side of the screen should say Annotations tab, so choose that. The default text may be changed by double-clicking it and typing in your own. Depending on your tastes and how well they complement the movie, you may adjust the color and opacity by choosing the attributes option on the right side.
@@ -80,6 +76,10 @@ To give your film the ideal appearance, you may choose from a wide variety of st
 To fit the longest name or title that will be entered on the same toolbar as the Annotations tab, adjust your text's length in the bottom third. This enables you to keep a steady text size and length for the whole of your video. You may adjust the layers you've created to your tastes and the optimum flow for your video.
 
 ![make your animated text](https://images.wondershare.com/filmora/guide/text-animation-win-1.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step4 Add Keyframing
 
@@ -99,25 +99,21 @@ On your Mac, iMovie should already be installed; if not, go to the app store and
 
 ![launch imove application](https://images.wondershare.com/filmora/article-images/2022/09/launch-imove-application.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step2 Import Videos
 
 The next step is to import your video, Download the picture, open it in any photo editor, remove the black borders around it, and then add whatever text you choose. To choose a clip instead, pick the import footage option.
 
 ![import video into imovie](https://images.wondershare.com/filmora/article-images/2022/09/import-video-into-imovie.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step3 Add and Edit Text
 
 The title in the preview may be clicked to alter the text. Additionally, you may alter the font, color, and orientation. Although you can't change the animation, some of the pre-made transitions are pretty good. The duration may also be changed by dragging the text's boundary on your timeline.
 
 ![add edit text imovie](https://images.wondershare.com/filmora/article-images/2022/09/add-edit-text-imovie.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Step4 Include Animations to Texts
 
@@ -143,10 +139,6 @@ To get started, just download the app. It will ask you to add text when you firs
 
 ![download textro animated editor](https://images.wondershare.com/filmora/article-images/2022/09/download-textro-animated-editor.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step2 Add Text and Customize
 
 By clicking the random button, you may create an entirely new color combination or change the color scheme of the post using the options that are currently available.
@@ -154,7 +146,7 @@ By clicking the random button, you may create an entirely new color combination 
 ![add text textro](https://images.wondershare.com/filmora/article-images/2022/09/add-text-textro.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step3 Add Animated Template and Customize
@@ -163,11 +155,19 @@ From the list of templates in both Fonts and Colors tab, select the best suited 
 
 ![select text color textro](https://images.wondershare.com/filmora/article-images/2022/09/select-text-color-textro.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step4 Save the Project
 
 Finally, after the necessary customizations, may be saved to your phone or immediately shared on Instagram. The project may also be downloaded on your phone or immediately shared on other social media sites.
 
 ![save project textro](https://images.wondershare.com/filmora/article-images/2022/09/save-project-textro.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -193,10 +193,6 @@ To fit the longest name or title that will be entered on the same toolbar as the
 
 ![make your animated text](https://images.wondershare.com/filmora/guide/text-animation-win-1.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step4 Add Keyframing
 
 To add life and movement to your videos, use animation effects and keyframing. It streamlines animation and makes it possible to quickly apply modifications like expanding, rotating, and narrowing. Filmora will automatically add all the intermediate frames while maintaining coherence if you just choose the starting and finishing keyframes. The location, transparency, size, and other characteristics of keyframes may all be changed.
@@ -216,7 +212,7 @@ On your Mac, iMovie should already be installed; if not, go to the app store and
 ![launch imove application](https://images.wondershare.com/filmora/article-images/2022/09/launch-imove-application.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step2 Import Videos
@@ -232,7 +228,7 @@ The title in the preview may be clicked to alter the text. Additionally, you may
 ![add edit text imovie](https://images.wondershare.com/filmora/article-images/2022/09/add-edit-text-imovie.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step4 Include Animations to Texts
@@ -241,15 +237,15 @@ Now choose the appropriate title under the Titles menu. You may get a brief live
 
 ![include animation to text imovie](https://images.wondershare.com/filmora/article-images/2022/09/include-animation-to-text-imovie.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step5 Export the Project
 
 After finishing your Keynote text animation, export it sing Share > File and then select the format. To obtain the best results, be sure to export in high resolution for a better experience.
 
 ![export media from imovie](https://images.wondershare.com/filmora/article-images/2022/09/export-media-from-imovie.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4\. How to Add Free Animation to Video on Mobile
 
@@ -263,11 +259,19 @@ To get started, just download the app. It will ask you to add text when you firs
 
 ![download textro animated editor](https://images.wondershare.com/filmora/article-images/2022/09/download-textro-animated-editor.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step2 Add Text and Customize
 
 By clicking the random button, you may create an entirely new color combination or change the color scheme of the post using the options that are currently available.
 
 ![add text textro](https://images.wondershare.com/filmora/article-images/2022/09/add-text-textro.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step3 Add Animated Template and Customize
 
@@ -280,10 +284,6 @@ From the list of templates in both Fonts and Colors tab, select the best suited 
 Finally, after the necessary customizations, may be saved to your phone or immediately shared on Instagram. The project may also be downloaded on your phone or immediately shared on other social media sites.
 
 ![save project textro](https://images.wondershare.com/filmora/article-images/2022/09/save-project-textro.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -313,18 +313,22 @@ After all, during the last several years, videos have been one of the most popul
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-engaging-oratory-insights-part-8/"><u>[New] In 2024, Engaging Oratory Insights Part 8</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-contrast-in-virtual-realm-highlights-and-low-points/"><u>[New] In 2024, The Contrast in Virtual Realm Highlights and Low Points</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-premium-selection-the-best-8-tripods-for-superior-4k-shooting-for-2024/"><u>[New] Premium Selection The Best 8 Tripods for Superior 4K Shooting for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-ultimate-guide-to-the-finest-3d-blu-ray-equipment/"><u>[New] Ultimate Guide to the Finest 3D Blu-Ray Equipment</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-chart-topping-photos-origins-explored/"><u>[Updated] In 2024, Chart-Topping Photos Origins Explored</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/1716069530349-updated-in-2024-efficient-chrome-os-snaps-4-techniques-to-try/"><u>[Updated] In 2024, Efficient Chrome OS Snaps - 4 Techniques to Try!</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Lava Yuva 2 Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-kobo-nia-e-reader-a-strong-contender-to-the-market-dominant-kindle/"><u>Evaluating the Kobo Nia E-Reader: A Strong Contender to the Market Dominant Kindle</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/immediate-solutions-for-fixing-overwatchs-voice-chat-issues/"><u>Immediate Solutions for Fixing Overwatch's Voice Chat Issues</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-ethereal-3-face-off-apparition-4-takes-the-stage/"><u>In 2024, Ethereal 3 Face-Off Apparition 4 Takes the Stage</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/seamless-network-broadcast-adopting-the-vlc-way/"><u>Seamless Network Broadcast Adopting the VLC Way</u></a></li>
-<li><a href="https://driver-download.techidaily.com/the-ultimate-fix-for-lg-monitor-driver-problems-in-windows-10-7-and-81-environments/"><u>The Ultimate Fix for LG Monitor Driver Problems in Windows 10, 7, and 8.1 Environments</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/united-reviews-the-expert-on-easeus/"><u>United Reviews The Expert on EaseUS</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-expert-tips-for-documenting-computer-speakers-and-mics/"><u>[New] In 2024, Expert Tips for Documenting Computer Speakers & Mics</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-sharpen-your-shots-easy-cropping-methods-with-iphone/"><u>[New] Sharpen Your Shots Easy Cropping Methods with iPhone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-top-10-ai-powered-name-generators-for-podcasts-online-for-2024/"><u>[New] Top 10 AI-Powered Name Generators for Podcasts Online for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-launching-your-first-product-critique-network-a-step-by-step-guide/"><u>[Updated] 2024 Approved Launching Your First Product Critique Network A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-speech-to-text-powered-by-microsoft-word-your-pathway-to-efficient-workflow-management/"><u>[Updated] 2024 Approved Speech to Text Powered by Microsoft Word Your Pathway to Efficient Workflow Management</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-meme-masterpieces-perfect-jokes-for-each-moment/"><u>[Updated] In 2024, Meme Masterpieces Perfect Jokes for Each Moment</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-top-10-tools-to-shield-photographic-work/"><u>[Updated] In 2024, Top 10 Tools to Shield Photographic Work</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-unleashing-the-power-of-light-advanced-hdr-in-ps/"><u>[Updated] In 2024, Unleashing the Power of Light Advanced HDR in PS</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-unveiling-dji-phantom-3-a-complete-technical-review/"><u>[Updated] In 2024, Unveiling DJI Phantom 3 A Complete Technical Review</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-expertly-curated-green-screen-gear-list/"><u>2024 Approved Expertly Curated Green Screen Gear List</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/automated-with-cookiebot-enhance-your-sites-performance/"><u>Automated with Cookiebot: Enhance Your Site's Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/fortnite-season-review-a-dynamic-and-engaging-gaming-experience-redefined/"><u>Fortnite Season Review: A Dynamic and Engaging Gaming Experience Redefined</u></a></li>
+<li><a href="https://win11.techidaily.com/guidelines-for-ordering-clumped-taskbar-icons/"><u>Guidelines for Ordering Clumped Taskbar Icons</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-maximum-memory-accessory-for-sony-a7s-ii/"><u>In 2024, Maximum Memory Accessory for Sony A7S II</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/transform-your-photographic-vision-with-iphone-burst-shooting/"><u>Transform Your Photographic Vision with iPhone Burst Shooting</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/transforming-augmented-reality-with-downloaded-free-luts-for-development-for-2024/"><u>Transforming Augmented Reality with Downloaded, Free LUTs for Development for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mp3-movavi-asf/"><u>お使いのコンピューター上ですばやくMP3に変換: Movavi 無料オンラインASFツール</u></a></li>
 </ul></div>
 

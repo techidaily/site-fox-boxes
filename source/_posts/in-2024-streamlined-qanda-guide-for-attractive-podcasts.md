@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Streamlined Q&A Guide for Attractive Podcasts"
-date: 2024-08-28T11:59:55.032Z
-updated: 2024-08-29T11:59:55.032Z
+date: 2024-12-06T00:29:27.663Z
+updated: 2024-12-13T02:27:53.802Z
 tags: 
   - screen-recording
   - ai video
@@ -36,6 +36,10 @@ Icebreaker questions are used to begin an interview or meeting. These are person
 
 ![icebreaker questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are some icebreaker questions that you can ask to start an interview.
 
 1. Where did you grow up and make the impact on you today?
@@ -56,8 +60,9 @@ A leading question suggests a particular answer to the question that the questio
 ![leading questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Some leading questions that you can ask are discussed below.
 
 1. Why?
@@ -76,9 +81,6 @@ Some leading questions that you can ask are discussed below.
 14. Can you give an example?
 15. What do you suggest to our audience who are facing the same problems?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Comparison Questions
 
 In an interview, a comparison question is one where you ask a person what he prefers between these two things. This type of question can also advance the discussion of the topic. Besides, you can get a deeper understanding of what guests think and feel about this podcast episode.
@@ -103,6 +105,10 @@ You can ask questions from the comparison questions given below.
 14. In which weather do you feel comfortable, summer or winter?
 15. What do you prefer to eat, pizza or a burger?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Great Closing Questions
 
 When we move on to this type of question, typically, it's time to end the show. Closing interview questions are questions the hosts might ask at the end of the podcast to wrap things up. The following question can be asked to conclude the podcast on a happy note.
@@ -119,8 +125,9 @@ When we move on to this type of question, typically, it's time to end the show. 
 10. How can listeners contact you online?
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2\. What's a Good Podcast Interview Question?
 
 After discussing the 50 questions you can ask in a podcast, let's see what a good podcast interview question is. A good interview question is comfortable for the guest and engaging for the listeners, so the guest can answer the question wholeheartedly. Therefore, you need to avoid impolite and aggressive asks during podcasting. Besides, try to ask such questions that your guest is not frequently asked. It may reveal new things about him and make your podcast stand out.
@@ -136,24 +143,24 @@ Asking better questions on a podcast requires preparation beforehand. Here are s
 
 You can get the best information from the person you are interviewing if you do the following:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ### Ask WHY?
 
 ![ask why](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-5.jpg)
 
 As an interviewer, "why" is your most powerful tool. Guests usually provide surface-level information or opinions. The follow-up question of "why" makes them go further and give deeper details. It will also help your audience understand correctly what the guest wants to say.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### What happened next?
 
 If your guest is overwhelmed by the emotions and has stopped before completing his answer, help him achieve it by asking, "What Happened Next?" Use a softer tone while asking this question.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### What were your feelings when this happened?
 
 Sometimes you want the guest to answer your questions with feelings and emotions. Making your guest answer your questions while drenched in emotions can take your podcast to the next level. Questions like "What were your feelings when this happened?" can take the guest back to the past and make him answer your question with full emotions.
@@ -176,8 +183,9 @@ So you see how this can continue to move forward by simply mirroring your guest.
 The best thing you can extract from someone in a podcast is their story. If you want to pull out a story from someone, phrase it like this, "Tell me about a time when..." After this question, your job is to sit back, listen, and not interrupt the guest.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 4\. Podcast Questions to Avoid Asking
 
 Avoiding asking wrong questions is as important as asking good questions. Some questions will negatively impact your podcast's quality, so avoid asking such questions. Here are some questions that you should not ask.
@@ -188,9 +196,6 @@ Avoiding asking wrong questions is as important as asking good questions. Some q
 * Similarly, avoid asking questions to which you can predict the answer will be a "no."
 * Avoid questions that might offend your guest.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 5\. Should I Send an Advance Interview Questions Podcast?
 
 Yes, you can send interview questions to guests. Therefore, they get time to prepare interesting responses. Also, they may think about their answers or type out lengthy responses. Either way, they'll feel more comfortable and help you make better content.
@@ -229,4 +234,20 @@ Consider the following when picking which of the above questions to use on your 
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-how-to-create-and-change-video-cover-on-facebook/"><u>[New] 2024 Approved How to Create and Change Video Cover on Facebook</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-melodic-gateways-a-list-of-top-tunes-to-open-your-podcasts/"><u>[New] Melodic Gateways A List of Top Tunes to Open Your Podcasts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-direct-upload-photos-and-videos-from-pc-to-iphone/"><u>[Updated] 2024 Approved Direct Upload Photos & Videos From PC to iPhone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-visualizing-creativity-to-perfection-with-magix-video-pro-x/"><u>[Updated] 2024 Approved Visualizing Creativity to Perfection with Magix Video Pro X</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-celebrating-artistry-top-20-anime-melodies-for-2024/"><u>[Updated] Celebrating Artistry Top 20 Anime Melodies for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-transformative-video-editing-techniques-for-viral-tiktok-creations/"><u>[Updated] In 2024, Transformative Video Editing Techniques for Viral TikTok Creations</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-insights-identifying-your-posts-audience/"><u>[Updated] Instagram Insights Identifying Your Post's Audience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-ultimate-guide-to-10-leading-pc-vr-headsets-for-2024/"><u>[Updated] The Ultimate Guide to 10 Leading PC VR Headsets for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/definitive-assessment-of-the-xbox-one-elite-wireless-controller-series-2-gamings-best-pick-ever/"><u>Definitive Assessment of the Xbox One Elite Wireless Controller Series 2: Gaming's Best Pick Ever</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Oppo A59 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/top-30-tones-where-to-find-classical-callouts-for-2024/"><u>Top 30 Tones Where to Find Classical Callouts for 2024</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/wavitunes-mp3/"><u>WAVに直すiTunes MP3音楽ファイルの変換ガイド</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/which-ai-chatbot-leads-the-pack-an-in-depth-comparison-of-microsofts-bing-ai-google-bard-and-chatgpt/"><u>Which AI Chatbot Leads The Pack? An In-Depth Comparison of Microsoft's Bing AI, Google Bard And ChatGPT</u></a></li>
+</ul></div>
 

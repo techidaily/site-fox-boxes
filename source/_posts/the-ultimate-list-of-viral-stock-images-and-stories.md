@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate List of Viral Stock Images & Stories"
-date: 2024-12-01T23:52:30.973Z
-updated: 2024-12-07T00:22:35.473Z
+date: 2024-12-07T03:20:39.039Z
+updated: 2024-12-13T00:36:52.078Z
 tags: 
   - screen-recording
   - ai video
@@ -39,7 +39,7 @@ Since 2011, Hide the Pain Harold continues to rank as one of the world's most po
 ![meme appears on social media](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * A text-to-speech YouTube video on the meme has over 492,000 views since going live in September 2015.
@@ -52,10 +52,6 @@ According to Andras, Hide the Pain Harold results from his vacation in Turkey. A
 
 Currently, Hide the Pain Harold has over 300,000 followers across all platforms. In addition, Hide the pain Harold has an official Facebook and Know Your Meme page that features the most popular versions of the stock image meme.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part2: Distracted Boyfriend
 
 Another popular stock image meme is Distracted Boyfriend. It features the stock photo meme guy looking at another woman's backside while walking with his girlfriend. In addition, the models' facial expressions add to the photo's impact. For example, the girlfriend shows her disapproval by staring at the man with her mouth open.
@@ -65,6 +61,10 @@ Another popular stock image meme is Distracted Boyfriend. It features the stock 
 The original photo is the work of Antonio Guillem, who uploaded it on iStock in November 2015\. Initially, the photo was labeled as a lisloyal man with his girlfriend looking at another girl and required purchasing the proper license to use it.
 
 ![original photo](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 According to Meme Documentation, the first version of the Distracted boyfriend theme dates back to January 2017\. Prog Snob, a Turkish progressive rock group on Facebook, posted the meme on their page to reference Phil Collin's distraction from progressive rock by pop music. However, it was the August 2017 Twitter version referencing the youth's feelings towards capitalism and socialism that went viral.
 
@@ -79,15 +79,7 @@ The latest version of Distracted boyfriend is a compilation of photos featuring 
 
 ![latest version](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 In addition, Antonio Guillem also has a stock image meme where the roles are reversed. The meme was later posted on Reddit underneath the original and received over 25,600 points in 24 hours.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part3: I Bet He's Thinking About Other Women
 
@@ -105,6 +97,10 @@ A July 2017 Instagram post by Cathrottle gained over 13,400 likes in a month. In
 
 ![points and comments](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The post references the Toy Story character Buzz Lightyear, with the man contemplating why Buzz is in denial of being a toy.
 
 * The meme also appears in a 2017 tweet by @NFLRT, an NFL fan account, where the man questions when Colin Kaepernick will be signed.
@@ -114,18 +110,18 @@ According to sources, the stock photo meme was first featured on Twitter in Dece
 ![stock photo meme](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-10.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part4: Bonjour Bear
 
 ![bonjour bear](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-11.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Unlike the previous stock image memes, Bonjour Bear was not an instant hit among netizens. The stock image was posted online in 2016 by Uryadnikov Sergey and featured a polar bear peeking through its winter den. However, it began causing a buzz in early 2019, following a Reddit post that included hilarious captions.
 
@@ -134,6 +130,10 @@ Since then, internet users have continued to use the Bonjour Bear meme to refere
 * In this version, Bonjour Bear reacts to the discovery of a wound after using hand sanitizer. The post became popular during the COVID-19 pandemic when using hand sanitizer was at its peak.
 
 ![using hand sanitizer](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-12.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In addition, the post received over 91,700 points, with 95% of upvotes, within a day on Reddit.
 
@@ -144,15 +144,15 @@ The photo is available on most stock photo websites, such as Adobe and Tumblr. F
 
 ## Part5: FAQs
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Can you use stock photos for memes?
 
 Yes, you can use stock photos for memes. However, you need to obtain them from royalty-free stock photo providers such as Shutterstock and Pexels. In addition, ensure you understand the license requirements before using the photo.
 
 This is because not all stock photo providers offer their images with a creative commons license. For example, the Unsplash license allows you to use their stock images for personal or commercial use after making adjustments to the original.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Does copyright law protect memes?
 
@@ -194,24 +194,16 @@ Therefore, always perform stock image reverse searches to verify the image permi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-amplify-slides-with-melodies-in-ppt-for-2024/"><u>[New] Amplify Slides with Melodies in PPT for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-discovering-non-gopro-action-cam-options-top-15-picks-for-2024/"><u>[New] Discovering Non-GoPro Action Cam Options Top 15 Picks for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-discovering-the-best-music-playback-on-youtube-2023-for-2024/"><u>[New] Discovering the Best Music Playback on YouTube, 2023 for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-elevate-your-gaming-experience-with-smart-use-of-xbox-zoom-for-2024/"><u>[New] Elevate Your Gaming Experience with Smart Use of Xbox Zoom for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-elevate-your-creative-workflow-detailed-insights-into-photoshops-background-eraser-feature/"><u>[New] In 2024, Elevate Your Creative Workflow Detailed Insights Into Photoshop's Background Eraser Feature</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-mastering-pip-activatedeactivate-in-safari-on-apple-devices/"><u>[New] Mastering PIP Activate/Deactivate in Safari on Apple Devices</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-rapid-renderings-the-win10-way-to-work-wonders-on-images-quickly/"><u>[Updated] 2024 Approved Rapid Renderings The Win10 Way to Work Wonders on Images Quickly</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-adding-realism-to-portraits-applying-motion-blur-in-picsart/"><u>[Updated] Adding Realism to Portraits Applying Motion Blur in Picsart</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-discovering-6-interactive-workout-ideas-for-social-media-success/"><u>[Updated] In 2024, Discovering 6 Interactive Workout Ideas for Social Media Success</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-pro-film-masterclass-the-quickest-5-diy-cinematic-tricks/"><u>[Updated] Pro-Film Masterclass The Quickest 5 DIY Cinematic Tricks</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-the-progression-of-vegaspro-through-its-2019-updates/"><u>[Updated] The Progression of VegasPro Through Its 2019 Updates</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-the-art-of-iphones-detailed-photography/"><u>2024 Approved Mastering the Art of iPhone's Detailed Photography</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/charting-new-heights-in-flight-simulation-an-in-depth-analysis-of-microsofts-crowning-jewel-flight-simulator-x-gold-edition/"><u>Charting New Heights in Flight Simulation – An In-Depth Analysis of Microsoft's Crowning Jewel, Flight Simulator X: Gold Edition</u></a></li>
-<li><a href="https://app-tips.techidaily.com/1723620193252-experience-endless-possibilities-access-free-cracked-applications-for-ios-and-android-via-appcake-today/"><u>Experience Endless Possibilities: Access Free, Cracked Applications for iOS & Android via AppCake Today</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changefake-your-apple-iphone-14-pro-max-location-on-viber-drfone-by-drfone-virtual-ios/"><u>How to Change/Fake Your Apple iPhone 14 Pro Max Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-6-best-free-apps-to-compress-videos-on-android/"><u>In 2024, 6 Best Free Apps to Compress Videos on Android</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-oppo-reno-8t-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Oppo Reno 8T Phone? Unlock It Now</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/testing-toughness-prohero-hero-vs-nikkor-km-170/"><u>Testing Toughness ProHero Hero Vs Nikkor KM-170</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/what-is-the-chatgpt-character-input-limit-and-can-you-get-around-it/"><u>What Is the ChatGPT Character Input Limit and Can You Get Around It?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-experience-reality-redefined-with-htc-vive-for-2024/"><u>[New] Experience Reality Redefined with HTC Vive for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-comedic-journey-an-evaluation-of-goofy-adventures/"><u>[New] In 2024, The Comedic Journey An Evaluation of 'Goofy Adventures'</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/op-12-real-time-youtube-subscriber-trackers/"><u>[New] Top 12 Real-Time YouTube Subscriber Trackers</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-essential-12-pc-clicker-games-to-elevate-gameplay/"><u>[Updated] Essential 12 PC Clicker Games to Elevate Gameplay</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-how-to-make-gmail-meetings-work-zipping-up-zoom-integrations/"><u>[Updated] How to Make Gmail Meetings Work Zipping Up Zoom Integrations</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-address-and-repair-missing-file-msodll-in-windows-computers/"><u>How to Address and Repair 'Missing File: MSO.DLL' In Windows Computers</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-your-connection-isnt-private-message-in-mozilla-firefox/"><u>How to Fix 'Your Connection Isn't Private' Message in Mozilla Firefox</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-high-quality-1-ranked-4k-laptops-for-gaming/"><u>In 2024, High-Quality #1 Ranked 4K Laptops for Gaming</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-honor-90-pro-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Honor 90 Pro Phone? Unlock It Now</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/streamline-your-path-to-youtubes-srt-files/"><u>Streamline Your Path to YouTube's SRT Files</u></a></li>
+<li><a href="https://fox-info.techidaily.com/wave-warriors-cam-selection-best-surf-gear-2023/"><u>Wave Warriors' Cam Selection - Best Surf Gear 2023</u></a></li>
 </ul></div>
 

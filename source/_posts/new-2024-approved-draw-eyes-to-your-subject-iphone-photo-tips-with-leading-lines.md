@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Draw Eyes to Your Subject  IPhone Photo Tips with Leading Lines\""
-date: 2024-12-05T18:18:36.625Z
-updated: 2024-12-06T19:56:46.629Z
+date: 2024-12-07T21:26:13.603Z
+updated: 2024-12-12T21:25:36.075Z
 tags: 
   - screen-recording
   - ai video
@@ -36,7 +36,7 @@ thumbnail: https://thmb.techidaily.com/499d16f8fa9d73db2896cc95dd1103614d6afb1a8
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Types of Leading Lines
@@ -47,6 +47,10 @@ thumbnail: https://thmb.techidaily.com/499d16f8fa9d73db2896cc95dd1103614d6afb1a8
 
 ![horizontal](https://images.wondershare.com/filmora/horizontal-lines.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  From the corner of the photo begins the diagonal lines, leading the eyes to the mid point on the focus.
 
 ![diagonal](https://images.wondershare.com/filmora/diagonal-lines.jpg)
@@ -55,17 +59,9 @@ thumbnail: https://thmb.techidaily.com/499d16f8fa9d73db2896cc95dd1103614d6afb1a8
 
 ![curved](https://images.wondershare.com/filmora/curved-lines.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The long and lazy curves bring a calming effect on the viewers and the constricted s-curves causes a sense of danger and speed.
 
 ![Long](https://images.wondershare.com/filmora/Long-lines.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Use Leading Lines in Photography
 
@@ -89,17 +85,21 @@ thumbnail: https://thmb.techidaily.com/499d16f8fa9d73db2896cc95dd1103614d6afb1a8
 
 ![Foreground](https://images.wondershare.com/filmora/Foreground.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Parallel Lines**\- The leading lines create a sense of distance due to the perception created. When the line leads to distance, it creates a sense of depth. For instance, when you capture river and road that is in the landscape, you will find that the parallel lines will gradually meet and disappear in you iPhone photo.
 
 ![parallel](https://images.wondershare.com/filmora/parallel.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Subdued Leading Lines**\- Every iPhone photography does not require to focus just on your face. The example of the scattered rocks, leading to the beach house is a subdued one and yet leads to the subject for the viewer’s eyes. The rocks in the center are used to frame and accentuate the rocks leading to the house.
 
 ![Subdued](https://images.wondershare.com/filmora/Subdued-Leading.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Multiple Leading lines**\- When you photograph rows of a streetlight and the leading lines in the cement, the viewer’s eyes are led to two figures of the ghost walking at a distance.
 
@@ -114,7 +114,7 @@ thumbnail: https://thmb.techidaily.com/499d16f8fa9d73db2896cc95dd1103614d6afb1a8
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -142,16 +142,21 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-top-7-budget-friendly-high-res-4k-cameras/"><u>[New] In 2024, Top 7 Budget-Friendly High-Res 4K Cameras</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-photoshop-techniques-for-dynamic-realistic-text/"><u>[New] Photoshop Techniques for Dynamic, Realistic Text</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-streamline-your-shots-a-windows-11-guide-for-2024/"><u>[New] Streamline Your Shots A Windows 11 Guide for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-make-your-mark-personalized-brands-zero-price-tag/"><u>[Updated] In 2024, Make Your Mark - Personalized Brands, Zero Price Tag</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-vive-motion-sickness-prevention-guide/"><u>[Updated] In 2024, Vive Motion Sickness Prevention Guide</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-financial-frontier-of-video-monetization-2024-edition/"><u>[Updated] The Financial Frontier of Video Monetization 2024 Edition</u></a></li>
-<li><a href="https://windows11.techidaily.com/redefining-window-11-interface-top-6-upgrades-for-the-taskbar/"><u>Redefining Window 11 Interface: Top 6 Upgrades for the Taskbar</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/samsung-leads-with-galaxy-ai-as-tech-giants-face-regulatory-scrutiny-in-global-innovation-rankings/"><u>Samsung Leads with Galaxy AI as Tech Giants Face Regulatory Scrutiny in Global Innovation Rankings</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/solo-stream-smoothness-hacks-for-seamless-live-broadcasts-for-2024/"><u>Solo Stream Smoothness Hacks for Seamless Live Broadcasts for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-quiet-quality-of-comfort-asmr-expert-choices/"><u>The Quiet Quality of Comfort ASMR Expert Choices</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/windows-app-usage-a-comprehensive-review/"><u>Window's App Usage: A Comprehensive Review</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-animatedapp-full-guide-and-review-24-overview/"><u>[New] AnimatedApp Full Guide & Review '24 Overview</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-meta-and-omni-universe-showcase-analysis-for-2024/"><u>[New] Meta & Omni Universe Showcase Analysis for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-unveiling-the-complete-image-enhancement-capabilities-with-polarr-for-2024/"><u>[New] Unveiling the Complete Image Enhancement Capabilities with Polarr for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-image-intensifiers-ranking-the-best-10-photography-lenses/"><u>[Updated] 2024 Approved Image Intensifiers Ranking the Best 10 Photography Lenses</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-essential-list-no-charge-platforms-for-stunning-video-transformations/"><u>[Updated] Essential List No-Charge Platforms for Stunning Video Transformations</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-proven-audacity-strategies-for-top-quality-recordings/"><u>[Updated] Proven Audacity Strategies for Top-Quality Recordings</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-stream-google-meet-directly-on-youtube-with-these-tips-for-2024/"><u>[Updated] Stream Google Meet Directly on YouTube with These Tips for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722975497375-easy-installation-get-your-latest-drivers-for-hp-devices-now/"><u>Easy Installation: Get Your Latest Drivers for HP Devices Now</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/expert-insights-on-toms-tech-reviews-unveiling-cutting-edge-computer-components/"><u>Expert Insights on Tom's Tech Reviews: Unveiling Cutting-Edge Computer Components</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-superior-smartphones-that-dominate-in-video-recording/"><u>In 2024, Superior Smartphones That Dominate in Video Recording</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-weighing-in-virtual-reality-pros-and-cons/"><u>In 2024, Weighing In Virtual Reality Pros & Cons</u></a></li>
+<li><a href="https://article-posts.techidaily.com/navigating-the-essentials-of-av1-coders-for-2024/"><u>Navigating the Essentials of AV1 Coders for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/speedy-upgrade-leading-android-video-tuners/"><u>Speedy Upgrade Leading Android Video Tuners</u></a></li>
+<li><a href="https://win11.techidaily.com/synchronize-system-seconds-in-windows/"><u>Synchronize System Seconds in Windows</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761839-9781591799016-the-sacred-yes/"><u>The Sacred Yes | Free Book</u></a></li>
 </ul></div>
 

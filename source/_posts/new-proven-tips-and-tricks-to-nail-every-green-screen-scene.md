@@ -1,7 +1,7 @@
 ---
 title: "[New] Proven Tips and Tricks to Nail Every Green Screen Scene"
-date: 2024-08-28T12:00:38.392Z
-updated: 2024-08-29T12:00:38.392Z
+date: 2024-12-05T19:49:01.521Z
+updated: 2024-12-12T17:39:06.370Z
 tags: 
   - screen-recording
   - ai video
@@ -44,6 +44,10 @@ We’ve figured out some useful green screen tricks, have fun and hope you’ll 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In the following section, we will share with you five tips when you shooting a video for compositing a green screen video, which covering the lighting tips, the camera tips, the clothing tips, the tips for using green screen sheet, and the tips for resolving motion blur in shooting videos.
 
 #### 1 Lighting tips in shooting a Green Screen Video
@@ -54,11 +58,19 @@ Don’t throw too much light onto the green background. That will create hotspot
 
 ![Lighting tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-lighting-tips.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Check out our picks of [the best lighting equipment for shooting videos](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 2Camera tips in shooting a Green Screen Video
 
 ![Camera tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-6.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 When lighting your key surface, make sure the bounce light is not directed at the camera (as shown in the image above). For example, if your camera faces the key surface directly, set your lights at 45 degree angles to the key surface. This will ensure that the bounce light bounces toward the other light and not at the camera.
 
@@ -78,6 +90,10 @@ There are some mistakes that you can avoid to help your green screen video look 
 
 ![Wrinkles problem in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Wrinkles in your screen can actually lead to heavy shadows and distorted image quality in your green screen video. If you regularly fold your green screen for storage it's very important that you take an iron out and flat negative green screen to prevent shadows and distortions with your background image. This is a step that many skip over but it's important to have a high-quality green screen without wrinkles and folds that cause shadows.
 
 #### 5 Motion blur problem in shooting a Green Screen Video
@@ -93,6 +109,10 @@ Till now, I believe we have basic skills on how to shoot a green screen videos, 
 Besides compositing chroma keying videos in Filmora, you can also[stabilize your shaky videos](https://tools.techidaily.com/wondershare/filmora/download/), [put videos side by side](https://tools.techidaily.com/wondershare/filmora/download/), [blur the face in the video](https://tools.techidaily.com/wondershare/filmora/download/) and even more. Let's watch the video below and find out how people shoot and edit green screen videos. Remember to download Filmora to have a try by yourself.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
@@ -119,8 +139,18 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-visual-identity-mastery-crafting-business-symbols-with-tailored-templates/"><u>[New] 2024 Approved Visual Identity Mastery Crafting Business Symbols with Tailored Templates</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-seamless-integration-of-movies-and-animations-using-movie-maker/"><u>[New] In 2024, Seamless Integration of Movies and Animations Using Movie Maker</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-journey-through-filmora-editing-10-standout-functions-for-2024/"><u>[New] Journey Through Filmora Editing 10 Standout Functions for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-elite-4k-gaming-laptops-ranked-1/"><u>[Updated] 2024 Approved Elite 4K Gaming Laptops Ranked #1</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-are-earnings-associated-with-good-and-service-analysis-for-2024/"><u>[Updated] Are Earnings Associated with Good and Service Analysis for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-elevate-engagement-posting-video-content-from-twitter-on-snapchat-for-2024/"><u>[Updated] Elevate Engagement Posting Video Content From Twitter on Snapchat for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-apple-iphone-12-location-on-skout-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change Apple iPhone 12 Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-vivo-v27-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Vivo V27? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-honor-magic5-ultimate-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Honor Magic5 Ultimate? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/mastering-motion-with-polaroids-latest-xs-innovation/"><u>Mastering Motion with Polaroid's Latest XS Innovation</u></a></li>
+<li><a href="https://games-able.techidaily.com/reverting-joystick-calibration-in-s-and-x-series/"><u>Reverting Joystick Calibration in S and X Series</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->

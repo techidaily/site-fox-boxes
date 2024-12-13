@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  How to Edit, Blur or Remove Photo Background?\""
-date: 2024-11-29T18:11:03.332Z
-updated: 2024-12-07T01:41:25.595Z
+date: 2024-12-05T20:58:57.151Z
+updated: 2024-12-13T05:46:58.871Z
 tags: 
   - screen-recording
   - ai video
@@ -105,6 +105,10 @@ Right-click on the background layer and choose "Convert to Smart Object." Head o
 
 ![confirm blur settings](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: How to Remove Photo Background?
 
 Want to remove the background from your image? Photoshop offers a photo-cut background solution for that. You can try that by following the steps below:
@@ -133,6 +137,10 @@ Unsplash is one of the biggest online storage sites for royalty-free images. You
 
 ![unsplash background website](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-12.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. [Pexels](https://www.pexels.com/search/background/)
 
 Pexels is another web-based tool that contains numerous stock photos and videos for your various needs. You can find thousands of suitable images as your background photo. The app is used by designers, creators, bloggers, and everyday users alike.
@@ -148,10 +156,6 @@ If you are looking for a website to find backgrounds in HD quality, you can try 
 Pixabay allows users to like, comment, or save the images of their choice. You can also refine your searches by orientation, size, color, and more. You can find background images that inspire and excite easily on Pixabay.
 
 ![pixabay background photos](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-14.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Wrapping Up
 
@@ -209,14 +213,6 @@ Tick the “Neutralize” box and adjust the “Luminance” and “Intensity”
 
 ![fix the image colors](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How to Blur Photo Background?
 
 A blurred background helps bring your image into focus. If you want a photo editor to blur background of your image, you can try Photoshop. Here are the steps for that:
@@ -233,15 +229,15 @@ Hold the “CTRL” key and select your layer mask. Go to the "Select" tab, find
 
 ![expand selection by pixels](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 3: Apply Photo Blur
 
 Right-click on the background layer and choose "Convert to Smart Object." Head over to the "Filter" tab, expand "Blur Gallery," and choose "Tilt-Shift." You can change the field lines to adjust the depth of field for your image and create a smooth transition. You can also control the intensity of the blur from the slider present on the right. Click “OK” and save your image.
 
 ![confirm blur settings](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Remove Photo Background?
 
@@ -252,21 +248,17 @@ Step 1: Remove Background
 To start with, insert your image and go to the Properties window. Under "Quick Options," click on the "Remove Background" option. Photoshop will automatically detect your subject and remove the background.
 
 ![tap on remove background](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-10.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-Step 2: Refine Outline
-
-To fix any mistake in your selection, go to the "Select" tab and click "Select and Mask." From the toolbar, choose the "Quick Selection" tool. You can use the minus sign to get rid of the extra background or the plus sign to bring back the background. Click on “OK” and save your image.
-
-![remove remaining backgroud](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-11.jpg)
 
 <!-- affiliate ads begin -->
 <iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
+Step 2: Refine Outline
+
+To fix any mistake in your selection, go to the "Select" tab and click "Select and Mask." From the toolbar, choose the "Quick Selection" tool. You can use the minus sign to get rid of the extra background or the plus sign to bring back the background. Click on “OK” and save your image.
+
+![remove remaining backgroud](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-11.jpg)
+
 ## Part 4: 3 Best Websites to Download Stunning Photo Editing Background Images
 
 Looking for a suitable background for your image? You can now download images and swap them for your original backgrounds easily. The following sites offer free background pictures for your every need.
@@ -332,7 +324,7 @@ You can now further refine your selected part using the different tools offered 
 ![edit the image edges](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 4: Remove Residual Colors
@@ -340,6 +332,10 @@ Step 4: Remove Residual Colors
 From the panel at the right, select "Output Settings." Check the box next to "Decontaminate Colors" to get rid of any leftover color fringe from your foreground. From "Output," you now need to add a new layer by clicking on "New Layer with Layer Mask."
 
 ![remove the selected color](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step 5: Add a New Background
 
@@ -377,10 +373,6 @@ Right-click on the background layer and choose "Convert to Smart Object." Head o
 
 ![confirm blur settings](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: How to Remove Photo Background?
 
 Want to remove the background from your image? Photoshop offers a photo-cut background solution for that. You can try that by following the steps below:
@@ -397,13 +389,13 @@ To fix any mistake in your selection, go to the "Select" tab and click "Select a
 
 ![remove remaining backgroud](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-11.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: 3 Best Websites to Download Stunning Photo Editing Background Images
 
 Looking for a suitable background for your image? You can now download images and swap them for your original backgrounds easily. The following sites offer free background pictures for your every need.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. [Unsplash](https://unsplash.com/s/photos/background)
 
@@ -412,6 +404,10 @@ Want the best photo editing background library for your images? Unsplash might b
 Unsplash is one of the biggest online storage sites for royalty-free images. You can find free images that you can use as image backgrounds in high resolution. You can search for any theme you want and find countless related images. Everything from nature to architectural and colorful backgrounds can be found on Unsplash.
 
 ![unsplash background website](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-12.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. [Pexels](https://www.pexels.com/search/background/)
 
@@ -438,10 +434,6 @@ With a wide range of editing tools available today, you can change any aspect of
 03 [How to Remove Photo Background?](#part3)
 
 04 [3 Best Websites to Download Stunning Photo Editing Background Images](#part4)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: How Can You Edit Photo Background Better?
 
@@ -489,6 +481,10 @@ Tick the “Neutralize” box and adjust the “Luminance” and “Intensity”
 
 ![fix the image colors](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to Blur Photo Background?
 
 A blurred background helps bring your image into focus. If you want a photo editor to blur background of your image, you can try Photoshop. Here are the steps for that:
@@ -546,6 +542,10 @@ Pexels is another web-based tool that contains numerous stock photos and videos 
 You can search for the image background of your choice and download it for free on Pexels. Users can search for a specific theme, texture, color, and more. Pexels is powered by creators worldwide that contribute to its ever-growing library.
 
 ![pexels background images](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-13.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. [Pixabay](https://pixabay.com/images/search/background/)
 
@@ -583,17 +583,20 @@ With a wide range of editing tools available today, you can change any aspect of
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-professional-graphics-with-asus-pa32u-true-to-color/"><u>[New] Professional Graphics with ASUS PA32U True to Color</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-unleashing-top-8-budget-friendly-windows-and-mac-3d-players/"><u>[New] Unleashing Top 8 Budget-Friendly Windows & Mac 3D Players</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-cutting-edge-approaches-to-crafting-top-fb-cover-videos-for-2024/"><u>[Updated] Cutting-Edge Approaches to Crafting Top FB Cover Videos for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-must-see-upgrades-in-vr-armor-for-2024/"><u>[Updated] Must-See Upgrades in VR Armor for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-the-ultimate-guide-to-designing-captivating-podcast-logos-for-2024/"><u>[Updated] The Ultimate Guide to Designing Captivating Podcast Logos for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/full-guide-to-bypass-infinix-hot-30i-frp-by-drfone-android/"><u>Full Guide to Bypass Infinix Hot 30i FRP</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Nokia G42 5G? | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/introduzione-allia-per-gli-utenti-di-winxvideo-strategie-essenziali-per-la-registrazione-il-miglioramento-e-la-conversione-dei-contenuti-video/"><u>Introduzione All'IA per Gli Utenti Di WinXVideo - Strategie Essenziali per La Registrazione, Il Miglioramento E La Conversione Dei Contenuti Video</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/optimal-video-formats-for-your-website-conversion-techniques-and-tips/"><u>Optimal Video Formats for Your Website: Conversion Techniques & Tips</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/step-by-step-tutorial-for-scaling-updown-hard-drive-capacity-in-windows-environments/"><u>Step-by-Step Tutorial for Scaling Up/Down Hard Drive Capacity in Windows Environments</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/update-your-system-intuitive-setup-for-the-latest-intel-iris-540-graphics-drivers/"><u>Update Your System: Intuitive Setup for the Latest Intel Iris 540 Graphics Drivers</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/zenith-pinnacle-software-testing/"><u>Zenith Pinnacle Software Testing</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-a-buyers-guide-to-exceptional-hdr-photography-equipment/"><u>[New] A Buyer's Guide to Exceptional HDR Photography Equipment</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-a-closer-look-ffmpeg-for-pristine-audio-extraction/"><u>[New] A Closer Look FFmpeg for Pristine Audio Extraction</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-caption-crafting-select-writing-apps-for-your-photos/"><u>[New] Caption Crafting Select Writing Apps for Your Photos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-ideal-modeling-software-for-animation-professionals-for-2024/"><u>[New] Ideal Modeling Software for Animation Professionals for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-quickstreamsuccess-essential-tips-for-flawless-live-podcast-streams-for-2024/"><u>[New] QuickStreamSuccess Essential Tips for Flawless Live Podcast Streams for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-restoring-functionality-in-obs-capture-device-for-2024/"><u>[New] Restoring Functionality in OBS Capture Device for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-webm-transformation-from-tweeted-visuals-for-2024/"><u>[New] WebM Transformation From Tweeted Visuals for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-social-network-video-download-for-audio-conversion/"><u>[Updated] 2024 Approved Social Network Video Download for Audio Conversion</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-effective-ways-to-leverage-zoom-on-chrome-os-devices-for-2024/"><u>[Updated] Effective Ways to Leverage Zoom on Chrome OS Devices for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-power-of-stories-in-youtube-expansion/"><u>[Updated] The Power of Stories in YouTube Expansion</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/breaking-through-youtubes-walls-using-advanced-creator-studio-skills/"><u>Breaking Through YouTube's Walls Using Advanced Creator Studio Skills</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-unlocking-untapped-utility-zoom-in-on-minecraft/"><u>In 2024, Unlocking Untapped Utility Zoom in on Minecraft</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/maximize-your-gaming-experience-fbx-edition-for-2024/"><u>Maximize Your Gaming Experience FBX Edition for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/ranked-instagrams-top-8-popular-ae-composition-tools-for-2024/"><u>Ranked Instagram's Top 8 Popular AE Composition Tools for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/what-lies-beyond-the-boundaries-of-vlc/"><u>What Lies Beyond the Boundaries of VLC?</u></a></li>
 </ul></div>
 

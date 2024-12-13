@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Survey  Unique Categories in Visual Media Equipment\""
-date: 2024-08-28T11:57:09.047Z
-updated: 2024-08-29T11:57:09.047Z
+date: 2024-12-11T17:02:12.175Z
+updated: 2024-12-12T19:24:51.740Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,10 @@ _[Top 10 professional 360 degree cameras](https://tools.techidaily.com/wondersha
 _[What is Frame Rate](https://tools.techidaily.com/wondershare/filmora/download/)_
 _[What Is Video Format](https://tools.techidaily.com/wondershare/filmora/download/)_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1. Smartphone
 
 ![ Smartphone video camera](https://images.wondershare.com/filmora/article-images/iphone-7-plus-dual-camera.jpg)
@@ -47,16 +51,14 @@ _[What Is Video Format](https://tools.techidaily.com/wondershare/filmora/downloa
 
  The other characteristic of consumer cameras is that they are smaller and simpler to operate, with most of them being fully automatic. But users still have the versatility to manually adjust other settings such as exposure audio level, focus and white balance amongst others. Unlike their professional counterparts, consumer cameras don’t have extensions to allow for extra audio inputs for professional sound equipment and all of them have fixed lenses with outdated digital revolution.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3. Pro Consumer Video Camera
 
 ![Prosumer camera](https://images.wondershare.com/filmora/article-images/prosumer-video-camera.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Next in the list are pro consumer video cameras. Pro consumer cameras lie in between consumer cameras and professional cameras. They are the cameras with smaller form factors than the larger cameras which are usually mounted on the shoulders for big budget TV production. However, the cameras are packed with enough features to grant professional image quality and are sufficient to do just any job.
 
  Pro consumer video cameras are also fairly expensive and the decent ones range between $1500 and $10,000 – almost a third of what you could spend for fully professional cameras like those used for big budget television works. Despite the high price range and the kind of technology utilized in the manufacture of these cameras, they still come with manual image and audio controls and most of them have external audio inputs.
@@ -64,15 +66,17 @@ _[What Is Video Format](https://tools.techidaily.com/wondershare/filmora/downloa
  The other admirable thing about these cameras is that they offer bigger imaging chips, interchangeable lenses, as well as the versatility to be time code in and out in instances of multi-camera reporting. With all the features and capabilities of these cameras, it becomes really difficult to distinguish them as either pro consumer cameras or professional cameras. Perhaps the most glaring difference between the two sets of cameras is the price. For professional video cameras, you can expect to spend anywhere from $8,000 well up to the regions of $50,000 and sometimes beyond.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4. Super Chip Cameras
 
 ![Super chip video cameras](https://images.wondershare.com/filmora/article-images/super-chip-camera.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Yet again, there is a set of cameras in between the pro consumer cameras and the professional cameras and we prefer to call them super chip cameras. These cameras are characterized by three distinct factors below:
 
 * Super chip cameras all have imaging chips which are larger than traditional pro video cameras. The imaging chips in these cameras are two to three times bigger than those in traditional pro video cameras.
@@ -83,16 +87,10 @@ _[What Is Video Format](https://tools.techidaily.com/wondershare/filmora/downloa
 
  These cameras have the capability to do everything that a traditional program could do, but with the added advantage of achieving the same tasks at relatively affordable rates. They are also ideal for high-end freelance broadcast work and film making.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 5. DSLR Video Cameras
 
 ![DRSL video camera](https://images.wondershare.com/filmora/article-images/dslr-camera-full-rig.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
  DSLR (Digital Single Lens Reflex) is basically digital photo camera fitted with the ability to take high quality HD videos. The popularity of these cameras has grown in the past few years due to three outstanding characteristics below common to all DSLR cameras:
 
 * They have big imaging chips which lead to high quality images.
@@ -106,6 +104,10 @@ _[What Is Video Format](https://tools.techidaily.com/wondershare/filmora/downloa
  Additionally, DSLR cameras don’t have an XLR audio inputs to allow the use of professional mics and mixes and they also have a limited recording time of just 12 minutes per clip and this is not very encouraging if you are in the middle of recording someone’s wedding vows. Even though there are a number of workarounds and third party applications to help in overcoming these shortcomings, they will only add to the cost and complications of DSLR shooting.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -130,4 +132,24 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-top-10-motivational-films-for-a-zestful-life/"><u>[New] 2024 Approved Top 10 Motivational Films for a Zestful Life</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-upgrade-to-professionalism-the-most-advanced-9-filter-techniques/"><u>[New] In 2024, Upgrade to Professionalism The Most Advanced 9 Filter Techniques</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-make-a-living-with-reddit-even-for-novices-top-13-easy-strategies/"><u>[New] Make a Living with Reddit (Even for Novices!) Top 13 Easy Strategies</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-adventure-capturing-toolskit/"><u>[Updated] 2024 Approved Adventure Capturing Toolskit</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-elite-6-software-for-audiovisual-translation/"><u>[Updated] 2024 Approved Elite 6 Software for Audio/Visual Translation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-maximize-creativity-top-10-secrets-from-canva-pros/"><u>[Updated] 2024 Approved Maximize Creativity - Top 10 Secrets From Canva Pros</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-combat-vr-motion-sickness-a-guide/"><u>[Updated] In 2024, Combat VR Motion Sickness A Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-ultimate-guide-to-top-tier-360-pro-cams/"><u>[Updated] In 2024, The Ultimate Guide to Top-Tier 360 Pro Cams</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-mastering-subtitles-the-ultimate-guide-to-free-tools-for-2024/"><u>[Updated] Mastering Subtitles The Ultimate Guide to FREE Tools for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/guia-sencilla-para-convertir-videos-mkv-a-avi-con-seguridad-usando-el-reproductor-vlc-garantizando-la-integridad-del-contenido-original/"><u>Guía Sencilla Para Convertir Videos MKV a AVI Con Seguridad Usando El Reproductor VLC, Garantizando La Integridad Del Contenido Original</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-samsung-galaxy-s23plus-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Samsung Galaxy S23+ Quickly? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-vivo-x100-pro-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Vivo X100 Pro</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/pause-dont-compare-unveiling-ai-distinctions/"><u>Pause, Don't Compare: Unveiling AI Distinctions</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/thrilling-rides-recorded-top-action-cam-gear-for-23-bikers/"><u>Thrilling Rides Recorded – Top Action Cam Gear for '23 Bikers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/top-spots-unveiling-stunning-no-cost-tiktok-backgrounds/"><u>Top Spots Unveiling Stunning, No-Cost TikTok Backgrounds</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/transition-tactics-in-audio-leveraging-adobes-fading-effects-for-2024/"><u>Transition Tactics in Audio Leveraging Adobe’s Fading Effects for 2024</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/unlocking-the-mystery-why-doesnt-my-scanner-match-its-advertised-resolution-yl-software-solutions/"><u>Unlocking the Mystery: Why Doesn’t My Scanner Match Its Advertised Resolution? - YL Software Solutions</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Master the Charm of Darker Digital Images"
-date: 2024-08-28T11:55:05.944Z
-updated: 2024-08-29T11:55:05.944Z
+date: 2024-12-10T05:42:40.525Z
+updated: 2024-12-13T02:17:53.837Z
 tags: 
   - screen-recording
   - ai video
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/69a1f779573ffb1d9703aa1f0c2a82407b77bc350
 
 During the age of analog photography, the image negative was one of the most important artifacts for photographers, because it enabled them to reproduce a picture as many times as they wanted. Years later photographers invert colors in photos for mostly aesthetical reasons since only a small number of photographers still take photos with analog cameras. Regardless of the type of camera you’re using, inverting colors in a photo is a straightforward process that doesn’t require too much effort. In this article, we are going to take you through some of the best options on Mac and PC computers, as well as Android phones and iPhones that let you invert colors in just a few easy steps. So, let’s dive in.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Make Image Negative of a Digital Photo?
 
 The Invert option is commonly used to invert a scanned film negative to color, but this doesn’t’ mean that you can’t use this effect in very different contexts. However, the extensive and unselective use of this effect can ruin a perfect photo. Here’s how you can invert colors in your photos.
@@ -39,6 +43,10 @@ The Invert option is commonly used to invert a scanned film negative to color, b
 **Compatibility:** Windows
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/ms-paint-invert-color.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Open the photo you’d like to invert with MS Paint, and then choose the **Select All option** from the **Select Menu**. **Right-click** on the picture and click on the **Invert Color** option. The colors in the image will be automatically inverted, so you can then head over to the **Save As submenu** in the **File menu** to select the file format of the new photo.
 
@@ -53,6 +61,10 @@ If you are using Windows XP or an earlier version of the Windows OS, you can inv
 Besides creating image negatives, the Preview app lets you convert image files as well. Once you open a photo you’d like to invert with the Preview app, you should click on the **Tools** menu.
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color-original.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Clicking on the **Adjust Color feature** will bring up the color adjustment panel that contains **Black Level and White Level** sliders. To invert the colors in the photo you have to drag the **Black Level slider to the right** and the **White Level Slider to the left.**
 
@@ -77,6 +89,10 @@ The platform’s homepage contains a number of categories of tools such as **Col
 **Compatibility** **:** Online platform
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/imageconverter-tjshome.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In addition to a rich selection of effects you can apply to images, tjshome also lets you browse through **Funny Dumb Laws, Famous Quotes or Funny Status Messages** categories. Click on the **Image Filter** category in order to view all effects the platform offers. Make sure that the **Reverse Colors/Negate effect** is selected, and then scroll further down the page to **upload the photo you’d like to invert.** When the upload process is completed, you can check the Make **Public checkbox** if you want to add your photo to the tjshome’s gallery. Click on the **Submit** button, and then proceed to save the picture to your computer. This platform lets you invert images in three easy steps, but if you want to have more control over the process, it is better to use a more powerful photo editor.
 
@@ -122,6 +138,10 @@ Inverting colors in a photo is not a complicated process, but finding creative w
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -145,12 +165,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-examining-audio-and-visual-content-podcasts-against-youtube/"><u>[New] 2024 Approved Examining Audio and Visual Content Podcasts Against YouTube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-introduction-to-kinetic-graphic-principles/"><u>[New] 2024 Approved Introduction to Kinetic Graphic Principles</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-elevating-your-digital-presence-best-vocal-tweakers-for-vtubers/"><u>[New] In 2024, Elevating Your Digital Presence Best Vocal Tweakers for VTubers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-nighttime-exposures-for-your-iphone-lens/"><u>[New] In 2024, Nighttime Exposures for Your iPhone Lens</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-is-it-wise-to-keep-off-facebook-activity-displayed-insights/"><u>[New] Is It Wise to Keep Off-Facebook Activity Displayed? Insights</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-mememorph-machine/"><u>[Updated] 2024 Approved MemeMorph Machine</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-a-step-by-step-approach-to-using-cg-central-luts-in-grading/"><u>[Updated] A Step-by-Step Approach to Using CG Central LUTs in Grading</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-audacity-workshop-eloquent-silent-transitions/"><u>[Updated] In 2024, Audacity Workshop Eloquent Silent Transitions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-ultimate-checklist-for-fpv-drone-propeller-selection/"><u>[Updated] In 2024, The Ultimate Checklist for FPV Drone Propeller Selection</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-web-supplement-fb-stories-downloader/"><u>[Updated] In 2024, Web Supplement FB Stories Downloader</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-jumpstart-to-partner-elevation-secure-10k-views-in-minutes/"><u>2024 Approved Jumpstart to Partner Elevation Secure 10K Views in Minutes!</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-guide-to-downloading-and-installing-hp-printer-drivers-on-windows-1011-systems/"><u>Easy Guide to Downloading & Installing HP Printer Drivers on Windows 10/11 Systems</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-forgotten-pin-of-your-honor-x9a-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Honor X9a</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-detailed-review-of-doctorsim-unlock-service-for-iphone-14-drfone-by-drfone-ios/"><u>In 2024, Detailed Review of doctorSIM Unlock Service For iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-dji-phantom-3-capability-assessment/"><u>In 2024, DJI Phantom 3 Capability Assessment</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-full-mobility-examination-2023/"><u>In 2024, Full Mobility Examination 2023</u></a></li>
+<li><a href="https://fox-where.techidaily.com/is-it-possible-to-clone-a-complete-windows-installation-onto-an-sdd/"><u>Is It Possible to Clone a Complete Windows Installation Onto an SDD?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/navigating-the-ways-for-fee-free-pictorial-clips/"><u>Navigating the Ways for Fee-Free Pictorial Clips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/strategic-play-tips-by-top-game-masters-for-2024/"><u>Strategic Play Tips by Top Game Masters for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->

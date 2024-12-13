@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Coding Warfare  Comparing the Superiority of AV1 and VP9\""
-date: 2024-08-28T11:59:16.586Z
-updated: 2024-08-29T11:59:16.586Z
+date: 2024-12-08T18:27:35.849Z
+updated: 2024-12-13T01:55:30.291Z
 tags: 
   - screen-recording
   - ai video
@@ -33,8 +33,9 @@ AV1 is a relatively new video codec by Alliance for Open Media, a consortium of 
 The first AV1 version was released in 2016 but was held back due to unresolved critical bugs. Then in March 2018, the Alliance announced another release alongside software encoder/decoder. Although the codec is primarily designed to compete with licensed codecs like  AVC, there are concerns that it may threaten the existence of other royalty-free codecs. But as a consumer, freebies are always a welcome addition.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3\. Detailed Comparison Between VP9 and AV1
 
 For viewers to enjoy high-quality content without using a lot of resources, efficient video compression technology is a must. As it stands, both VP9 and AV1 are royalty-free codecs, meaning that they are 100% free to use. However, these codecs differ. Here is what we've gathered for the **VP9 vs AV1** comparison:
@@ -45,7 +46,15 @@ Both video compression techniques are relatively new, which AV1 being the latest
 
 ![compatibility](https://images.wondershare.com/filmora/article-images/2022/11/av1-vs-vp9-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 But on the other hand, viewers might experience an "error" message when opening AV1 locally on your old PC. While Intel works around the clock to develop supported drivers, some may not be compatible with your old computer. But expect wider AV1 compatibility now that more tech companies like Meta, Samsung, and Apple have joined the Alliance for Open Media. Currently, YouTube and Netflix are already streaming some videos in AV1.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Performance - AV1 has an edge
 
@@ -55,9 +64,6 @@ Another 2018 Facebook Engineering (now Meta) test showed that AV1 achieved 34% h
 
 ![facebook av1 vs vp9 comparison](https://images.wondershare.com/filmora/article-images/2022/11/av1-vs-vp9-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Most importantly, Facebook suggested that AV1's performance significantly increases with increased video resolution. This means viewers will enjoy a higher quality 8K and UHD/4K content when using AV1 than VP9 and other codecs. And yes, higher compressions by AV1 mean a smaller file size at the same bitrates as the VP9 codec.
 
 ### Into the Future - AV1 is the Trend
@@ -72,7 +78,15 @@ Soon in the September, NVIDIA unveiled the GeForce RTX® 40 Series of GPUs, whic
 
 ![cut export times](https://images.wondershare.com/filmora/article-images/2022/11/av1-vs-vp9-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Let alone AV2 is upcoming in 3-5 years. There is no doubt that AV1 is the future trend.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4\. Which Editor Can Export an AV1 MP4 Video?
 
@@ -86,29 +100,23 @@ Apply these steps to create an MP4 AV1 video on Filmora 11:
 
 ![av1 vs vp9 load video](https://images.wondershare.com/filmora/article-images/2022/11/av1-vs-vp9-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 Install and run [Filmora 11](https://tools.techidaily.com/wondershare/filmora/download/) on your computer, then select the video aspect ratio. For example, choose 16:9 (Widescreen) for YouTube videos. After that, start a **New Project** and click **Import Media** to load the video. Of course, you can load multiple videos and merge them later. Now move the video to the timeline by dragging.
 
 ##### Step2Edit the video to make it more appealing (optional)
 
 ![av1 vs vp9 edit video](https://images.wondershare.com/filmora/article-images/2022/11/av1-vs-vp9-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 As you may already know, thousands of videos are uploaded daily on YouTube. Therefore, your videos must look creative to attract views. So, trim, split, merge, and delete video clips. You can also click the **Effects** tab to add animated titles, intros, transitions, music, and more. In addition, double-tap the video timeline to add motion tracking, image stabilization, color correction, chroma key, and more. And don't forget to add subtitle tracks using the **Sound to Text** feature.
 
 ##### Step3Export the video to MP4 AV1
 
 ![av1 vs vp9 choose av1 mp4](https://images.wondershare.com/filmora/article-images/2022/11/av1-vs-vp9-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 Are you satisfied with the edited video? Click **Play** to preview it and apply further edits if needed. Then, tap **Export** and choose **MP4 AV1** as the target format. Lastly, name your video and export it to your local drive. You can also click the **YouTube** tab to directly upload the video on the platform. And that's it!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5\. FAQs About AV1 and VP9
 
@@ -116,10 +124,6 @@ Are you satisfied with the edited video? Click **Play** to preview it and apply 
 
 There's nothing like the "best video codec" because it depends on user preference.  Although it offers universal compatibility, its performance is far behind codecs like AV1, and VP9. Also, it's a licensed video codec, one reason why YouTube stopped streaming.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ### How can I check the video codec on YouTube?
 
 Checking the type of codec used to stream a YouTube video is relatively straightforward. Open the video and right-click the video screen. Then, click "Stats for nerds" to view the video codec, color, network connection speed, frames, and more.
@@ -128,23 +132,18 @@ Checking the type of codec used to stream a YouTube video is relatively straight
 
 If you're using Firefox 63.0 or newer, you can disable/enable AV1 support. To do that, open the browser, then type _about:config_ before tapping **Enter** to search. Then, tap the **I accept the risk** button, then double-tap _media.av1.enabled_ to change the **Value** to **false** or **true**.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Can I open AV1 videos on VLC?
 
 You can open AV1 on VLC version 3.0.0, released on February 2018\. Remember that VideoLAN, the developer of VLC Media Player, is a member of the Alliance for Open Media.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ### When will AV2 be released?
 
 After multiple tests to compare AV1 and H.266, it was discovered that the former lags in numerous aspects. As a result, Alliance for Open Media had to go back to the drawing board to design AV2\. But don't expect this codec until at least 2024 to 2025.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Summary
 
 We hope this AV1 vs VP9 comparison article has dispelled all your fears about using the AV1 codec. Although it's okay to use VP9, AV1 offers superior compression while delivering higher image quality than VP9\. So, use [Filmora 11](https://tools.techidaily.com/wondershare/filmora/download/) to create your MP4 AV1 videos for YouTube.
@@ -177,4 +176,20 @@ We hope this AV1 vs VP9 comparison article has dispelled all your fears about us
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-top-photo-storage-sites/"><u>[New] 2024 Approved Top Photo Storage Sites</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-streamlined-technique-for-embedding-linktree-on-tiktok/"><u>[New] In 2024, Streamlined Technique for Embedding Linktree on TikTok</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-profitability-probe-dailymovement-versus-youtubes-financial-edge/"><u>[Updated] 2024 Approved Profitability Probe DailyMovement Versus YouTube's Financial Edge</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-all-inclusive-assessment-bublcams-full-feature-set-reviewed/"><u>[Updated] All-Inclusive Assessment Bublcam's Full Feature Set Reviewed</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-fine-tuned-focus-mastering-online-zooms-and-closures-for-2024/"><u>[Updated] Fine-Tuned Focus Mastering Online Zooms and Closures for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-exploiting-slow-motion-magic-in-phantom/"><u>[Updated] In 2024, Exploiting Slow-Motion Magic in Phantom</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-youtube-tips-and-tricks-halt-the-snippet-views-effectively/"><u>[Updated] In 2024, YouTube Tips & Tricks Halt the Snippet Views Effectively</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/crafting-powerful-narratives-with-these-30-video-plans/"><u>Crafting Powerful Narratives with These 30 Video Plans</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/effortlessly-navigate-your-workspace-the-perfect-blend-of-precise-cables-in-the-portable-sabrent-mini-travel-mouse/"><u>Effortlessly Navigate Your Workspace: The Perfect Blend of Precise Cables in the Portable Sabrent Mini Travel Mouse</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-get-the-latest-intel-rapid-storage-tech-software-for-faster-pc-performance/"><u>How to Get the Latest Intel Rapid Storage Tech Software for Faster PC Performance</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Motorola Moto G34 5G | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/techniques-for-ascertaining-your-pcs-intel-core-gen/"><u>Techniques for Ascertaining Your PC's Intel Core Gen</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/vrijetijdige-online-converting-avi-to-mp4-met-movavi-kostenloos-gratis-tool/"><u>Vrijetijdige Online Converting AVI to MP4 Met Movavi - Kostenloos Gratis Tool</u></a></li>
+</ul></div>
 

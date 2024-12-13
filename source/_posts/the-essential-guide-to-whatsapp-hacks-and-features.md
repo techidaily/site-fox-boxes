@@ -1,7 +1,7 @@
 ---
 title: "The Essential Guide to WhatsApp Hacks and Features"
-date: 2024-08-28T12:00:20.783Z
-updated: 2024-08-29T12:00:20.783Z
+date: 2024-12-07T20:29:05.582Z
+updated: 2024-12-13T00:43:57.564Z
 tags: 
   - screen-recording
   - ai video
@@ -48,11 +48,19 @@ Just like the bold, you can also italicize your fonts by simply inserting Unders
 
 ![Whatsapp Text Tricks Italic](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-italic.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 3.Strikethrough
 
 Strikethrough is largely used to intend puns in WhatsApp, but sometimes it is also a functional tool for text corrections, used at large for online tutorials, editorials, or brainstorming. For adding Strikethrough use the Tilde Symbol (\~text\~) at the starting and end of your text.
 
 ![Whatsapp Text Tricks Strikethrough](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-strikethrough.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 4.Monospace
 
@@ -80,11 +88,19 @@ If you wish to save the chats that you exchanged with someone special, you can e
 
 ![Whatsapp Export Chat Logs](https://images.wondershare.com/filmora/article-images/whatsapp-export-chat-logs.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 8.WhatsApp Font Tricks for Formatting
 
 Though we have already mentioned the shortcuts for bold, italics, and other text formatting features, there is another way to format your texts if you forget the shortcuts - go for the Native Settings Strip. Once you are done typing, then tap and hold the text sections you want to format, this will open all the options in a list. You can scroll it to select your formatting command.
 
 ![Whatsapp Font Tricks Formatting](https://images.wondershare.com/filmora/article-images/whatsapp-font-tricks-formatting.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 9.You Can Apply All WhatsApp Font Tricks on One Word or Sentence
 
@@ -92,11 +108,19 @@ There are plenty of things you can do with one word. It can be bold, italic, mon
 
 ![Apply All Whatsapp Font Tricks](https://images.wondershare.com/filmora/article-images/apply-all-whatsapp-font-tricks.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 10.Share Sections of Messages While Typing
 
 While typing a WhatsApp message if you need to cross-check certain areas with someone else, and don’t want to copy the text or overwrite your clipboard, you can directly share the text without copy-pasting or taking screenshots. This WhatsApp Typing Trick is in the same native setting strip mentioned earlier, which you can access by tapping and holding the text section you want to share, which will open the formatting strip. Once it opens then click on the 3 dots, which will turn the strip into a panel, in the panel you will find what you are looking for. The coolest part is that you can share the text not only in WhatsApp but multiple other apps like Zoom, Skype, Email… even Bluetooth!
 
 ![Whatsapp Typing Trick](https://images.wondershare.com/filmora/article-images/whatsapp-typing-trick.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What are the Hidden Features of WhatsApp?
 
@@ -140,6 +164,10 @@ Not every message thread is important, and many people have the habit of deletin
 
 ![Whatsapp Auto Delete Messages](https://images.wondershare.com/filmora/article-images/whatsapp-auto-delete-messages.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 8.Mute Stories that You Don’t Want to See
 
 If it is annoying to open a loved one’s story and then automatically sliding into a story you did not want to open, you can MUTE the people whose stories you are not interested to see. Go to Story and tap and hold the unwanted contact to open the Mute option. Even though there is no option that you can stop the automatic carousel to the next contact’s stories altogether, you can always go by the rule of the thumb - place your thumb on the screen and the carousel won’t move.
@@ -158,9 +186,6 @@ Manage how you are notified of messages from specific contacts and groups. Go to
 
 Source: beebom.com
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ## Edit WhatsApp Videos with Ease
 
 Some of the best WhatsApp video editing tricks are coming up, wherein you can add doodles, text, and crop an image. Moreover, you also check in some external video editing tools that are quite handy to integrate with WhatsApp.
@@ -171,9 +196,6 @@ There are no download options for photos and videos for WhatsApp Statuses, yet y
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 #### 2.Record Video Calls from PC and Improve Its Quality
 
 For this WhatsApp Video Editing Trick, you would need to have a third-party screen recorder tool, like Wondershare Filmora on your PCs, and the iPhone 11 has one in-built software for screen recording. Either way, if you can record the WhatsApp Call with sound and all, you can further import the file into Wondershare Filmora and use high-tech editorial tools like Noise Reduction, 4K Resolution and snip any unnecessary portions in the clip.
@@ -183,8 +205,9 @@ For this WhatsApp Video Editing Trick, you would need to have a third-party scre
 You can create an instant GIF out of the video file within WhatsApp. Do this, let the video download, and then freshly share it from Attach >> Gallery >> Videos. Before sending, the video editing panel would open, there, you can see the GIF option at the top right. It will shorten your video to 6 seconds, adjust the cursor to the portion you wish to use.
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Conclusion
 
 When it comes to WhatsApp Tricks and Trades, you always have to look forward to every update. Keep a tab on the updates and find a new WhatsApp Hidden Feature now and then.
@@ -193,13 +216,6 @@ When it comes to WhatsApp Tricks and Trades, you always have to look forward to 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -223,4 +239,21 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-simplified-approach-to-crafting-xml-for-podcasts/"><u>[New] 2024 Approved Simplified Approach to Crafting XML for Podcasts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-learn-quick-image-text-alteration-online-resources-for-2024/"><u>[New] Learn Quick Image Text Alteration Online Resources for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-navigating-safaris-picture-in-picture-for-mobiledesktop/"><u>[Updated] Navigating Safari’s Picture in Picture for Mobile/Desktop</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-premier-hd-theater-experience-best-players-list/"><u>[Updated] Premier HD Theater Experience - Best Players List</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-step-by-step-how-to-master-these-7-expert-graders-for-2024/"><u>[Updated] Step-by-Step How to Master These 7 Expert Graders for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1-david-yang-visionary-behind-abbyy-leading-with-strategic-insight-as-board-chairman/"><u>1. David Yang: Visionary Behind ABBYY, Leading with Strategic Insight as Board Chairman</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-the-riches-a-deep-dive-into-mr-beasts-wealth/"><u>2024 Approved The Riches A Deep Dive Into Mr. Beast's Wealth</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-itel-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Itel</u></a></li>
+<li><a href="https://games-able.techidaily.com/evolving-threats-a-closer-look-at-gamers-security/"><u>Evolving Threats: A Closer Look at Gamers' Security</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-develop-memes-for-viral-impact-adobe-way/"><u>In 2024, Develop Memes for Viral Impact, Adobe Way</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-strategic-insights-into-making-emotional-connection-with-customer-success-videos/"><u>In 2024, Strategic Insights Into Making Emotional Connection with Customer Success Videos</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/in-2024-top-5-audio-manipulation-apps-perfecting-your-sound-waves/"><u>In 2024, Top 5 Audio Manipulation Apps Perfecting Your Sound Waves</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/nomoresubscriptionaccess-eagerly-awaiting-new-era/"><u>NoMoreSubscriptionAccess: Eagerly Awaiting New Era</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tactical-steps-for-repairing-googles-nearby-sharing-errors/"><u>Tactical Steps for Repairing Google's Nearby Sharing Errors</u></a></li>
+</ul></div>
 

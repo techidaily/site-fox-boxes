@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Pinnacle Writing in Cinema's Diverse Segments"
-date: 2024-12-02T18:31:21.472Z
-updated: 2024-12-06T18:48:17.580Z
+date: 2024-12-06T19:02:34.525Z
+updated: 2024-12-12T16:23:13.210Z
 tags: 
   - screen-recording
   - ai video
@@ -37,7 +37,7 @@ _Be it a blockbuster movie, an indie gem, a play on The Fringe, or the West End 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1\. Why did we pick these films?
@@ -46,17 +46,9 @@ When you look at the top-grossing movies at the box office, it's no surprise tha
 
 ![reason of picking films](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Sure, we'd all love to write one of those big blockbusters, but it's going to take a lot of blood, sweat, and writing to earn Marvel's trust. That's why I want to draw attention to the movie that is in fourth place: A Quiet Place Part II. The sequel to 2018's A Quiet Place has grossed over $160 million this year and still has three months to go. Why is this significant? I will explain.
 
 As aspiring screenwriters, it is important for us to focus on markets where we can break through. Some genres don't necessarily require a huge budget or an A-list star to be successful, and that's good news. Making a movie is the beginning of the journey to getting hired to write a superhero movie.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. Scripts examples from 8 genre
 
@@ -65,6 +57,10 @@ As aspiring screenwriters, it is important for us to focus on markets where we c
 **_1\. Annabelle_**
 
 ![annabelle](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Writer:** Gary Dauberman
 
@@ -206,10 +202,6 @@ When Jack meets Esther in the park one day, he swears she looks familiar. Althou
 
 **Download the script here:** <http://offthewallplays.com/wp-content/uploads/2018/12/WALK-IN-PARK-half-script-1.pdf>
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Best action scripts
 
 **_1\. 2 Guns_**
@@ -237,6 +229,10 @@ Secret Agent James Bond sets out on a mission as 007 in a screenplay that can sh
 **_1\. PRIMER_**
 
 ![primer](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-13.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Writer:** Shane Carruth
 
@@ -277,6 +273,10 @@ The money Cinderella made from its release, subsequent record sales, publishing,
 **Writers:** Brenda Chapman, Barry Johnson, Andy Gaskill, Kevin Harkey, Tom Sito, Rick Maki, Burny Mattinson, Lorna Cook, Gary Trousdale, Jorgen Klubien, Larry Leker, Ed Gombert, Mark Kausler, Thom Enriquez, Jim Capobianco, Chris Sanders, Joe Ranft, Francis Glebas
 
 ![the lion king 1994](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-16.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Like any child of the 90s, I admit to having a soft spot for The Lion King. The film was clearly heavily influenced by biblical stories, the Epic of Sundiatus and Shakespeare's Hamlet. It tells the story of Simba, the destined king of Pride Rock, who runs away guilt-ridden after "blaming" his father's death. The film is the highest-grossing hand-drawn film in history and won two Academy Awards for musical score.
 
@@ -320,10 +320,6 @@ Sure, we'd all love to write one of those big blockbusters, but it's going to ta
 
 As aspiring screenwriters, it is important for us to focus on markets where we can break through. Some genres don't necessarily require a huge budget or an A-list star to be successful, and that's good news. Making a movie is the beginning of the journey to getting hired to write a superhero movie.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2\. Scripts examples from 8 genre
 
 ### Best horror scripts
@@ -331,10 +327,6 @@ As aspiring screenwriters, it is important for us to focus on markets where we c
 **_1\. Annabelle_**
 
 ![annabelle](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Writer:** Gary Dauberman
 
@@ -382,10 +374,6 @@ That's exactly what new screenwriter [**Kelly Fremon Craig**](https://en.wikiped
 
 **Download the script here:** <https://www.scriptslug.com/script/the-edge-of-seventeen-2016>
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Best Christmas play scripts
 
 _**1\. A Christmas Carol – Large Cast**_Every man has the power to do good.
@@ -408,9 +396,17 @@ Angel, a child fairy, learns a valuable lesson about caring for the sick when sh
 
 **Download the script here:** <https://cf.ltkcdn.net/christmas/files/2502-angels-poinsettia.pdf>
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Best promotional video scripts
 
 ![best promotional video scripts](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _**1\. Announcement**_
 
@@ -476,10 +472,6 @@ Level of difficulty: _6/10 – conversational, easy lines to remember and that a
 
 ![a walk in the park](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-10.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 When Jack meets Esther in the park one day, he swears she looks familiar. Although Esther initially denies that she even knows him, she invites him to sit down and they start talking. Jack tells her a story about a girl he knew a long time ago, a girl he called "Essie", who helped him get over another girl who broke his heart a long time ago. A short five-minute game for seniors - one man and one woman.
 
 **Download the script here:** <http://offthewallplays.com/wp-content/uploads/2018/12/WALK-IN-PARK-half-script-1.pdf>
@@ -511,6 +503,10 @@ Secret Agent James Bond sets out on a mission as 007 in a screenplay that can sh
 **_1\. PRIMER_**
 
 ![primer](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-13.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Writer:** Shane Carruth
 
@@ -552,9 +548,17 @@ The money Cinderella made from its release, subsequent record sales, publishing,
 
 ![the lion king 1994](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-16.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Like any child of the 90s, I admit to having a soft spot for The Lion King. The film was clearly heavily influenced by biblical stories, the Epic of Sundiatus and Shakespeare's Hamlet. It tells the story of Simba, the destined king of Pride Rock, who runs away guilt-ridden after "blaming" his father's death. The film is the highest-grossing hand-drawn film in history and won two Academy Awards for musical score.
 
 **Download the script here:** <https://www.studiobinder.com/blog/the-lion-king-script-screenplay-pdf-download/>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3\. Make your own short movie now
 
@@ -572,10 +576,6 @@ The key features offered by [Wondershare Filmora](https://tools.techidaily.com/w
 
 ![make a video with wondershare filmora](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-17.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The 4K editing support feature enables users to edit and export videos at a resolution of up to 4K. The GIF support feature allows importing, editing, and exporting of GIF files. The noise removal feature facilitates removal of unwanted background noise readily.
 
 The [color tuning](https://tools.techidaily.com/wondershare/filmora/download/) feature enables users to adjust the white balance and dynamic range of their clips. The audio mixer feature enables changing the audio of each track. The advanced text editor allows editing the color, size, font, and even animation of the text. The screen recording feature enables recording the screen of the computer and webcam efficiently. The video stabilization feature eliminates the effects of camera shake.
@@ -583,7 +583,7 @@ The [color tuning](https://tools.techidaily.com/wondershare/filmora/download/) f
 ![color tuning](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-18.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -614,16 +614,20 @@ Creating video content that can potentially go viral is no longer a complicated 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-navigating-the-2023-landscape-for-screen-captures-and-ppts/"><u>[New] 2024 Approved Navigating the 2023 Landscape for Screen Captures & PPTs</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-binary-divide-metaverse-vs-multiverse-explained/"><u>[New] In 2024, The Binary Divide Metaverse Vs Multiverse Explained</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-inside-the-world-of-superior-screen-recording-with-recmeister-for-2024/"><u>[New] Inside the World of Superior Screen Recording with Recmeister for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-prime-list-of-affordable-high-definition-cameras/"><u>[Updated] 2024 Approved Prime List of Affordable High Definition Cameras</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-expert-strategies-elevating-interview-audio-quality-with-iphoneipad-for-2024/"><u>[Updated] Expert Strategies Elevating Interview Audio Quality with iPhone/iPad for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-how-much-do-podcasters-earn-on-average/"><u>[Updated] In 2024, How Much Do Podcasters Earn on Average?</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-unraveling-virtual-physical-coexistence-what-is-mixed-reality/"><u>[Updated] In 2024, Unraveling Virtual-Physical Coexistence What Is Mixed Reality?</u></a></li>
-<li><a href="https://driver-error.techidaily.com/fix-geforce-gtx-1070-driver-issue-on-windows-10-solved/"><u>Fix GeForce GTX 1070 Driver Issue on Windows 10 [Solved]</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-iphone-15-plus-data-from-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover iPhone 15 Plus Data From iTunes? | Dr.fone</u></a></li>
-<li><a href="https://discover-answers.techidaily.com/powershell/"><u>PowerShellによる効率的なディスクのバックアップ手順</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/which-is-better-for-vloggers-on-facebook-vertical-or-horizontal-in-2024/"><u>Which Is Better for Vloggers on Facebook Vertical or Horizontal, In 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-discover-the-leading-no-cost-film-enhancement-platforms-for-2024/"><u>[New] Discover the Leading No-Cost Film Enhancement Platforms for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-accessing-disguised-user-responses-on-yt/"><u>[New] In 2024, Accessing Disguised User Responses on YT</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-ultimate-selection-elite-iphone-call-alerts/"><u>[New] In 2024, Ultimate Selection Elite iPhone Call Alerts</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-mastering-your-iphone-step-by-step-guide-to-podcast-acquisition-for-2024/"><u>[New] Mastering Your iPhone Step-by-Step Guide to Podcast Acquisition for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-tailoring-your-linkedin-url-for-2024/"><u>[New] Tailoring Your LinkedIn URL for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-your-quick-reference-to-discord-spoiler-usage/"><u>[Updated] 2024 Approved Your Quick Reference to Discord Spoiler Usage</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-action-sequence-mastery-selecting-gopros-best-cinematic-luts/"><u>[Updated] Action Sequence Mastery Selecting GoPro's Best Cinematic LUTs</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-gaining-ground-on-competitors-with-your-instagram-videos-for-2024/"><u>[Updated] Gaining Ground on Competitors with Your Instagram Videos for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-unlocking-youtube-profits-a-comprehensive-manual/"><u>2024 Approved Unlocking YouTube Profits A Comprehensive Manual</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-chilly-champs-beijings-best-of-the-2022-games/"><u>In 2024, Chilly Champs Beijing's Best of the 2022 Games</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-honor-play-8t-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Honor Play 8T Device SIM</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/in-depth-look-at-googles-gemini-advancing-the-frontiers-of-ai-research/"><u>In-Depth Look at Google's Gemini: Advancing the Frontiers of AI Research</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/mastering-the-art-of-digital-distortion-in-minutes/"><u>Mastering the Art of Digital Distortion in Minutes</u></a></li>
+<li><a href="https://solve-help.techidaily.com/step-by-step-tutorial-on-sharing-ultra-high-definition-content-uhdhd-4k-across-devices-to-instagram/"><u>Step-by-Step Tutorial on Sharing Ultra-High Definition Content (UHD/HD 4K) Across Devices to Instagram</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-xiaomi-redmi-note-12-pro-4g-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Xiaomi Redmi Note 12 Pro 4G Phone Hassle-Free</u></a></li>
 </ul></div>
 

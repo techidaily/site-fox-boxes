@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Innovative Photography  Vertical Vistas via Mobile\""
-date: 2024-08-28T11:55:46.694Z
-updated: 2024-08-29T11:55:46.694Z
+date: 2024-12-08T18:23:42.099Z
+updated: 2024-12-13T05:03:33.128Z
 tags: 
   - screen-recording
   - ai video
@@ -34,10 +34,18 @@ thumbnail: https://thmb.techidaily.com/802eeff691c55a6d5d09cbae446dc45a39ed24ae9
 
  However, you will need to use a few but simple techniques to efficiently capture the vertical panoramic view. In this article, we’ll explain you how you can carry out those extraordinary views with your Android or iOS device.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to take vertical panorama photography with your respective Smartphone
 
 * [Part 1: For iPhone Users](#part1)
 * [Part 2: For Android Users](#part2)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### For iPhone users
 
@@ -54,8 +62,9 @@ thumbnail: https://thmb.techidaily.com/802eeff691c55a6d5d09cbae446dc45a39ed24ae9
 * Once finished and satisfied, just tap on "Done" option.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### For Android users
 
  To capture vertical panorama on Android, the steps are given just below.
@@ -65,9 +74,6 @@ thumbnail: https://thmb.techidaily.com/802eeff691c55a6d5d09cbae446dc45a39ed24ae9
 
 ![](https://images.wondershare.com/filmora/article-images/vertical-panorama-android.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
  Image source: mac-fusion
 
 * To shoot picture, keep holding the target circle on the gray dot until it vanishes.
@@ -75,8 +81,9 @@ thumbnail: https://thmb.techidaily.com/802eeff691c55a6d5d09cbae446dc45a39ed24ae9
 * Tap on "Done" when completed.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Some Beneficial Tips for shooting vertical panorama photo
 
 * Firstly, we would suggest you using a tripod when you need to take **vertical panorama on iPhone** or Android smoothly i.e. to avoid shakiness.
@@ -87,8 +94,9 @@ thumbnail: https://thmb.techidaily.com/802eeff691c55a6d5d09cbae446dc45a39ed24ae9
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -112,4 +120,18 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-excellent-envoys-top-laptops-to-edit-videos-in-4k/"><u>[New] 2024 Approved Excellent Envoys Top Laptops to Edit Videos in 4K</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-prime-interactive-face-time-festivals/"><u>[New] 2024 Approved Prime Interactive Face Time Festivals</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-finding-your-perfect-match-high-quality-lipo-units-for-drones/"><u>[Updated] 2024 Approved Finding Your Perfect Match High-Quality LiPo Units for Drones</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-fish-out-the-frame-underwater-shooting-secrets-with-a-gopro/"><u>[Updated] 2024 Approved Fish Out the Frame Underwater Shooting Secrets with a GoPro</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-optimize-collaborative-sessions-zooming-in-on-google-meet-participants/"><u>[Updated] 2024 Approved Optimize Collaborative Sessions Zooming in on Google Meet Participants</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-jokesterjigsaw-toolkit/"><u>2024 Approved JokesterJigsaw Toolkit</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-fix-auto-lock-greyed-out-on-iphone-14-pro-by-drfone-ios/"><u>How To Fix Auto Lock Greyed Out on iPhone 14 Pro</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-comprehensive-guide-to-advanced-screen-capture-via-adobe-captive/"><u>In 2024, Comprehensive Guide to Advanced Screen Capture via Adobe Captive</u></a></li>
+<li><a href="https://techidaily.com/remove-the-lock-of-motorola-moto-g-stylus-2023-by-drfone-android-unlock-android-unlock/"><u>Remove the lock of Motorola Moto G Stylus (2023)</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlocking-iphone-se-2022-lock-screen-3-foolproof-methods-that-actually-work-drfone-by-drfone-ios/"><u>Unlocking iPhone SE (2022) Lock Screen 3 Foolproof Methods that Actually Work | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Samsung Galaxy A24 | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Unboxing the Power of YI's High Definition Cam"
-date: 2024-08-28T11:58:06.342Z
-updated: 2024-08-29T11:58:06.342Z
+date: 2024-12-07T16:18:31.139Z
+updated: 2024-12-12T23:09:12.375Z
 tags: 
   - screen-recording
   - ai video
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/6889b29c9a1ca37c06d96850359e16ed975462ec1
 
 **You may also like:** [Top 15 Best Action Cameras >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Complete Review for Yi 4k Action Camera
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01FU9ZIMU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01FU9ZIMU&linkId=8ffea9b2da130000b205cf9367ce3ccf
@@ -40,6 +44,10 @@ thumbnail: https://thmb.techidaily.com/6889b29c9a1ca37c06d96850359e16ed975462ec1
  Let us start with the hardware part. Yi 4k looks almost same as that of GoPro device, even the waterproof case appears somewhat like GoPro product. Some resemblance is found in mobile applications as well as in mounting systems. The front side of Yi 4k is equipped with a lens and LED that provides current camera status indication. The 2.2 inch wide LCD screen is protected with Gorilla Glass whereas on top portion you will find holes for speaker and dual microphone. On the right side, a small flap is covering MicroUSB charging port and the left side is left bare.
 
 ![yi-4k-product](https://images.wondershare.com/filmora/article-images/yi-4k-product.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Specifications
 
@@ -74,6 +82,10 @@ thumbnail: https://thmb.techidaily.com/6889b29c9a1ca37c06d96850359e16ed975462ec1
  Want to know more about the best accessories for Xiaomi Yi 4K action camera? Check [Best Accessories for YI 4K Action Camera in 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![yi-4k-unboxing-](https://images.wondershare.com/filmora/article-images/yi-4k-unboxing-.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Features
 
@@ -131,6 +143,10 @@ thumbnail: https://thmb.techidaily.com/6889b29c9a1ca37c06d96850359e16ed975462ec1
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -154,8 +170,24 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-exploring-syma-x8c-battery-life/"><u>[New] 2024 Approved Exploring Syma X8C Battery Life</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-breaking-down-facebooks-latest-developments-for-2024/"><u>[New] Breaking Down Facebook's Latest Developments for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-igtv-unveiled-5-essential-downloads-for-mobile-devices/"><u>[New] In 2024, IGTV Unveiled 5 Essential Downloads for Mobile Devices</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-mastering-vlc-key-mac-functions-explained/"><u>[New] In 2024, Mastering VLC Key Mac Functions Explained</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-premier-listing-top-5-free-vector-graphics-online-hubs/"><u>[New] In 2024, Premier Listing Top 5 FREE Vector Graphics Online Hubs</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-optimizing-viewers-engagement-through-youtube-music-use-in-videos/"><u>[New] Optimizing Viewers' Engagement Through YouTube Music Use in Videos</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-pinterest-avatar-recording-resolution-frame-rate-length/"><u>[New] Pinterest Avatar Recording Resolution, Frame Rate, Length</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-choosing-the-right-gimbal-for-flawless-youtube-footage-for-2024/"><u>[Updated] Choosing the Right Gimbal for Flawless YouTube Footage for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-from-zero-to-hero-profit-on-reddit-with-no-experience-top-13-for-2024/"><u>[Updated] From Zero to Hero Profit on Reddit with No Experience (Top 13) for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-advanced-palette-tweaks-by-professionals/"><u>[Updated] In 2024, Advanced Palette Tweaks by Professionals</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-leading-edge-speech-to-text-programs/"><u>[Updated] Leading Edge Speech-to-Text Programs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-premiered-screen-selections-for-ps5-aficionados/"><u>[Updated] Premiered Screen Selections for PS5 Aficionados</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-smooth-transition-optimal-8-sub-to-srt-modules/"><u>2024 Approved Smooth Transition Optimal 8 Sub to SRT Modules</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpt-synergy-powering-googles-productivity-pages/"><u>ChatGPT Synergy: Powering Google's Productivity Pages</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-asus-rog-phone-7-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Asus ROG Phone 7 Android SIM Unlock APK</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-turbocharge-touch-ups-learn-speedy-skills-for-win10-photos-editing/"><u>In 2024, Turbocharge Touch-Ups Learn Speedy Skills for WIN10 Photos Editing</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-nokia-xr21-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Nokia XR21 Phone Network-Ready</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->

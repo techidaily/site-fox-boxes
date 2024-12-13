@@ -1,7 +1,7 @@
 ---
 title: "[New] Audio Storytelling in Media Production Masterclass"
-date: 2024-12-05T00:29:47.619Z
-updated: 2024-12-07T04:16:41.012Z
+date: 2024-12-10T18:17:12.969Z
+updated: 2024-12-12T22:07:41.555Z
 tags: 
   - screen-recording
   - ai video
@@ -30,7 +30,7 @@ I'll be demonstrating how to add voiceovers and narrations in [Filmora](https://
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Voiceover or Narration?
@@ -53,10 +53,6 @@ But here's the good news: the way you add either option is the same in Filmora.
 
 ![add either option](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to add narration
 
 So the easiest way to add narration is directly to a project. The benefit of this is that you can record your narration inside Filmora while you watch the preview of your edited video.
@@ -64,7 +60,7 @@ So the easiest way to add narration is directly to a project. The benefit of thi
 ![add narration to project](https://images.wondershare.com/filmora/guide/stt-tts-srt-09.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 A good example of this would be narrating a story on top of some still images and video clips from a recent vacation. (In most cases you would want to turn off the sound of the video clip, or at least use ducking to help the viewer focus on the narration.)
@@ -73,15 +69,15 @@ You put the playhead where you want to start recording and hit the microphone ic
 
 ![hit microphone icon](https://images.wondershare.com/filmora/guide/stt-tts-srt-08.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 A 3-second countdown will pop up and start recording immediately after this countdown.
 
 You can record your narration and click stop.
 
 After recording, you can trim and edit your narration, you can delete it and record it again, and can move it and edit it like any other feature.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Some Tips for Recording Narration
 
@@ -108,10 +104,14 @@ When adding voiceover or narration to your project, be sure to use a good USB mi
 ![use good microphone](https://images.wondershare.com/filmora/article-images/2022/11/use-good-microphone.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Should you use narration in your next project?
 
@@ -151,17 +151,20 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-precision-and-performance-in-the-dell-p2715q-monitor-analysis/"><u>[New] 2024 Approved Precision and Performance in the Dell P2715Q Monitor Analysis</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-capturing-content-with-confidence-winning-strategies-for-igtv-acquisition-for-2024/"><u>[New] Capturing Content with Confidence Winning Strategies for IGTV Acquisition for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-7-best-budget-friendly-dvd-players-for-computers-for-2024/"><u>[Updated] 7 Best Budget-Friendly DVD Players for Computers for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-exploring-the-best-of-gopro-cameras-side-by-side-for-2024/"><u>[Updated] Exploring the Best of GoPro Cameras Side by Side for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-expert-tips-for-utilizing-snapchat-highlights-effectively/"><u>[Updated] In 2024, Expert Tips for Utilizing Snapchat Highlights Effectively</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-selecting-a-prime-livestream-service-top-10-essentials/"><u>[Updated] Selecting a Prime Livestream Service Top 10 Essentials</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-state-of-the-art-gaming-capture-systems-not-just-fbx-files-for-2024/"><u>[Updated] State-of-the-Art Gaming Capture Systems, Not Just FBX Files for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-transform-and-edit-videos-like-a-pro-with-these-iphonepc-tools/"><u>2024 Approved Transform and Edit Videos Like a Pro With These iPhone/PC Tools</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/did-your-apple-iphone-xs-max-passcode-change-itself-unlock-it-now-drfone-by-drfone-ios/"><u>Did Your Apple iPhone XS Max Passcode Change Itself? Unlock It Now | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/exploring-asus-rog-tuf-gaming-vs-proart-and-prime-systems/"><u>Exploring Asus ROG, TUF Gaming Vs. ProArt & Prime Systems</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/from-undiscovered-to-famous-the-seo-playbook-for-your-podcast/"><u>From Undiscovered to Famous The SEO Playbook for Your Podcast</u></a></li>
-<li><a href="https://techtrends.techidaily.com/tips-and-tricks-keeping-your-mac-awake-for-longer-periods-of-time/"><u>Tips and Tricks: Keeping Your Mac Awake for Longer Periods of Time</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-easy-peasy-hdr-a-step-by-step-review/"><u>[New] In 2024, Easy-Peasy HDR A Step-by-Step Review</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-unique-visuals-foreground-only-background-out/"><u>[New] In 2024, Unique Visuals Foreground Only, Background Out</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-mp3-recording-guide-exclusive-to-free-skype-calls-for-2024/"><u>[New] MP3 Recording Guide Exclusive to Free Skype Calls for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-in-depth-exploration-of-final-cut-pros-powerful-tools-and-features/"><u>[Updated] 2024 Approved In-Depth Exploration of Final Cut Pro’s Powerful Tools and Features</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-followers-and-posts-10-instagram-essentials-to-watch-for-2024/"><u>[Updated] Followers & Posts 10 Instagram Essentials to Watch for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-extract-thumbnails-from-youtube-on-windowsmac-and-browsers/"><u>[Updated] In 2024, How to Extract Thumbnails From Youtube on Windows/Mac and Browsers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-perfecting-video-segmentation-for-enhanced-viewing-experience-on-youtube-for-2024/"><u>[Updated] Perfecting Video Segmentation for Enhanced Viewing Experience on YouTube for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/best-top-15-tools-for-converting-youtube-videos-into-mp3-format/"><u>Best Top 15 Tools for Converting YouTube Videos Into MP3 Format</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-t-view-hevc-h-265-content-on-sony-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Can’t view HEVC H.265 content on Sony </u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Tecno Phantom V Flip? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-exploring-iphones-hdr-features-for-professional-photography/"><u>In 2024, Exploring iPhone's HDR Features for Professional Photography</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-unraveling-the-mysteries-of-smooth-audioshifts/"><u>In 2024, Unraveling the Mysteries of Smooth Audioshifts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/innovation-at-the-heart-the-evolution-of-magix-music-maker-for-2024/"><u>Innovation at the Heart The Evolution of Magix Music Maker for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/perfecting-snaps-a-guide-to-optimal-video-and-image-zoom-for-2024/"><u>Perfecting Snaps A Guide to Optimal Video and Image Zoom for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Leveraging Alternative Footage in Filmmaking for 2024"
-date: 2024-11-29T18:09:00.014Z
-updated: 2024-12-07T00:49:33.312Z
+date: 2024-12-09T05:07:56.561Z
+updated: 2024-12-12T18:24:06.314Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ Now that we know that, let's dive in!
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. B roll In TV And Movies
@@ -40,6 +40,10 @@ B roll has been used from the first silent movies, including D.W. Griffith's 191
 B roll can be utilized for establishing shots as well as close-ups of items. It is used by filmmakers when they lack the funds for pricey films or when they want to showcase their originality. It's also a fantastic method for narrating stories devoid of conversation. It might be anything, such a view of a landscape or a person's hands holding up a sign with words on it.
 
 For instance, wider shots are frequently used when someone is giving a speech while seated behind a podium so that we can see both them and their surroundings, such as audience members standing close and applauding or security personnel.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Methods to use b roll
 
@@ -57,16 +61,12 @@ We'll examine the top 5 uses for B rolls across a variety of video genres and di
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Visual detail b roll footage
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Storytelling b roll footage
@@ -84,7 +84,7 @@ When you are sharing a narrative that has been told in the past or that has hist
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. Pick-up shots
@@ -94,7 +94,7 @@ A pick-up is a tiny shot added to previously captured material. Re-shoots involv
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7\. A roll vs b roll
@@ -135,18 +135,22 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-exquisite-android-3d-media-experience/"><u>[New] Exquisite Android 3D Media Experience</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-filmora-edits-explained-addressing-common-concerns-and-questions/"><u>[New] Filmora Edits Explained Addressing Common Concerns and Questions</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-growing-engagement-ethically-youtube-success-stories/"><u>[New] In 2024, Growing Engagement Ethically YouTube Success Stories</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-the-collective-evaluation-of-vllo/"><u>[New] In 2024, The Collective Evaluation of VLLO</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-discovering-xs-the-ultimate-100-i-action-movie-maker/"><u>[Updated] Discovering XS The Ultimate 100 I Action Movie Maker</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-is-there-a-perfect-fps-for-everyone-comparing-30-and-60/"><u>[Updated] In 2024, Is There a 'Perfect' FPS for Everyone? Comparing 30 and 60</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-professional-stabilizers-roundup-securing-smooth-cinematography/"><u>[Updated] In 2024, Professional Stabilizers Roundup Securing Smooth Cinematography</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-leading-sites-for-extracting-text-aesthetics-packs/"><u>[Updated] Leading Sites for Extracting Text Aesthetics Packs</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-master-class-on-smudge-techniques-in-images/"><u>2024 Approved Master Class on Smudge Techniques in Images</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/5-ways-change-your-home-address-in-googleapple-map-on-apple-iphone-xipad-drfone-by-drfone-virtual-ios/"><u>5 Ways Change Your Home Address in Google/Apple Map on Apple iPhone X/iPad | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/6-best-youtube-to-mp3-downloader-for-android/"><u>FREE 6 Best YouTube to MP3 Downloader for Android</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-you-cast-your-apple-iphone-11-pro-to-windows-pc-with-ease-drfone-by-drfone-ios/"><u>In 2024, How Can You Cast Your Apple iPhone 11 Pro to Windows PC With Ease? | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-unlock-faster-youtube-submission-via-smart-rendering-and-uploading/"><u>In 2024, Unlock Faster YouTube Submission via Smart Rendering & Uploading</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-innovative-question-collection-for-lively-podcast-discussions/"><u>[New] 2024 Approved Innovative Question Collection for Lively Podcast Discussions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-premier-software-for-cutting-gopro-videos/"><u>[New] Premier Software for Cutting GoPro Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-essential-photographers-toolkit-polarr-edition-for-2024/"><u>[New] The Essential Photographer's Toolkit - Polarr Edition for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-ultimate-recorder-options-for-livestreaming-on-youtube/"><u>[New] Ultimate Recorder Options for Livestreaming on YouTube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-elevate-your-visual-content-mastery-of-image-backdrop-removal-in-canva/"><u>[Updated] In 2024, Elevate Your Visual Content Mastery of Image Backdrop Removal in Canva</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-micro-post-your-next-audio-adventure/"><u>[Updated] Micro-Post Your Next Audio Adventure</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/1-navigating-crypto-taxation-a-step-by-step-guide-by-yl-computings-expert-team/"><u>1. Navigating Crypto Taxation: A Step-by-Step Guide by YL Computing's Expert Team</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-telegram-the-ultimate-step-by-step-guide/"><u>2024 Approved Mastering Telegram The Ultimate Step-By-Step Guide</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/celebrate-labor-day-with-a-bright-idea-customizable-govee-lights-now-at-a-sizzling-discount-zdnets-inside-look/"><u>Celebrate Labor Day with a Bright Idea: Customizable Govee Lights Now at a Sizzling Discount! ZDNET’s Inside Look</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/fresh-take-on-the-enhanced-sony-s6500-media-device/"><u>Fresh Take on the Enhanced Sony S6500 Media Device</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-accelerate-your-retro-play-with-best-ps2-android-emulators/"><u>In 2024, Accelerate Your Retro Play with Best Ps2 Android Emulators</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-the-pinnacle-of-bike-gaming-adventures/"><u>In 2024, The Pinnacle of Bike Gaming Adventures</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-windows-hdplus-guide-to-streaming-and-manipulating-hdr-videos/"><u>In 2024, Windows HD+ Guide to Streaming and Manipulating HDR Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-mastery-revel-in-advanced-functionality/"><u>Mondly Mastery: Revel In Advanced Functionality</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/speaking-through-screens-effective-communication-on-youtube/"><u>Speaking Through Screens Effective Communication on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/egies-for-optimal-featured-channels-in-youtubes-algorithm/"><u>Strategies for Optimal Featured Channels in YouTube's Algorithm</u></a></li>
+<li><a href="https://techtrends.techidaily.com/streamlining-your-studies-with-these-9-essential-technology-items/"><u>Streamlining Your Studies with These 9 Essential Technology Items</u></a></li>
 </ul></div>
 
