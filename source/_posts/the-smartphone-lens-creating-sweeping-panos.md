@@ -1,7 +1,7 @@
 ---
 title: "\"The Smartphone Lens  Creating Sweeping Panos\""
-date: 2024-08-28T11:51:18.293Z
-updated: 2024-08-29T11:51:18.293Z
+date: 2024-12-14T18:58:27.533Z
+updated: 2024-12-22T05:51:48.482Z
 tags: 
   - screen-recording
   - ai video
@@ -34,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/f7921a39c56c18854a738fb18f72fdf7d073d9479
 
  However, you will need to use a few but simple techniques to efficiently capture the vertical panoramic view. In this article, we’ll explain you how you can carry out those extraordinary views with your Android or iOS device.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to take vertical panorama photography with your respective Smartphone
 
 * [Part 1: For iPhone Users](#part1)
@@ -48,14 +52,15 @@ thumbnail: https://thmb.techidaily.com/f7921a39c56c18854a738fb18f72fdf7d073d9479
 
 ![](https://images.wondershare.com/filmora/article-images/iphone-panorama-mode.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image source: mac-fusion
 
 * Begin to go along with the upward arrow on the screen to capture the desired vertorama.
 * Once finished and satisfied, just tap on "Done" option.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ### For Android users
 
  To capture vertical panorama on Android, the steps are given just below.
@@ -66,8 +71,9 @@ thumbnail: https://thmb.techidaily.com/f7921a39c56c18854a738fb18f72fdf7d073d9479
 ![](https://images.wondershare.com/filmora/article-images/vertical-panorama-android.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Image source: mac-fusion
 
 * To shoot picture, keep holding the target circle on the gray dot until it vanishes.
@@ -75,8 +81,9 @@ thumbnail: https://thmb.techidaily.com/f7921a39c56c18854a738fb18f72fdf7d073d9479
 * Tap on "Done" when completed.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Some Beneficial Tips for shooting vertical panorama photo
 
 * Firstly, we would suggest you using a tripod when you need to take **vertical panorama on iPhone** or Android smoothly i.e. to avoid shakiness.
@@ -87,8 +94,9 @@ thumbnail: https://thmb.techidaily.com/f7921a39c56c18854a738fb18f72fdf7d073d9479
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -112,4 +120,22 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-from-gifs-to-stickers-full-guide-for-social-channels/"><u>[New] 2024 Approved From GIFs to Stickers Full Guide for Social Channels</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-deciphering-slug-lines-in-scriptwriting-for-2024/"><u>[New] Deciphering Slug Lines in Scriptwriting for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-breaking-down-the-mechanics-of-meme-dominance-for-2024/"><u>[Updated] Breaking Down the Mechanics of Meme Dominance for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-discover-the-best-8-innovative-5k-panels-for-2024/"><u>[Updated] Discover the Best 8 Innovative 5K Panels for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-enthralling-audienrances-the-most-captivating-6-videos/"><u>[Updated] Enthralling Audienrances The Most Captivating 6 Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-crafting-stories-excellence-among-8-film-categories/"><u>[Updated] In 2024, Crafting Stories Excellence Among 8 Film Categories</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-must-see-upgrades-in-vr-armor-for-2024/"><u>[Updated] Must-See Upgrades in VR Armor for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-step-by-step-inserting-dates-in-digital-pictures/"><u>[Updated] Step-by-Step Inserting Dates in Digital Pictures</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-ultimate-guide-to-designing-captivating-podcast-logos-for-2024/"><u>[Updated] The Ultimate Guide to Designing Captivating Podcast Logos for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-innovative-ways-to-boost-your-snapchat-engagement/"><u>2024 Approved Innovative Ways to Boost Your Snapchat Engagement</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-navigating-the-world-of-spotifys-advertising-landscape/"><u>2024 Approved Navigating the World of Spotify's Advertising Landscape</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-oppo-reno-11f-5g-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Oppo Reno 11F 5G Phone without Google Account?</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/iphoneandroid-screen-capture-for-google-meet-participants/"><u>IPhone/Android Screen Capture for Google Meet Participants</u></a></li>
+<li><a href="https://driver-install.techidaily.com/seamless-tp-link-wireless-driver-for-windows-users/"><u>Seamless TP Link Wireless Driver for Windows Users</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/understanding-the-reset-this-pc-feature-in-windows-11-optimal-times-and-methods/"><u>Understanding the Reset This PC Feature in Windows 11: Optimal Times and Methods</u></a></li>
+</ul></div>
 

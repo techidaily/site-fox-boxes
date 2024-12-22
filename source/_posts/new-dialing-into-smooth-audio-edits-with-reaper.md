@@ -1,7 +1,7 @@
 ---
 title: "[New] Dialing Into Smooth Audio Edits with Reaper"
-date: 2024-12-11T21:36:05.478Z
-updated: 2024-12-12T20:57:43.917Z
+date: 2024-12-21T05:33:49.115Z
+updated: 2024-12-22T10:14:34.083Z
 tags: 
   - screen-recording
   - ai video
@@ -37,15 +37,15 @@ Your audio files should be imported into two new stereo Audio Tracks that you cr
 
 ![create two tracks logic prox](https://images.wondershare.com/filmora/article-images/2022/07/create-two-tracks-logic-prox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step2 Connect Two Audio Regions
 
 On the grid, place two audio areas next to one another. Crossfading may be used with two entirely different audio regions or a duplication of a single audio region.
 
 ![connect two audio regions prox](https://images.wondershare.com/filmora/article-images/2022/07/connect-two-audio-regions-prox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Step3 Choose the Fade Tool
 
@@ -60,10 +60,6 @@ Although it works as intended, moving the volume fader on one of the channel str
 **New > Horizontal 4; Fader**
 
 ![create crossfade logic prox](https://images.wondershare.com/filmora/article-images/2022/07/create-crossfade-logic-prox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 You now have total discretion over the fader's look. Changing it afterwards is always an option; just choose the appropriate Style in the Inspector.
 
@@ -83,6 +79,10 @@ Due to the likelihood that you have previously downloaded and installed the prog
 
 ![launch filmora and add files](https://images.wondershare.com/filmora/guide/get-started-with-filmora-03.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Additionally, the software may import several file types. Then, these files may be modified utilizing functions like smooth-fading and synchronization.
 
 ##### Step2 Split the audio track to Fade
@@ -96,7 +96,7 @@ In the next step, the two icons will appear above the audio file after you've ch
 ![fade the tracks](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Click and drag the other icon in Filmora to the required length to complete the fade-out. Playing the file inside the timeline of the Filmora preview layout will allow you to hear the soundtrack.
@@ -107,21 +107,17 @@ Start saving your faded file to your PC in the proper location and format by dow
 
 ## Part 3\. Related FAQs of Crossfading
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. What does crossfading mean?
 
 Your audio, or any particular portion of your audio, may have a variety of transitions thanks to the crossfades tool. It's crucial to make a crossfade at the border where the edit takes place while editing. Right side fades in, left side fades out, and the fades cross at the location of the edit. If the cross fade isn't accomplished, it's probable that there may be an audible click or pop.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. How do I add crossfade?
 
 to make the second clip's audio fade up as the first clip's audio fades down. Audio from both clips is audible during the crossfade. Move the mouse toward the bottom of the track, near to a region border. The pointer will transform into a crossfade-like symbol. A crossfade will emerge, centered on the border, when you click and move the pointer to the left or the right. Cross dissolves, a kind of video transition, are comparable to crossfades.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. How do you crossfade MIDI logic?
 
@@ -135,6 +131,10 @@ Due to the likelihood that you have previously downloaded and installed the prog
 
 ![launch filmora and add files](https://images.wondershare.com/filmora/guide/get-started-with-filmora-03.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Additionally, the software may import several file types. Then, these files may be modified utilizing functions like smooth-fading and synchronization.
 
 ##### Step2 Split the audio track to Fade
@@ -155,13 +155,13 @@ Start saving your faded file to your PC in the proper location and format by dow
 
 ## Part 3\. Related FAQs of Crossfading
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. What does crossfading mean?
 
 Your audio, or any particular portion of your audio, may have a variety of transitions thanks to the crossfades tool. It's crucial to make a crossfade at the border where the edit takes place while editing. Right side fades in, left side fades out, and the fades cross at the location of the edit. If the cross fade isn't accomplished, it's probable that there may be an audible click or pop.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. How do I add crossfade?
 
@@ -195,19 +195,18 @@ Unlike audio fades, MIDI fades are not implemented in the same manner. One metho
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-synthesize-silliness-in-visual-gifs-with-giphy/"><u>[New] In 2024, Synthesize Silliness in Visual Gifs with Giphy</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-thorough-examination-straightforward-dynamic-range-methods/"><u>[New] In 2024, Thorough Examination Straightforward Dynamic Range Methods</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-opening-markets-masterful-strategy-plots-for-2024/"><u>[New] Opening Markets Masterful Strategy Plots for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-top-10-video-making-apps-iphone-android-edition/"><u>[New] Top 10 Video-Making Apps IPhone, Android Edition</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-vivid-visual-victory-professional-image-coloration/"><u>[Updated] 2024 Approved Vivid Visual Victory Professional Image Coloration</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-capture-and-share-top-no-cost-screen-recorders-for-windowsmac-users-for-2024/"><u>[Updated] Capture and Share - Top No-Cost Screen Recorders for Windows/Mac Users for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-stealthy-photo-editing-with-picsart/"><u>[Updated] In 2024, Stealthy Photo Editing with Picsart</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-solitary-producers-guide-to-viral-audio-success/"><u>[Updated] In 2024, The Solitary Producer's Guide to Viral Audio Success</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-the-ultimate-guide-to-speaking-and-visualizing-in-powerpoint/"><u>[Updated] In 2024, The Ultimate Guide to Speaking & Visualizing in PowerPoint</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/beat-the-competition-with-an-rtx-4060-enabled-msi-bravo-laptop-priced-below-1000/"><u>Beat the Competition with an RTX 4060-Enabled MSI Bravo Laptop - Priced Below $1,000</u></a></li>
-<li><a href="https://blog-min.techidaily.com/discover-the-best-16-destinations-for-finding-top-trending-viral-meme-content-online/"><u>Discover the Best 16 Destinations for Finding Top-Trending, Viral Meme Content Online</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Apple iPhone 11 | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Oppo A79 5G? | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/wmvmov2/"><u>WMVファイルをMOVに容易に変換する方法：スッキリ2つ</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-visual-perfection-through-quantum-hdr-techniques/"><u>[New] 2024 Approved Visual Perfection Through Quantum HDR Techniques</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-shorts-shown-no-more-hidden-videos/"><u>[New] In 2024, Shorts Shown – No More Hidden Videos</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-chucklechisel-app/"><u>[Updated] ChuckleChisel App</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-from-device-footage-to-youtube-shorts-your-streamlined-approach/"><u>[Updated] In 2024, From Device Footage to YouTube Shorts - Your Streamlined Approach</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-master-iphones-multi-tasked-capture-feature/"><u>[Updated] Master iPhone's Multi-Tasked Capture Feature</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-ultimate-5-iphone-x87-photoshoot-background-swappers-for-2024/"><u>[Updated] Ultimate 5 iPhone X/8/7 Photoshoot Background Swappers for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-mastering-stunning-photographic-mosaics/"><u>2024 Approved Mastering Stunning Photographic Mosaics</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-any-nokia-130-music-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Nokia 130 Music Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-samsung-galaxy-s24plus-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Samsung Galaxy S24+</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/perfecting-your-purses-expertise-in-haul-videography/"><u>Perfecting Your Purses Expertise in Haul Videography</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/step-by-step-guide-retrieving-your-xbox-cs-lost-game-saves-after-hdd-formatting/"><u>Step-by-Step Guide: Retrieving Your Xbox C's Lost Game Saves After HDD Formatting</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-the-best-of-the-best-top-avchd-video-editing-software/"><u>Updated 2024 Approved The Best of the Best Top AVCHD Video Editing Software</u></a></li>
 </ul></div>
 

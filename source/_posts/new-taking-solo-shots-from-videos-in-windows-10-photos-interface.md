@@ -1,7 +1,7 @@
 ---
 title: "[New] Taking Solo Shots From Videos in Windows 10 Photos Interface"
-date: 2024-12-10T18:27:16.419Z
-updated: 2024-12-13T01:40:25.892Z
+date: 2024-12-20T03:06:51.970Z
+updated: 2024-12-22T00:42:01.805Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,10 @@ In this article, you will learn how to save photo from Windows 10 Photos app and
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to save photo from Windows 10 Photos app
 
 In this part of the article, we are going to discuss, how you would save photo from video with Windows 10 Photos app. The Photos app has numerous features for you, and the editing tools would simply amaze you. You can use the Windows Ink to write on the images or capture stills from a video for that matter. Let’s see, how to save photo from video using Windows 10 Photos app –
@@ -53,7 +57,7 @@ Creating a living image:
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Now, you can see the living picture by tapping ‘Play’ button.
@@ -65,11 +69,11 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
 
-* This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+* This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
 ## Part 2: Why I can’t save photo from video
 
@@ -77,21 +81,17 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 
 We are explaining the solutions here –
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
 
@@ -108,15 +108,15 @@ Here comes the guide –
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -143,17 +143,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-direct-download-vs-alternative-store-instagram-reels-efficiently/"><u>[New] Direct Download vs Alternative Store Instagram Reels Efficiently</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-the-professionals-way-of-removing-backgrounds-for-2024/"><u>[New] The Professional's Way of Removing Backgrounds for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-navigating-skies-drone-shooting-basics/"><u>[Updated] In 2024, Navigating Skies Drone Shooting Basics</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-navigating-audacity-for-top-notch-audio-recording/"><u>[Updated] Navigating Audacity for Top-Notch Audio Recording</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Lava Blaze 2 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/guide-hd-movie-downloads-on-your-iphone-xs-xs-max-and-xr-get-them-for-free/"><u>Guide: HD Movie Downloads on Your iPhone XS, XS Max & XR - Get Them for Free</u></a></li>
-<li><a href="https://change-location.techidaily.com/honor-magic-vs-2-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Honor Magic Vs 2 Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-itel-p55t-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Itel P55T Phones? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-music-on-redmi-12-by-fonelab-android-recover-music/"><u>How to restore wiped music on Redmi 12</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-oneplus-ace-2-pro-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock OnePlus Ace 2 Pro Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/powerful-wireless-experience-comprehensive-review-of-the-netgear-nighthawk-x1-8ad7200-router/"><u>Powerful Wireless Experience: Comprehensive Review of the Netgear Nighthawk X1 8AD7200 Router</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/ultimate-guide-superior-ios-melody-creators/"><u>Ultimate Guide Superior iOS Melody Creators</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-the-ultimate-screen-recorder-showdown-testing-recmeister/"><u>[New] In 2024, The Ultimate Screen Recorder Showdown Testing Recmeister</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-innovations-in-mobile-photography-a-look-at-iphone-x/"><u>[New] Innovations in Mobile Photography A Look at iPhone X</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-instagram-to-tik-tok-integration-strategy-for-2024/"><u>[New] Instagram to Tik Tok Integration Strategy for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-which-cameras-rule-the-field-gopro-hero-vs-sony-x1000v-clashes/"><u>[New] Which Cameras Rule the Field? GoPro Hero Vs. Sony X1000V Clashes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-2022s-speed-demon-olympic-crossers-greatest-hits/"><u>[Updated] 2024 Approved 2022'S Speed Demon Olympic Crossers' Greatest Hits</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-2024-approved-safeguard-creativity-validating-content-for-tiktok-posting/"><u>[Updated] 2024 Approved Safeguard Creativity Validating Content for TikTok Posting</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-ultimate-acceleration-manual-boosting-fb-video-speed-with-top-tools/"><u>[Updated] 2024 Approved Ultimate Acceleration Manual Boosting FB Video Speed with Top Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-exclusive-secrets-for-windows-11-mastery/"><u>[Updated] Exclusive Secrets for Windows 11 Mastery</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-photoshop-shake-reduction-is-it-really-useful/"><u>[Updated] In 2024, Photoshop Shake Reduction - Is It Really Useful?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-step-by-step-process-for-free-youtube-introend-making/"><u>[Updated] Step-by-Step Process for Free YouTube Intro/End Making</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-financials-of-boosting-your-youtube-videos/"><u>[Updated] The Financials of Boosting Your YouTube Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-ultimate-audio-experience-budget-friendly-asmr-mics-reviewed-for-2024/"><u>[Updated] Ultimate Audio Experience Budget-Friendly ASMR Mics Reviewed for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ing-youtube-music-experiences-for-2024/"><u>Curating YouTube Music Experiences for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-12-pro-to-the-previous-ios-system-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone 12 Pro to the Previous iOS System Version? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-exploring-auto-and-smart-hdr-advances-in-camera-technology/"><u>In 2024, Exploring Auto and Smart HDR Advances in Camera Technology</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Samsung Galaxy S23 FE | Dr.fone</u></a></li>
+<li><a href="https://win-forum.techidaily.com/mastering-the-art-of-social-media-presence-insights-from-facebook-twitter-instagram-and-youtube/"><u>Mastering the Art of Social Media Presence: Insights From Facebook, Twitter, Instagram, and YouTube</u></a></li>
+<li><a href="https://win-trending.techidaily.com/navigating-uncertainty-how-to-assess-and-mitigate-risk-in-crypto-asset-investments-insights-from-yl-software/"><u>Navigating Uncertainty: How to Assess and Mitigate Risk in Crypto Asset Investments – Insights From YL Software</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-insights-the-definitive-guide-to-cutting-edge-gadgets-and-systems/"><u>Tom's Tech Insights: The Definitive Guide to Cutting-Edge Gadgets and Systems</u></a></li>
 </ul></div>
 

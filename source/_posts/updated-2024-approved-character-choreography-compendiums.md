@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Character Choreography Compendiums\""
-date: 2024-11-29T23:35:20.697Z
-updated: 2024-12-07T01:27:40.372Z
+date: 2024-12-15T23:27:58.417Z
+updated: 2024-12-22T11:14:41.490Z
 tags: 
   - screen-recording
   - ai video
@@ -34,7 +34,7 @@ Glitch text effect is a trendy effect that gets the viewers’ attention immedia
 ![glitch text effect toolkit ae](https://images.wondershare.com/filmora/article-images/2022/07/glitch-text-effect-toolkit-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Liquid Text Animation
@@ -44,7 +44,7 @@ You get 110 animated elements that you can apply to the text in your video. The 
 ![liquid text animation effect ae](https://images.wondershare.com/filmora/article-images/2022/07/liquid-text-animation-effect-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Dynamic Text Animations
@@ -59,6 +59,10 @@ If you want to add texts and titles in your video that looks like the games mean
 
 ![squash stretch preset ae](https://images.wondershare.com/filmora/article-images/2022/07/squash-stretch-preset-ae.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. CounterPro Preset
 
 In this pack, you will find unique text effects, and you can animate text with keyframe. You can animate numbers as well as characters, and it is mostly used to animate numbers to show counting. You can change different parameters of the animations and effects as per your preference. Furthermore, you can use it as a timer on your video to countdown. There are different styles available to apply to your texts and numbers.
@@ -72,10 +76,6 @@ If there is a must-have preset you should manage to have in After Effects is Tex
 ![text library effect ae](https://images.wondershare.com/filmora/article-images/2022/07/text-library-effect-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
 <iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
@@ -86,7 +86,7 @@ Kinetic text effect is a part of dynamic text effects and there is a high demand
 ![kinetic text aniamtion ae](https://images.wondershare.com/filmora/article-images/2022/07/kinetic-text-aniamtion-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. Text Animation Lower Third
@@ -96,7 +96,7 @@ You get eleven styles of elements in the pack, and you can customize the designs
 ![text animation lower thirds ae](https://images.wondershare.com/filmora/article-images/2022/07/text-animation-lower-thirds-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Bottom Line
@@ -133,18 +133,21 @@ As the saying goes, the more the merrier and the more presets you have, the more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-exclusive-free-photo-upscaler-for-modern-devices/"><u>[New] 2024 Approved Exclusive Free Photo Upscaler for Modern Devices</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-cross-platform-comparison-iphone-vs-android-youtube-viewing/"><u>[New] Cross-Platform Comparison IPhone vs Android YouTube Viewing</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-dirt-cheap-chinese-vr-headset-guide/"><u>[New] Dirt Cheap Chinese VR Headset Guide</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-easy-steps-to-modify-your-game-voice-in-free-fire-free-methods-available/"><u>[New] Easy Steps to Modify Your Game Voice in Free Fire (Free Methods Available)</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-call-recorder-iphone-captures-all-calls/"><u>[New] In 2024, Call Recorder IPhone Captures All Calls</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-professional-approaches-for-logging-youtube-streams/"><u>[New] In 2024, Professional Approaches for Logging YouTube Streams</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-launching-laughs-a-beginners-blueprint-for-memes-on-9gag/"><u>[New] Launching Laughs A Beginner's Blueprint for Memes on 9GAG</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-step-by-step-pubg-vocal-changes-made-easy/"><u>[New] Step-by-Step PUBG Vocal Changes Made Easy</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-mastering-the-nuances-of-high-resolution-vr-recordings-for-2024/"><u>[Updated] Mastering the Nuances of High-Resolution VR Recordings for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-step-by-step-process-youtube-vids-converted-to-mp3-for-2024/"><u>[Updated] Step-by-Step Process YouTube Vids, Converted to MP3 for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Vivo Y200e 5G | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-icloud-lock-on-your-apple-iphone-7-and-ipad-by-drfone-ios/"><u>In 2024, How to Unlock iCloud lock on your Apple iPhone 7 and iPad?</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-locate-and-watch-vintage-facebook-moments/"><u>In 2024, Locate and Watch Vintage Facebook Moments</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-ultimate-guide-how-to-download-podcasts-on-iphone/"><u>[New] In 2024, Ultimate Guide How to Download Podcasts on iPhone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-no-glue-methods-for-spotless-video-creations-on-tiktok/"><u>[New] No-Glue Methods for Spotless Video Creations on TikTok</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-photo-wordsmithing-ios-and-androids-leading-caption-tools/"><u>[New] Photo Wordsmithing IOS and Android's Leading Caption Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-stealthy-photo-editing-with-picsart-for-2024/"><u>[New] Stealthy Photo Editing with Picsart for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nleash-creativity-crafting-your-own-youtube-shorts-thumbnails-for-2024/"><u>[New] Unleash Creativity Crafting Your Own YouTube Shorts Thumbnails for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unleashing-imagination-creating-motion-pictures-with-windows-movie-maker-for-2024/"><u>[New] Unleashing Imagination Creating Motion Pictures with Windows Movie Maker for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-bring-a-smile-simple-meme-creation-with-kapwing/"><u>[Updated] 2024 Approved Bring a Smile Simple Meme Creation With Kapwing</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-inshot-tips-achieving-seamless-video-segmentation/"><u>[Updated] 2024 Approved Inshot Tips Achieving Seamless Video Segmentation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-ultimate-camera-test-hero5-meets-sjcam/"><u>[Updated] Ultimate Camera Test Hero5 Meets SJCAM</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-unexpected-10-best-kept-facebook-memes/"><u>2024 Approved Unexpected 10 Best-Kept Facebook Memes</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-unleash-potential-on-reddit-essential-post-guidelines-reviewed/"><u>2024 Approved Unleash Potential on Reddit Essential Post Guidelines Reviewed</u></a></li>
+<li><a href="https://discover-community.techidaily.com/discover-your-current-driver-version-a-comprehensive-guide-yl-software-solutions/"><u>Discover Your Current Driver Version: A Comprehensive Guide - YL Software Solutions</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-xiaomi-mix-fold-3-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Xiaomi Mix Fold 3 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-realme-gt-5-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Realme GT 5 Phone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mastering-the-art-of-pairing-bose-soundlink-wireless-earbuds-and-headphones/"><u>Mastering the Art of Pairing Bose Soundlink Wireless Earbuds and Headphones</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-verdict-on-hitman-3s-epic-endgame/"><u>Unveiling the Verdict on Hitman 3'S Epic Endgame</u></a></li>
 </ul></div>
 

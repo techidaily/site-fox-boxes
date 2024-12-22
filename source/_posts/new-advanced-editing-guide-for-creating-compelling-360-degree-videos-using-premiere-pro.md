@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Advanced Editing Guide for Creating Compelling 360-Degree Videos Using Premiere Pro\""
-date: 2024-08-28T11:51:37.288Z
-updated: 2024-08-29T11:51:37.288Z
+date: 2024-12-20T18:52:11.131Z
+updated: 2024-12-21T20:01:01.951Z
 tags: 
   - screen-recording
   - ai video
@@ -42,6 +42,10 @@ thumbnail: https://thmb.techidaily.com/1d1233e027868c7eb597be592cc478aeb7aba77b4
 
 ![Edit 360 videos with Premiere Pro - Settings](https://images.wondershare.com/filmora/article-images/360-editing-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Premiere Pro allows you to view any video by double clicking on the video in the project panel. Be default, the equirectanglular video clips will appear on the preview panel, but they will be distorted. To change how the videos appear on the preview panel, it is imperative to adjust the settings. This is done by clicking on the wrench icon located at the bottom right of window then navigating to VR Video>Settings. This will pull up the menu to let you adjust the various settings you need to proceed with the editing.
 
 #### 3. Set the Preview Window to VR Mode
@@ -63,13 +67,29 @@ thumbnail: https://thmb.techidaily.com/1d1233e027868c7eb597be592cc478aeb7aba77b4
 
 ![Edit 360 videos with Premiere Pro - Export VR footage]( https://images.wondershare.com/filmora/article-images/export-vr-footage.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  A while back, exporting VR footages to YouTube was possible only through third party applications. But now, such capabilities have been included in Adobe Premiere Pro and you can now apply all the Meta data directly inside the application. To export your edited footage, navigate to File>Export>Media or simply hit Command + M to pop up the export window. Select your desired codecs and navigate to the video tab and ensure that you have selected the VR Video Checkbox.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Best Video Editor: [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -94,8 +114,18 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-diving-into-magix-photo-editor-analysis/"><u>[New] 2024 Approved Diving Into MAGIX Photo Editor Analysis</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-beyond-entertainment-vrs-utility/"><u>[New] Beyond Entertainment VR's Utility</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-digital-nightmare-drawer/"><u>[Updated] 2024 Approved Digital Nightmare Drawer</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-leading-srs-tuning-methods-for-macwin-users/"><u>[Updated] Leading SRS Tuning Methods for Mac/Win Users</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-playchoice-pondering-over-dacast/"><u>[Updated] PlayChoice Pondering Over DaCast</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-essential-imovie-techniques-to-upgrade-your-youtube-content/"><u>2024 Approved Essential iMovie Techniques to Upgrade Your YouTube Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-mastering-video-introduction-on-ios-and-android-devices/"><u>2024 Approved Mastering Video Introduction on iOS & Android Devices</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-how-to-bypass-realme-narzo-60-5g-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Realme Narzo 60 5G FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Vivo Y27s? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/shaping-new-normals-innovative-brands-and-youtube-partnerships-for-2024/"><u>Shaping New Normals Innovative Brands and YouTube Partnerships for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/top-tips-for-embedding-and-posting-correct-subtitles-on-twitter-instagram/"><u>Top Tips for Embedding and Posting Correct Subtitles on Twitter, Instagram</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->

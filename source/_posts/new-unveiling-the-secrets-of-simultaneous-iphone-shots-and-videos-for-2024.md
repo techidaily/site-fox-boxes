@@ -1,7 +1,7 @@
 ---
 title: "[New] Unveiling the Secrets of Simultaneous iPhone Shots & Videos for 2024"
-date: 2024-12-04T04:05:10.965Z
-updated: 2024-12-06T23:42:43.001Z
+date: 2024-12-21T07:31:18.596Z
+updated: 2024-12-21T22:41:43.742Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/4d13682289fd093707f3e488098e8b68b405e6325
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to shoot a still photo and record a video simultaneously on your iPhone
 
  The feature of simultaneous photo and video recording had begun since the coming of iPhone 5\. So, iPhone 5 and later model users can enjoy taking photos while recording videos while if we talk about other iOS devices, iPad makes this feature available with its fourth generation as well as iPod touch sixth generation started supporting the feature of capturing stills when recording videos.
@@ -45,16 +49,12 @@ thumbnail: https://thmb.techidaily.com/4d13682289fd093707f3e488098e8b68b405e6325
 
 ![](https://images.wondershare.com/filmora/article-images/take-photo-while-recording-videos-iphone.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Image resource: igeeksblog.com
 
 * Now, to take a still, just tap on the white 'take picture' button that can be noticed at the left of the red button. The screen will flicker each time you press the button to take the photo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### The drawbacks of taking photos and videos simultaneously
@@ -73,12 +73,16 @@ thumbnail: https://thmb.techidaily.com/4d13682289fd093707f3e488098e8b68b405e6325
 | **iPhone 7 series**  | 4032 × 3024               | 3412 × 1920                                  | 3840 × 2160                               | 1280 × 720                                    |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Extract frames from video
 
  If you are one of those who wish to **take photos while recording videos** without compromising the quality, we are glad to inform you that there is a solution for this. You can easily extract a specific frame from the recorded video keeping the standard resolution quality via Wondershare Filmora and will never be bothered about missing anything interesting from the video.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Why Choose Wondershare Filmora?
 
@@ -90,14 +94,10 @@ thumbnail: https://thmb.techidaily.com/4d13682289fd093707f3e488098e8b68b405e6325
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -125,24 +125,21 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-navigating-the-world-of-file-conversion-in-vlc-starting-with-mp4/"><u>[New] 2024 Approved Navigating the World of File Conversion in VLC, Starting with MP4</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-picture-power-infusing-textual-elements-on-windows-and-mac-photo-canvas/"><u>[New] 2024 Approved Picture Power Infusing Textual Elements on Windows & Mac Photo Canvas</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-illustration-revolution-adding-depth-to-text-with-3d/"><u>[New] In 2024, Illustration Revolution Adding Depth to Text with 3D</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-image-weaving-the-art-of-photomontages/"><u>[New] In 2024, Image Weaving The Art of Photomontages</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-the-harmony-of-collaboration-brands-and-youtube-unite/"><u>[Updated] 2024 Approved The Harmony of Collaboration Brands & YouTube Unite</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-top-ten-mobile-sticker-adornment-apps-for-photos/"><u>[Updated] 2024 Approved Top Ten Mobile Sticker Adornment Apps for Photos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-basic-principles-of-story-artistry/"><u>[Updated] Basic Principles of Story Artistry</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-insiders-guide-to-pro-windows-10-expertise/"><u>[Updated] In 2024, Insider's Guide to Pro WINDOWS 10 Expertise</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-masterclass-setting-up-windows-movie-maker-60/"><u>[Updated] In 2024, Masterclass Setting Up Windows Movie Maker 6.0</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-ultimate-photography-journey-with-vsco-editing-tool/"><u>[Updated] In 2024, Ultimate Photography Journey with VSCO Editing Tool</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-the-essential-compendium-of-affordable-rich-graphics-resources-online-for-2024/"><u>[Updated] The Essential Compendium of Affordable, Rich Graphics Resources Online for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-crafting-perfection-ios-and-androids-best-montage-aides/"><u>2024 Approved Crafting Perfection IOS & Android's Best Montage Aides</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/explorando-el-formato-png-todo-lo-que-debes-saber-sobre-estos-archivos-comunes-en-internet/"><u>Explorando El Formato PNG: Todo Lo Que Debes Saber Sobre Estos Archivos Comunes en Internet</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-evaluating-superiority-gopros-max-and-hero-11-face-off/"><u>In 2024, Evaluating Superiority GoPro's Max and Hero 11 Face-Off</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Realme 11 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-top-10-tv-streaming-platforms-in-depth-comparisons/"><u>In 2024, Top 10 TV Streaming Platforms In-Depth Comparisons</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-motorola-moto-g73-5g-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Motorola Moto G73 5G to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/syncopating-soundtracks-with-flawless-audio-transitions/"><u>Syncopating Soundtracks with Flawless Audio Transitions</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-itel-a05s-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Itel A05s | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/avigating-the-maze-of-youtube-endorsements-with-a-famebit-perspective-for-2024/"><u>[New] Navigating the Maze of YouTube Endorsements with a FameBit Perspective for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-optimal-online-stream-setup-the-vlc-methodology/"><u>[New] Optimal Online Stream Setup The VLC Methodology</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-a-curated-compilation-of-online-videoaudio-magicians/"><u>[Updated] A Curated Compilation of Online Video/Audio Magicians</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-exclusive-discoveries-prime-websites-and-methods-to-download-tamil-ringtone-files/"><u>[Updated] Exclusive Discoveries Prime Websites & Methods to Download Tamil Ringtone Files</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-nextgen-video-upscaler-mobiledesktop-edition/"><u>[Updated] In 2024, NextGen Video Upscaler Mobile/Desktop Edition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-ultimate-guide-to-superior-sound-on-cams/"><u>[Updated] Ultimate Guide to Superior Sound on Cams</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-navigating-the-secrets-of-funimate-download/"><u>2024 Approved Navigating the Secrets of Funimate Download</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/elevate-visibility-mastering-youtube-success-tracks-for-2024/"><u>Elevate Visibility Mastering YouTube Success Tracks for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/engaging-cycles-perfecting-the-instagram-loop-craft-for-2024/"><u>Engaging Cycles Perfecting the Instagram Loop Craft for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/essential-steps-for-effective-online-engagement-for-2024/"><u>Essential Steps for Effective Online Engagement for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fix-your-astros-a10-microphone-issues-solutions-guide/"><u>Fix Your Astros A10 Microphone Issues - Solutions Guide</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-x100-pro-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Vivo X100 Pro Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Asus ROG Phone 7 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languages-meet-pop-culture-understand-ks/"><u>Languages Meet Pop Culture: Understand KS</u></a></li>
+<li><a href="https://win-exclusive.techidaily.com/scambiare-il-profilo-di-windows-10-su-windows-11-in-due-modi-facili-e-veloci/"><u>Scambiare Il Profilo Di Windows 10 Su Windows 11 in Due Modi Facili E Veloci</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-xiaomi-14-ultra-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Xiaomi 14 Ultra Phone</u></a></li>
 </ul></div>
 

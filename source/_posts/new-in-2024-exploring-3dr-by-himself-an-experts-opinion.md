@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Exploring '3DR' By Himself – An Expert's Opinion"
-date: 2024-08-28T11:49:48.758Z
-updated: 2024-08-29T11:49:48.758Z
+date: 2024-12-17T08:55:22.546Z
+updated: 2024-12-21T20:52:05.356Z
 tags: 
   - screen-recording
   - ai video
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/333b95c20ee75bfb354881848c952d7c6576f1601
 
  The 3DR solo is one of the best examples of the excellent industrial product; it can record footage with amazing results in the air. It possesses so many simple yet powerful controls and users whether they are [professionals](https://tools.techidaily.com/wondershare/filmora/download/) or [beginners](https://tools.techidaily.com/wondershare/filmora/download/) can take full advantage of its incredible features. 3DR solo is one of the best product for [cinematographers](https://tools.techidaily.com/wondershare/filmora/download/) as it can work on aerial shoot with breathtaking clarity.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Pros and Cons of 3DR Solo
 
 **Pros:**
@@ -48,6 +52,10 @@ thumbnail: https://thmb.techidaily.com/333b95c20ee75bfb354881848c952d7c6576f1601
 
  The 3DR solo drone is designed to serve with amazing aerial photography functions that is why it is one of the most preferred drones by cinematographers. One can easily connect it with GoPro cameras to get stunning shots on height. But the downside is its short battery life and weak GPS.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Complete Review
 
 #### 1\. Basic Specs Info
@@ -67,6 +75,10 @@ thumbnail: https://thmb.techidaily.com/333b95c20ee75bfb354881848c952d7c6576f1601
 
 ![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Check at Amazon](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=5a8069fda1f7be3bf48e831452f3ee9d)
 
  People call 3DR Solo one of the most impressive drone with minimal complexities in design. It is the best product for cinematographic needs and you could easily imagine it hovering on the top to capture scenes for Hollywood movies. You will find a 5200mAh battery on top portion of this drone, located near power button. It appears little heavier with the gimbal, camera and battery installation, the overall weight goes up to 3.35 pounds. Note that, you need to get your drone registered with FAA to organise its flights because the weight goes above 0.5 pounds limit. You will find indicating LEDs on this device that keep on indicating full status during its flights and they can be observed in day light too. Users need to connect this device with a smartphone or iOS device to avail full control as well as to get live preview of shoots.
@@ -83,6 +95,10 @@ thumbnail: https://thmb.techidaily.com/333b95c20ee75bfb354881848c952d7c6576f1601
 
 ![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The 3DR solo controller appears trendy with just two joysticks that offer direct control to acceleration, yaw, pitch and roll. The fly button can be accessed for initiated automated landing and takeoff. A tiny screen is provided to display continuous information about battery condition and telemetry data. One additional knob is available for adjustments of camera angle controls. Other then this you will find one customizable button to activate autonomous flight mode. It also provides one pause button that helps users to make their drone stable in air. All other controls can be managed from application.
 
 #### 6\. Camera
@@ -96,6 +112,10 @@ thumbnail: https://thmb.techidaily.com/333b95c20ee75bfb354881848c952d7c6576f1601
 **You may also like:** [10 Must Have drone accessories and parts](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -120,8 +140,24 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-how-to-create-a-live-stream-online-for-2024/"><u>[New] How to Create a Live Stream Online for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-are-reviews-on-goods-and-services-for-cash/"><u>[New] In 2024, Are Reviews on Goods & Services for Cash?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-top-10plus-online-photo-background-changers-to-remove-background-easily/"><u>[New] Top 10+ Online Photo Background Changers to Remove Background Easily</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2023-guide-to-affordable-laptop-dvd-players-for-2024/"><u>[Updated] 2023 Guide to Affordable Laptop DVD Players for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-drifting-visions-slick-cam-insights/"><u>[Updated] 2024 Approved Drifting Visions Slick Cam Insights</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elite-8-digital-stars-on-the-rise/"><u>[Updated] 2024 Approved Elite 8 Digital Stars on the Rise</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-how-to-banish-spotifys-recommended-podcasts-for-2024/"><u>[Updated] How to Banish Spotify's Recommended Podcasts for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-unleash-your-adventure-with-panasonics-cutting-edge-hx-a1-cam-for-2024/"><u>[Updated] Unleash Your Adventure with Panasonic's Cutting-Edge HX-A1 Cam for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-virtual-world-laughter-excavating-the-best-metaverse-jokes-for-2024/"><u>[Updated] Virtual World Laughter Excavating the Best Metaverse Jokes for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mpegmp4-movaviamv/"><u>「Mpegからmp4へ無料変換! Movaviが提供するオンラインAMV変換サービスをご利用ください」</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-top-5-online-youtube-mp3-converters-free-and-easy/"><u>2024 Approved Top 5 Online YouTube-MP3 Converters, Free and Easy</u></a></li>
+<li><a href="https://app-tips.techidaily.com/best-strategies-to-resolve-android-whatsapp-backup-issues-top-5-tips/"><u>Best Strategies to Resolve Android WhatsApp Backup Issues: Top 5 Tips</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-xiaomi-redmi-k70-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Xiaomi Redmi K70 to Roku | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solving-moving-sound-issues-in-airpods-disable-the-feature-of-head-motion-detection/"><u>Solving Moving Sound Issues in AirPods - Disable the Feature of Head Motion Detection</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-oppo-find-x6-pro-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Oppo Find X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-pathway-best-7-platforms-turning-art-into-nfts-for-2024/"><u>The Ultimate Pathway Best 7 Platforms Turning Art Into NFTs for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unlock-new-possibilities-with-macos-15s-latest-update-top-features-revealed/"><u>Unlock New Possibilities with MacOS 15'S Latest Update – Top Features Revealed</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->

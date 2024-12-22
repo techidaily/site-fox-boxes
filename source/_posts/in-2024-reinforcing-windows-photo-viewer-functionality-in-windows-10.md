@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Reinforcing Windows Photo Viewer Functionality in Windows 10"
-date: 2024-12-11T04:01:45.183Z
-updated: 2024-12-13T01:05:15.170Z
+date: 2024-12-21T06:11:51.118Z
+updated: 2024-12-22T00:57:17.642Z
 tags: 
   - screen-recording
   - ai video
@@ -42,7 +42,7 @@ Stay tuned to learn more!
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Why you prefer Windows Photo Viewer
@@ -74,13 +74,13 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -97,7 +97,7 @@ Here is the detailed guide –
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
@@ -105,7 +105,7 @@ Here is the detailed guide –
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -114,11 +114,11 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -145,18 +145,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-easy-peasy-hdr-a-step-by-step-review/"><u>[New] 2024 Approved Easy-Peasy HDR A Step-by-Step Review</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-bedtime-videos-breakdown-stories-and-reviews/"><u>[New] In 2024, Bedtime Videos Breakdown Stories and Reviews</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-graph-gala-2017-an-illuminated-expedition-into-yt-data/"><u>[New] In 2024, Graph Gala 2017 An Illuminated Expedition Into YT Data</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-mastering-canva-imagery-top-10-pro-level-techniques/"><u>[New] In 2024, Mastering Canva Imagery Top 10 Pro-Level Techniques</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-reason-behind-photo-booth-video-stalls/"><u>[Updated] 2024 Approved Reason Behind Photo Booth Video Stalls</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-innovative-filters-to-make-your-tiktok-stand-out/"><u>[Updated] In 2024, Innovative Filters to Make Your TikTok Stand Out</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-enhancing-media-with-top-10-text-plugins/"><u>In 2024, Enhancing Media with Top 10 Text Plugins</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-a-realme-c55-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Realme C55 Phone that is Locked?</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-turbocharge-video-on-snapchat-new-users-edition/"><u>In 2024, Turbocharge Video on Snapchat New Users Edition</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/maximizing-call-recording-20plus-techniques-for-windowsmac-users-for-2024/"><u>Maximizing Call Recording 20+ Techniques for Windows/Mac Users for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/mov-playback-issues-on-xiaomi-redmi-12-5g-by-aiseesoft-video-converter-play-mov-on-android/"><u>MOV playback issues on Xiaomi Redmi 12 5G</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/ottimizzare-la-tua-fotografia-con-il-movavi-photo-editor-metodi-essenziali/"><u>Ottimizzare La Tua Fotografia Con Il Movavi Photo Editor: Metodi Essenziali</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/the-all-in-one-guide-to-using-the-powerful-samsung-galaxy-tab-s5e-with-android-os/"><u>The All-in-One Guide to Using the Powerful Samsung Galaxy Tab S5e with Android OS</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-best-color-correction-app-for-2024/"><u>[New] Best Color Correction App for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-evaluating-radiant-qualities-of-hd-lighting/"><u>[Updated] 2024 Approved Evaluating Radiant Qualities of HD Lighting</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-mememolding-cutter/"><u>[Updated] 2024 Approved MemeMolding Cutter</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-from-still-to-dynamic-the-xs-action-camera-unboxed-for-2024/"><u>[Updated] From Still to Dynamic The XS Action Camera Unboxed for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-earn-big-on-youtube-shorts-tips-for-profitable-content-creation/"><u>[Updated] In 2024, Earn Big on YouTube Shorts Tips for Profitable Content Creation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-foremost-selection-of-5-outstanding-slow-motion-cameras-for-2024/"><u>[Updated] The Foremost Selection of 5 Outstanding Slow-Motion Cameras for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-visual-virtuosos-guide-choosing-the-best-6-4k-cameras/"><u>2024 Approved Visual Virtuosos Guide Choosing the Best 6 4K Cameras</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/access-top-tier-no-cost-dj-tools-with-pcdj-downloads-today/"><u>Access Top-Tier, NO COST DJ Tools with PCDJ Downloads Today!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/vating-content-with-a-click-phones-and-youtube-for-2024/"><u>Captivating Content with a Click Phones & YouTube for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/effortless-transformation-of-records-unveiling-the-at-lp120xusb-turntable/"><u>Effortless Transformation of Records: Unveiling the AT-LP120XUSB Turntable</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/highest-rated-mobile-video-enhancers-for-gopro-footage/"><u>Highest-Rated Mobile Video Enhancers for GoPro Footage</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-capturing-your-device-a-comprehensive-screen-recording-guide/"><u>In 2024, Capturing Your Device A Comprehensive Screen Recording Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/real-time-media-magic-the-pmix-vs-wirecast-faceoff-for-2024/"><u>Real-Time Media Magic The PMix Vs. Wirecast Faceoff for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/symphonic-stats-adding-melodies-to-whatsapp/"><u>Symphonic Stats Adding Melodies to WhatsApp</u></a></li>
 </ul></div>
 

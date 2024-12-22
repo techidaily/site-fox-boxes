@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Videography  6 Tips for Making Macro Video\""
-date: 2024-08-28T11:50:56.808Z
-updated: 2024-08-29T11:50:56.808Z
+date: 2024-12-20T18:20:12.551Z
+updated: 2024-12-22T01:00:22.301Z
 tags: 
   - screen-recording
   - ai video
@@ -70,6 +70,10 @@ The background of your macro video always remains blurred as you shoot it closel
 
 ![background](https://images.wondershare.com/filmora/article-images/separate-the-foreground-from-background.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4\. DSLR Cameras
 
 For capturing the macro video, you can consider digital SLR camera. The macro lens of the digital SLR camera is a great option for capturing.
@@ -79,6 +83,10 @@ If you are a Canon user, you may opt for the 180 mm macro, 100 mm macro or the 6
 You may also add an extension tube which basically splits the focal distance in two equal halves and make the image size bigger but it decreases the depth of the field.
 
 ![dslr camera](https://images.wondershare.com/filmora/article-images/dslr-camera-full-rig.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 5\. Depth of Field
 
@@ -90,6 +98,10 @@ But, you must remember that when the opening of the lens is small, the light req
 
 ![depth of field](https://images.wondershare.com/filmora/article-images/depth-of-field.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\. Composition
 
 When you have low lights, ensuring a correct perspective on the subject with maximum focus area is quite difficult. You must have the right composition for your macro video.
@@ -98,11 +110,19 @@ For instance, in order to keep a snail always in focus, you may choose to shoot 
 
 ![composition](https://images.wondershare.com/filmora/article-images/composition.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Once you can master the above tips for making the macro video, you can easily shoot small objects like a pro. A videographer’s experience and creativity can be matched even by you if you can easily grasp the techniques, practice it, and implement creatively while making your macro videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -127,17 +147,20 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-first-steps-in-gamified-editing-software-selection/"><u>[New] First Steps in Gamified Editing Software Selection</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-subtitled-success-the-top-8-software-that-swiftly-converts-sub-to-srt-on-pcmacosx/"><u>[New] In 2024, Subtitled Success! The Top 8 Software That Swiftly Converts SUB to SRT on PC/MacOSX</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-the-abcd-of-effective-copy-in-facebook-campaigns/"><u>[New] In 2024, The ABCD of Effective Copy in Facebook Campaigns</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-photo-perfection-instructions-for-text-overlay-on-windowsmacos/"><u>[New] Photo Perfection Instructions for Text Overlay on Windows/MacOS</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-effective-methods-for-downloading-audio-tracks-from-pinterest-videos-for-2024/"><u>[Updated] Effective Methods for Downloading Audio Tracks From Pinterest Videos for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-using-inshot-for-laptoppc-and-other-video-editing-alternatives/"><u>[Updated] In 2024, Using Inshot for Laptop/PC and Other Video Editing Alternatives</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-leveraging-alternative-footage-in-filmmaking-for-2024/"><u>[Updated] Leveraging Alternative Footage in Filmmaking for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-vivo-v29-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Vivo V29 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-spoofing-life360-how-to-do-it-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Spoofing Life360 How to Do it on Honor 90 Lite? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-ultimate-tutorial-on-3d-lut-tools/"><u>In 2024, Ultimate Tutorial on 3D LUT Tools</u></a></li>
+<li><a href="https://fox-that.techidaily.com/iphoneipad-not-updating-overcome-with-these-9-effective-techniques/"><u>IPhone/iPad Not Updating? Overcome With These 9 Effective Techniques</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/the-updated-method-to-bypass-xiaomi-redmi-note-12-5g-frp-by-drfone-android/"><u>The Updated Method to Bypass Xiaomi Redmi Note 12 5G FRP</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/transform-your-game-design-with-these-techniques-using-chatgpt-as-a-scriptwriter/"><u>Transform Your Game Design with These Techniques Using ChatGPT as a Scriptwriter</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
