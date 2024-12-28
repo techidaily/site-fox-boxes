@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Capture Heights with DJI Spark  The Small Drone Selfie Powerhouse\""
-date: 2024-08-23T08:07:35.789Z
-updated: 2024-08-24T08:07:35.789Z
+date: 2024-12-21T16:53:58.231Z
+updated: 2024-12-27T17:48:53.813Z
 tags: 
   - screen-recording
   - ai video
@@ -46,6 +46,10 @@ Have you gone through DJI Spark videos on YouTube? They are spreading like a vir
 
 ![dji spark box](https://images.wondershare.com/filmora/article-images/dji-spark-box.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ###### #2\. Aircraft size
 
  The overall dimensions of this compact drone are 143x143x55 mm whereas weight goes only up to 300 grams.
@@ -70,6 +74,10 @@ Have you gone through DJI Spark videos on YouTube? They are spreading like a vir
 
 ![dji spark 3d system](https://images.wondershare.com/filmora/article-images/dji-spark-3d-system.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Spark is perfect combination of technologies that makes its flights more stunning. It is equipped with 3D sensing system, high precision type inertial measurement mechanism, dual band GPS, Vision Positioning System, 24 powerful core for enhanced computing and many more. Spark use to follow its owner in air, and it's incredibly advanced design technology let it behave like an intelligent unit. It understands your gestures and move accordingly. The most impressive one is that when you outstretch your palm, it comes down and sits on your palm. That's really amazing.
 
 ###### #2\. Control Mode
@@ -81,6 +89,10 @@ Have you gone through DJI Spark videos on YouTube? They are spreading like a vir
  In this mode, you don't need phone or controller to control the drone, it can take off and land in your hand, keep following you when you waving your palm in front of its camera. You make a rectangle in air using your fingers and your intelligent drone will capture a selfie for you. But note that, this feature works only up to 3 meters distance.
 
 ![gesture mode](https://images.wondershare.com/filmora/article-images/gesture-mode.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * By App on Smartphone
 
@@ -98,6 +110,10 @@ Have you gone through DJI Spark videos on YouTube? They are spreading like a vir
 
 ![spark remote comtroller](https://images.wondershare.com/filmora/article-images/spark-remote-comtroller.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Under this mode, the Spark's flight potential will be totally liberated. After connecting the remote controller, the WIFI technology allows for 720p real-time video transmission from up to 2 km away, and the flight speed can reach up to 50km/h. What's more, you can pick up the latest [DJI Goggles](https://tools.techidaily.com/wondershare/filmora/download/) to see a different world.
 
 ###### #2\. Camera
@@ -109,6 +125,10 @@ Have you gone through DJI Spark videos on YouTube? They are spreading like a vir
  DJI Spark took the ease-of-use to the extreme compared with its other drones like Mavic or other brands like GoPro Karma. Combined with so many cool technologies, at just $500, DJI Spark should be listed in the must-buy products for droners.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -133,8 +153,26 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/-step-by-step-guide-for-earning-with-youtube-shorts-for-2024/"><u>[New] A Step-by-Step Guide for Earning with YouTube Shorts for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-best-video-player-apps-for-windows-phone/"><u>2024 Approved Best Video Player Apps for Windows Phone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-cinematic-hope-the-top-10-inspirational-films/"><u>2024 Approved Cinematic Hope The Top 10 Inspirational Films</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-monumental-movies-and-more-a-comprehensive-look-at-the-lg-31mu97-b-model/"><u>2024 Approved Monumental Movies and More A Comprehensive Look at the LG 31MU97-B Model</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-premiere-pros-shadowy-showdown/"><u>2024 Approved Premiere Pro's Shadowy Showdown</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-top-7-streaming-tools-for-mac-enthusiasts/"><u>2024 Approved Top 7 Streaming Tools for Mac Enthusiasts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/cinematographic-savoir-faire-food-videographers-essentials/"><u>Cinematographic Savoir-Faire Food Videographer's Essentials</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/conquer-broadcasting-unite-obs-and-streamlabs-for-mac/"><u>Conquer Broadcasting Unite OBS & Streamlabs for Mac</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/creative-conceptions-selecting-the-finest-10-free-macdrawers-for-2024/"><u>Creative Conceptions Selecting the Finest 10 FREE MacDrawers for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/digital-frontiers-how-vr-transforms-leisure-for-2024/"><u>Digital Frontiers How VR Transforms Leisure for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/easy-fixes-to-stop-bloodhunt-from-crashing-or-stuttering-on-your-computer/"><u>Easy Fixes to Stop Bloodhunt From Crashing or Stuttering on Your Computer</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How can I get more stardust in pokemon go On Apple iPhone 11 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-motorola-moto-g24-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Motorola Moto G24 by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-nokia-c210-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Nokia C210 ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-apps-and-online-tools-to-track-lava-blaze-2-5g-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Lava Blaze 2 5G Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-unlocking-iphone-14-lock-screen-3-foolproof-methods-that-actually-work-by-drfone-ios/"><u>In 2024, Unlocking iPhone 14 Lock Screen 3 Foolproof Methods that Actually Work</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/precision-in-volume-decrease-lumafusions-methodology-for-2024/"><u>Precision in Volume Decrease Lumafusion's Methodology for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-diagnosing-the-phantom-sounds-headphones-hooked-up-with-spillage-to-speakers/"><u>Troubleshooting Guide: Diagnosing the Phantom Sounds – Headphones Hooked Up with Spillage to Speakers</u></a></li>
+<li><a href="https://windows11.techidaily.com/troubleshooting-the-stalled-windows-system-insight/"><u>Troubleshooting the Stalled Windows System Insight</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->

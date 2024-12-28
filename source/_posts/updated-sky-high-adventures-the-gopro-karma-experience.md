@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Sky-High Adventures  The GoPro Karma Experience\""
-date: 2024-08-28T11:45:45.486Z
-updated: 2024-08-29T11:45:45.486Z
+date: 2024-12-27T00:20:52.466Z
+updated: 2024-12-27T16:23:58.154Z
 tags: 
   - screen-recording
   - ai video
@@ -36,6 +36,10 @@ thumbnail: https://thmb.techidaily.com/43dc38eef47f27063f0ee863ee1d82afec1855627
 
  Apart from the battery latch, GoPro introduced auxiliary features such as a tilted horizon line for improved imaging as well as quieter propellers. The rerelease of the Karma drone is a much more polished product that is more suitable for reviewing as well as improved for general use. But does the Karma drone matchup with major contenders in the marketplace such as the Parrot or the DJI phantom line?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Pros and cons of GoPro Karma
 
 **Pros**
@@ -50,6 +54,10 @@ thumbnail: https://thmb.techidaily.com/43dc38eef47f27063f0ee863ee1d82afec1855627
 **Verdict**
 
  The overall verdict is that this is a fantastic drone for capturing stunning images but it doesn't have the easy flying mode or the battery life to compete with some of the best drones available at the same price point. Although you might have to sacrifice a bit in image quality when compared to a GoPro camera with some competitors, it's often worth it for value knowing that you can capture the shot and maintain control over your drone.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Detailed review for GoPro Karma
 
@@ -87,6 +95,10 @@ thumbnail: https://thmb.techidaily.com/43dc38eef47f27063f0ee863ee1d82afec1855627
 
 ![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  One thing that the GoPro Karma did especially well was creating a beautiful controller. The RC controller is relatively small but it feels exactly like playing a videogame with plenty of functions and no need to have a compatible device to use the drone. The other extremely strong point is the camera. Nobody can build a great outdoor camera that is it as resilient as a GoPro with the Hero 5 Black version of this drone capable of shooting in 4K with an astounding video quality, you can catch some amazing video as well as incredible still images on this drone.
 
 #### Conclusion
@@ -94,6 +106,10 @@ thumbnail: https://thmb.techidaily.com/43dc38eef47f27063f0ee863ee1d82afec1855627
 Overall, the GoPro Karma is a fairly strong showing for a drone. Although it can be expensive when compared to the specifications on some of the other drones, if you do have some experience flying drones and you are looking for a great image quality, this could be the choice for you especially if you are looking for a portable drone.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -118,8 +134,21 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-dial-down-blur-top-10-web-tools-for-pristine-photos/"><u>[New] 2024 Approved Dial Down Blur Top 10 Web Tools for Pristine Photos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-quick-guide-to-influential-instagram-hashtags-for-2024/"><u>[New] Quick Guide to Influential #Instagram Hashtags for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-secrets-unveiled-complete-guide-to-live-tv-recording-via-windows-pcs/"><u>[New] Secrets Unveiled Complete Guide to Live TV Recording via Windows PCs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-speeding-up-projects-without-compromising-quality-for-2024/"><u>[New] Speeding Up Projects Without Compromising Quality for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-expert-tips-for-effortless-access-to-youtube-comments/"><u>[Updated] In 2024, Expert Tips for Effortless Access to YouTube Comments</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-master-the-spectrum-advanced-hdr-tips-for-lightroom-pro/"><u>2024 Approved Master the Spectrum Advanced HDR Tips for Lightroom Pro</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/akers-pathway-to-anime-subscription-buttons-in-filmora-for-2024/"><u>Filmmaker’s Pathway to Anime Subscription Buttons in Filmora for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-acclaimed-melody-hub-for-android-devices/"><u>In 2024, Acclaimed Melody Hub for Android Devices</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-tecno-spark-20-proplus-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Tecno Spark 20 Pro+ Is Unlocked</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-top-5-motorola-edge-40-pro-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Motorola Edge 40 Pro Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Infinix Note 30 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/rethinking-streaming-new-platforms-challenge-obs-for-2024/"><u>Rethinking Streaming New Platforms Challenge OBS for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-rated-ultraportable-notebooks-in-depth-analysis-by-tech-experts-zdnet/"><u>Top-Rated Ultraportable Notebooks : In-Depth Analysis by Tech Experts | ZDNet</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-steps-for-fixing-wmvcoredll-absence-errors-effectively/"><u>Troubleshooting Steps for Fixing Wmvcore.dll Absence Errors Effectively</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->

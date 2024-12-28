@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Effective Methods for Stable Windows 11 Photos Viewing"
-date: 2024-12-17T16:02:27.235Z
-updated: 2024-12-21T18:42:50.401Z
+date: 2024-12-21T19:26:34.681Z
+updated: 2024-12-27T22:15:53.651Z
 tags: 
   - screen-recording
   - ai video
@@ -46,10 +46,14 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to fix Windows 10 Photos app crashes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Solution 1: Use the Troubleshooter
 
@@ -65,6 +69,10 @@ Here is how to troubleshoot –
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Solution 2: Restore Default Libraries
 
 Restoring the default libraries would resolve the Windows 10 Photos App crash issues. Resetting the Photo App to its default source to a valid network, path fixes the case.
@@ -77,10 +85,6 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 3: Reset it
 
@@ -104,7 +108,7 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 4. Now, the Windows 10 Photos App won’t crash.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 5: Reinstall Windows 10 Photos app
@@ -124,14 +128,10 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -159,24 +159,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-best-free-youtube-video-editing-apps-for-iphone-and-ipad-and-how-tos/"><u>[New] 2024 Approved Best Free YouTube Video Editing Apps for iPhone & iPad & How-Tos</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-immerse-in-windows-11s-photo-quality-filter-options-and-music-playlists/"><u>[New] Immerse in Windows 11'S Photo Quality Filter Options and Music Playlists</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-a-compilation-of-best-video-chatting-applications-mobilepluspc/"><u>[New] In 2024, A Compilation of Best Video Chatting Applications (Mobile+PC)</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-exploring-the-dynamics-of-fb-video-speeds/"><u>[New] In 2024, Exploring the Dynamics of FB Video Speeds</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-uncovering-if-vlogger-critiques-are-paid/"><u>[New] Uncovering If Vlogger Critiques Are Paid</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-photo-editing-mastery-with-polarr-a-comprehensive-guide-for-2024/"><u>[Updated] Photo Editing Mastery with Polarr A Comprehensive Guide for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-top-10-action-cameras-for-surfing-2023-update/"><u>[Updated] Top 10 Action Cameras for Surfing -2023 Update</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-capturing-marine-magic-pro-tips-for-filming-oceanic-scenes-using-gopro/"><u>2024 Approved Capturing Marine Magic Pro Tips for Filming Oceanic Scenes Using GoPro</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-dodging-derailed-video-playback-at-your-photo-booth/"><u>2024 Approved Dodging Derailed Video Playback at Your Photo Booth</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-essential-8-srt-tools-for-streaming-media-files/"><u>2024 Approved Essential 8 SRT Tools for Streaming Media Files</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-the-experts-choice-top-10-streamer-pickers-guide/"><u>2024 Approved The Expert's Choice Top 10 Streamer Pickers Guide</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-convert-avchd-mts-to-mp4-for-huawei-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to convert AVCHD MTS to MP4 for Huawei ?</u></a></li>
-<li><a href="https://driver-install.techidaily.com/hp-deskjet-fixer-for-windows-11-glitches/"><u>HP Deskjet Fixer for Windows 11 Glitches</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-leading-10-models-premier-4k-dslr-shoulder-rigs/"><u>In 2024, Leading 10 Models Premier 4K DSLR Shoulder Rigs</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-nokia-xr21-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Nokia XR21 to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/solving-warzones-gpu-usage-issue-in-windows-11/"><u>Solving Warzone's GPU Usage Issue in Windows 11</u></a></li>
-<li><a href="https://common-error.techidaily.com/step-by-step-guide-resolving-the-8007000e-update-issue-on-your-pc/"><u>Step-by-Step Guide: Resolving the 8007000E Update Issue on Your PC</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-fixing-rainbow-six-sieges-voice-communication-issues-in-2n24/"><u>Troubleshooting Guide: Fixing Rainbow Six Siege's Voice Communication Issues in 2N24</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/unveil-the-power-leveraging-windows-11-and-zoom-maximum-for-2024/"><u>Unveil the Power Leveraging Windows 11 and Zoom Maximum for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-5-winter-youtube-background-ideas-to-warm-up-your-videos/"><u>[New] 2024 Approved 5 Winter YouTube Background Ideas to Warm Up Your Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-complete-action-camera-buying-guide-for-beginners-2023-update-for-2024/"><u>[New] Complete Action Camera Buying Guide For Beginners -2023 Update for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-focal-flares-amplifying-your-footage-visually/"><u>[New] Focal Flares Amplifying Your Footage Visually</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-crafting-authenticity-secrets-of-successful-video-endorsements/"><u>[Updated] Crafting Authenticity Secrets of Successful Video Endorsements</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-evaluating-mr-beasts-financial-heft/"><u>[Updated] Evaluating Mr. Beast's Financial Heft</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-superior-quality-drones-on-sale-for-2024/"><u>[Updated] Superior Quality Drones on Sale for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-essential-aspects-ignored-by-instagram-story-observers/"><u>In 2024, Essential Aspects Ignored by Instagram Story Observers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-unlocking-photo-magic-intro-to-snapseed-features/"><u>In 2024, Unlocking Photo Magic Intro to Snapseed Features</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-vivo-v30-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Vivo V30? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/joke-jingles-top-online-ringtone-sources/"><u>Joke Jingles Top Online Ringtone Sources</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/masterclass-in-3d-color-grading-with-custom-luts-for-2024/"><u>Masterclass in 3D Color Grading with Custom LUTs for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/no-hassle-just-happiness-effortless-video-edits-on-windows-10-for-2024/"><u>No Hassle, Just Happiness Effortless Video Edits on Windows 10 for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcoming-graphics-distortions-a-step-by-nstep-guide-to-fixing-warzone-issues/"><u>Overcoming Graphics Distortions: A Step-by-nStep Guide to Fixing Warzone Issues</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/screenmagic-pro-the-windows-10-companion-for-2024/"><u>ScreenMagic Pro The Windows 10 Companion for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-definitive-guide-to-choosing-a-first-mobile-device-spotlight-on-nokia-31/"><u>The Definitive Guide to Choosing a First Mobile Device - Spotlight on Nokia 3.1</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/transform-your-workspace-with-the-essential-16-port-dream-dock-a-must-have-for-all-creatives/"><u>Transform Your Workspace with The Essential 16-Port Dream Dock - A Must-Have for All Creatives</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Chasing Titles  Key Moments From 2022 Olympics Short Tracks\""
-date: 2024-12-15T08:45:12.857Z
-updated: 2024-12-22T09:34:15.281Z
+date: 2024-12-21T16:53:32.748Z
+updated: 2024-12-28T00:25:05.017Z
 tags: 
   - screen-recording
   - ai video
@@ -37,16 +37,12 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Russia’s Semen Elistratov wins the bronze medal.
@@ -61,12 +57,16 @@ Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian na
 
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
 
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
@@ -74,12 +74,16 @@ The last leg of competition among skaters before reaching the finishing line at 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -94,10 +98,6 @@ To create such a highlight video on any sports event, there are certain videos e
 **Motion Tracking** – Using motion tracking, you can track the movement of a particular object or athlete in a video. This helps to attach certain elements such as clipart, text, icon to that particular athlete throughout the video for easy identification by the viewers.
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -150,18 +150,20 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-step-by-step-guide-to-youtube-comms-management/"><u>[New] 2024 Approved A Step-by-Step Guide to YouTube Comms Management</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/onvert-and-edit-wonders-10-best-youtube-tools-feat-audio-for-2024/"><u>[New] Convert & Edit Wonders 10 Best YouTube Tools Feat. Audio for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-exploring-the-budget-needs-of-making-a-melody-on-screen/"><u>[New] Exploring the Budget Needs of Making a Melody on Screen</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-obs-studio-and-lut-application-guide-for-professional-cinematographers/"><u>[Updated] OBS Studio & LUT Application Guide for Professional Cinematographers</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-unified-brand-presence-across-digital-platforms-for-2024/"><u>[Updated] Unified Brand Presence Across Digital Platforms for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-voice-command-utilization-no-cost/"><u>2024 Approved Voice Command Utilization No Cost</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/apex-design-hub-audit-for-2024/"><u>Apex Design Hub Audit for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/complete-overview-how-to-navigate-telegram-web/"><u>Complete Overview How To Navigate Telegram Web</u></a></li>
-<li><a href="https://driver-install.techidaily.com/download-universal-adb-driver-easily/"><u>Download Universal ADB Driver Easily</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-4-ways-to-trace-samsung-galaxy-s24-ultra-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 4 Ways to Trace Samsung Galaxy S24 Ultra Location | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/noteworthy-14-innovative-text-movements/"><u>Noteworthy 14 Innovative Text Movements</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unveiling-the-mighty-portable-8-in-1-adapter-under-30-a-review/"><u>Unveiling the Mighty, Portable 8-in-1 Adapter Under $30 – A Review</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-nokia-c12-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Nokia C12? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-advanced-editor-techniques-from-the-experts-at-canva-for-2024/"><u>[New] Advanced Editor Techniques From the Experts at Canva for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-cropped-footage-queries-why-is-my-video-clipped/"><u>[New] Cropped Footage Queries Why Is My Video Clipped?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-elevating-your-drone-racing-game-and-discovering-elite-fpv-uavs/"><u>[New] Elevating Your Drone Racing Game & Discovering Elite FPV UAVs</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-the-roadmap-to-instagram-star-status-9-must-do-tactics/"><u>[Updated] 2024 Approved The Roadmap to Instagram Star Status 9 Must-Do Tactics</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-unlocking-pip-techniques-for-professional-apple-users/"><u>[Updated] In 2024, Unlocking PIP Techniques for Professional Apple Users</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95696045-9780857012654-calculating-the-bazi/"><u>Calculating the BaZi | Free Book</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/comprehensive-analysis-gopro-silver-hero4-model-evaluation-for-2024/"><u>Comprehensive Analysis GoPro Silver HERO4 Model Evaluation for 2024</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/effortless-file-restoration-absolutely-free/"><u>Effortless File Restoration - Absolutely Free</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-bridging-gaps-video-platforms-brands-and-collaborative-success/"><u>In 2024, Bridging Gaps Video Platforms, Brands & Collaborative Success</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-the-ultimate-guide-to-ipados-drawing-wonders/"><u>In 2024, The Ultimate Guide to iPadOS Drawing Wonders</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/jokegenius-easy-login-creative-video-making-for-2024/"><u>JokeGenius Easy Login, Creative Video Making for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/m1-pro-vs-m1-max-identifying-core-differences-for-2024/"><u>M1 Pro Vs. M1 Max Identifying Core Differences for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/mkv-avi-online-movavi/"><u>MKV 및 AVI 영상 무료 변환 - Online 가이드: Movavi</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-the-best-free-mov-movie-editors-a-comprehensive-guide/"><u>New In 2024, The Best Free MOV Movie Editors A Comprehensive Guide</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/quick-guide-to-alter-username-in-google-meet-sessions/"><u>Quick Guide to Alter Username in Google Meet Sessions</u></a></li>
 </ul></div>
 

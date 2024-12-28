@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Top Strategies to Shoot a Flawless Green Screen Scene"
-date: 2024-08-28T11:47:52.069Z
-updated: 2024-08-29T11:47:52.069Z
+date: 2024-12-25T18:36:30.379Z
+updated: 2024-12-27T22:43:54.026Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,10 @@ If you are wondering how to compositing the shot green screen video with your ma
 
 **Related:**[Resources for green screen effects](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5 Tips for shooting better green screen video
 
 We’ve figured out some useful green screen tricks, have fun and hope you’ll be more creative with the help of Filmora green screen video compositing software.
@@ -59,6 +63,10 @@ Check out our picks of [the best lighting equipment for shooting videos](https:/
 #### 2Camera tips in shooting a Green Screen Video
 
 ![Camera tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-6.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 When lighting your key surface, make sure the bounce light is not directed at the camera (as shown in the image above). For example, if your camera faces the key surface directly, set your lights at 45 degree angles to the key surface. This will ensure that the bounce light bounces toward the other light and not at the camera.
 
@@ -84,6 +92,10 @@ Wrinkles in your screen can actually lead to heavy shadows and distorted image q
 
 ![Motion blur problem in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-4.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you are planning on shooting a high action scene in front of a green screen with a camera that only has lower shutter speeds, you can run into real problems. When using a camera with a lower shutter speed consider doing action shots in slow motion or getting subjects to not make any sudden movements in front of the green screen. Motion blur from someone moving rapidly on camera in front of a green screen can really ruin the scene and ruin the realism of the scene. Alternately you could also consider renting a high shutter speed camera to avoid this motion blur if you do plan on shooting a lot of action scenes. Ultimately this is something that you will need to test for yourself before shooting a green screen video, so that you can get a feel for how much action your camera can handle with a green screen without motion blur.
 
 Wanna adding a fake camera shake effect to your video? Check our tips of [How to creating camera shake effects in your video](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -94,7 +106,15 @@ Besides compositing chroma keying videos in Filmora, you can also[stabilize your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -119,8 +139,24 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-innovative-monitor-choices-the-10-list-for-mac-users/"><u>[New] 2024 Approved Innovative Monitor Choices The #10 List For Mac Users</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-strategies-for-bulk-tiktok-video-acquisition/"><u>[New] 2024 Approved Strategies for Bulk TikTok Video Acquisition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-efficient-spotify-listening-safe-speed-adjustment/"><u>[New] In 2024, Efficient Spotify Listening Safe Speed Adjustment</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-basic-steps-to-hassle-free-high-dynamic-range-hdr/"><u>[Updated] 2024 Approved Basic Steps to Hassle-Free High Dynamic Range (HDR)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-ultimate-guide-to-slomo-videography-app-review-update/"><u>[Updated] 2024 Approved Ultimate Guide to SloMo Videography App Review Update</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-advanced-strategies-for-enhancing-footage-with-gopro-studio-for-2024/"><u>[Updated] Advanced Strategies for Enhancing Footage with GoPro Studio for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-ultimate-free-guide-to-transforming-your-iphone-x7-selfies/"><u>[Updated] The Ultimate FREE Guide to Transforming Your iPhone X/7 Selfies</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-audiophile-tools-best-audio-interfaces-for-podcasters/"><u>2024 Approved Audiophile Tools Best Audio Interfaces for Podcasters</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-simplified-techniques-for-browsing-youtube-comments/"><u>2024 Approved Simplified Techniques for Browsing YouTube Comments</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/bridging-the-gap-reactivating-your-obs-cam/"><u>Bridging the Gap Reactivating Your OBS Cam</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1723009130806-diablo-3-stability-issues-resolved-no-more-unexpected-shutdowns/"><u>Diablo 3 Stability Issues Resolved - No More Unexpected Shutdowns!</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/enhance-user-experience-with-cookiebots-customized-approach/"><u>Enhance User Experience with Cookiebot's Customized Approach</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/flipping-photo-lightness-for-an-alternate-look/"><u>Flipping Photo Lightness for an Alternate Look</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-infinix-hot-40i-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Infinix Hot 40i Is Unlocked</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-redmi-note-13-proplus-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Xiaomi Redmi Note 13 Pro+ 5G PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-oneplus-11r-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing OnePlus 11R to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/skyrocketing-performance-in-windows-11-systems/"><u>Skyrocketing Performance in Windows 11 Systems</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Enriched Visuals & Melodies  The Art of Integrating Filters & Music (Windows Photos)\""
-date: 2024-08-28T11:44:20.210Z
-updated: 2024-08-29T11:44:20.210Z
+date: 2024-12-24T18:49:58.209Z
+updated: 2024-12-28T00:21:25.044Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,10 @@ Having Windows 10 Photos app is an advantage for you. This is not like any other
 
 **You may also like:** [How to Trim Video in Windows 10 Photos Easily >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to add filters on Windows 10 Photos App
 
 If you have got Windows 10 Photos app and wish to add filters, though, it is by default a photo viewing app, its editing features are worth to mention. This step by step guide is your perfect savior in that case.
@@ -51,7 +55,15 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5**: Just select one you like. Preview it and then click Done.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to add music on Windows 10 Photos App
 
@@ -69,20 +81,22 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5**: Hit the ‘Done’ button.
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -106,4 +120,20 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-premier-5-ios-backdrop-change-applications-for-iphones-x-8-7/"><u>[New] 2024 Approved Premier 5 iOS Backdrop Change Applications for iPhones (X, 8, 7)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-strategies-and-techniques-in-documentary-scriptwriting/"><u>[Updated] In 2024, Strategies and Techniques in Documentary Scriptwriting</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-top-gaming-thumbs-for-immersive-experience-for-2024/"><u>[Updated] Top Gaming Thumbs for Immersive Experience for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-become-a-digital-native-in-the-metaverse-now/"><u>2024 Approved Become a Digital Native in the Metaverse Now</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-comparative-livestrandexperience-analysis-twitch-and-youtube/"><u>2024 Approved Comparative Livestrandexperience Analysis Twitch & YouTube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-grasping-the-basics-of-av1-compression/"><u>2024 Approved Grasping the Basics of AV1 Compression</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-sketching-success-a-guide-to-industrys-best-10-vector-apps/"><u>2024 Approved Sketching Success A Guide to Industry's Best 10 Vector Apps</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/applications-of-virtual-reality-for-2024/"><u>Applications of Virtual Reality for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/assemble-visual-pieces-into-watchable-arrays/"><u>Assemble Visual Pieces Into Watchable Arrays</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1722999890958-find-the-right-solution-for-your-xcom-2-game-crash-issues-on-a-windows-computer/"><u>Find the Right Solution for Your XCOM 2 Game Crash Issues on a Windows Computer</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-enable-and-manage-picture-in-picture-on-your-android-screen/"><u>How to Enable & Manage Picture-in-Picture on Your Android Screen</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-remove-google-frp-lock-on-s17e-by-drfone-android-unlock-remove-google-frp/"><u>How to remove Google FRP Lock on S17e</u></a></li>
+<li><a href="https://article-posts.techidaily.com/revival-artisan-selection-for-2024/"><u>Revival Artisan Selection for 2024</u></a></li>
+</ul></div>
 
