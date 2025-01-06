@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Memorable Moments From the 2022 Skatescape"
-date: 2024-12-21T22:43:56.844Z
-updated: 2024-12-27T17:00:41.630Z
+date: 2025-01-05T09:12:35.481Z
+updated: 2025-01-06T03:56:17.878Z
 tags: 
   - screen-recording
   - ai video
@@ -43,16 +43,12 @@ Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United Stat
 
 ![yuma kagiyama](https://images.wondershare.com/filmora/article-images/yuma-kagiyama.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shoma Uno of Japan won the bronze medal with a combined score of 293 points and he has become the second Japanese to win a medal at the 2022 Beijing Winter Olympics.
 
 ![shoma uno](https://images.wondershare.com/filmora/article-images/shoma-uno.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Nathan Chen successful triumph has been four years in the making and it is a perfect combination of seven perfect skating minutes. Back at 2018 Olympics, he botched and ended with disappointment. Therefore, Olympics Games Beijing2022 has been redemption for America's best male skater.
@@ -64,7 +60,7 @@ Even though Nathan Chen finished first for men's short program of the team event
 ![russian olympic committee athletes](https://images.wondershare.com/filmora/article-images/russian-olympic-committee-athletes.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Russian Olympic Committee athletes won the gold medal at team event by a margin of 9 points with the combined score of 74\. United States won the silver medal with a combined score of 65 points.
@@ -72,7 +68,7 @@ Russian Olympic Committee athletes won the gold medal at team event by a margin 
 ![japan won the bronze medal](https://images.wondershare.com/filmora/article-images/japan-won-the-bronze-medal.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Japan won the bronze medal with 63 points falling short by 2 points 2 behind the United States. The figure skating competition is held at the Capital Indoor Stadium in Beijing.
@@ -97,21 +93,25 @@ Step 1: Download and install Filmora. Launch Filmora and click on New Project.
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 2: Go to File > Project Settings and set the parameters as per your requirements.
 
 Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all the still photos and video footage clips you have collected about figure skating Olympics. You can trim them and maintain uniformity throughout.
 
 ![filmora edit videos](https://images.wondershare.com/filmora/article-images/edit-recordings-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 4: You need to add all imported media files to Video Timeline while you should add background music or voiceover to the Audio Timeline.
 
 Step 5: Select individual or multiple slides and add Transitions, Effects, Titles and Elements.
 
 Step 6: When everything is done, click on Export to save the video and share anywhere you want.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -136,21 +136,17 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-the-counter-flow-strategy-reversing-your-youtube-video-sequence/"><u>[New] In 2024, The Counter-Flow Strategy Reversing Your YouTube Video Sequence</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-unlock-vintage-cinematography-with-this-essential-manual/"><u>[New] In 2024, Unlock Vintage Cinematography with This Essential Manual</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-rekindling-relics-of-facebook-tales-step-by-device-step/"><u>[Updated] In 2024, Rekindling Relics of Facebook Tales Step by Device Step</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-premium-selection-the-best-8-tripods-for-superior-4k-shooting/"><u>[Updated] Premium Selection The Best 8 Tripods for Superior 4K Shooting</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-simply-saver-top-mobile-apps-for-downloading-youtube-series-and-songs/"><u>[Updated] Simply Saver Top Mobile Apps for Downloading YouTube Series & Songs</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/djs-directive-seamless-shuffling-between-services/"><u>DJ's Directive Seamless Shuffling Between Services</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/effortless-entry-to-entertainment-the-ifunny-app-experience-for-2024/"><u>Effortless Entry to Entertainment The iFunny App Experience for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/elevate-your-youtube-live-gameplay-even-when-numbers-are-low/"><u>Elevate Your Youtube Live Gameplay – Even when Numbers Are Low</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/elite-ice-artists-a-look-at-22-performances/"><u>Elite Ice Artists A Look at '22 Performances</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/enlarge-images-pixel-perfect-preservation-for-2024/"><u>Enlarge Images Pixel-Perfect Preservation for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/essential-techniques-for-writing-irresistible-vlog-narratives/"><u>Essential Techniques for Writing Irresistible Vlog Narratives</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/explore-the-very-best-in-ios-video-playback-tools/"><u>Explore the Very Best in iOS Video Playback Tools</u></a></li>
-<li><a href="https://win-dash.techidaily.com/free-hp-deskjet-2600-printer-driver-downloads-compatible-with-windows-7-8-and-10/"><u>Free HP Deskjet 2600 Printer Driver Downloads Compatible with Windows 7, 8 & 10</u></a></li>
-<li><a href="https://extra-information.techidaily.com/livestreaming-leaderboards-which-software-tops-the-chartvmixwirecast/"><u>Livestreaming Leaderboards Which Software Tops the Chart—VMix/Wirecast?</u></a></li>
-<li><a href="https://extra-information.techidaily.com/prime-6-bargains-for-your-homes-ultimate-viewing/"><u>Prime 6 Bargains for Your Home's Ultimate Viewing</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/reward-customers-with-points-based-loyalty-programs/"><u>Reward Customers with Points-Based Loyalty Programs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-shades-and-tones-elevating-your-visuals/"><u>[New] 2024 Approved Shades and Tones Elevating Your Visuals</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-earning-by-critiquing-goodies-a-youtube-guide-for-2024/"><u>[New] Earning by Critiquing Goodies A YouTube Guide for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-elevate-your-videos-the-basics-of-stunning-slow-motion-capturing-in-android-for-2024/"><u>[New] Elevate Your Videos The Basics of Stunning Slow Motion Capturing in Android for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-secrets-to-preventing-photo-app-problems-in-windows-11/"><u>[New] In 2024, Secrets to Preventing Photo App Problems in Windows 11</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-sony-x1000d-vivid-full-action-cam-test-for-2024/"><u>[New] Sony X1000D Vivid - Full Action Cam Test for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-elevating-low-light-images-on-your-iphone/"><u>[Updated] Elevating Low-Light Images on Your iPhone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-turbo-tracker-fastest-image-browser-w10-for-2024/"><u>[Updated] Turbo Tracker - Fastest Image Browser W10 for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/diagnosing-and-repairing-immediate-black-screens-on-overwatch-boot-up/"><u>Diagnosing and Repairing Immediate Black Screens on Overwatch Boot-Up</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/essential-guidelines-for-choosing-the-right-podcast-name/"><u>Essential Guidelines for Choosing the Right Podcast Name</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/improvements-in-apples-independent-repair-initiative-what-you-need-to-know/"><u>Improvements in Apple's Independent Repair Initiative: What You Need to Know</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-unlimited-savvy-instagrams-infinite-save-tool/"><u>In 2024, Unlimited Savvy Instagram's Infinite Save Tool</u></a></li>
 </ul></div>
 

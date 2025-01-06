@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering 360-Degree Edits in Adobe Premiere Pro for 2024\""
-date: 2024-08-23T08:03:05.790Z
-updated: 2024-08-24T08:03:05.790Z
+date: 2025-01-01T11:19:36.966Z
+updated: 2025-01-06T04:55:06.970Z
 tags: 
   - screen-recording
   - ai video
@@ -42,11 +42,19 @@ thumbnail: https://thmb.techidaily.com/3f22ae9e837b10e05053cf12480b5c15e8d166c20
 
 ![Edit 360 videos with Premiere Pro - Settings](https://images.wondershare.com/filmora/article-images/360-editing-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Premiere Pro allows you to view any video by double clicking on the video in the project panel. Be default, the equirectanglular video clips will appear on the preview panel, but they will be distorted. To change how the videos appear on the preview panel, it is imperative to adjust the settings. This is done by clicking on the wrench icon located at the bottom right of window then navigating to VR Video>Settings. This will pull up the menu to let you adjust the various settings you need to proceed with the editing.
 
 #### 3. Set the Preview Window to VR Mode
 
 ![Edit 360 videos with Premiere Pro - Enable VR mode](https://images.wondershare.com/filmora/article-images/enable-vr-mode.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  After you have established the right settings for your project, the next thing you need to do is to set the preview window into VR Mode. There are two ways to do this and they include-:
 
@@ -63,13 +71,25 @@ thumbnail: https://thmb.techidaily.com/3f22ae9e837b10e05053cf12480b5c15e8d166c20
 
 ![Edit 360 videos with Premiere Pro - Export VR footage]( https://images.wondershare.com/filmora/article-images/export-vr-footage.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  A while back, exporting VR footages to YouTube was possible only through third party applications. But now, such capabilities have been included in Adobe Premiere Pro and you can now apply all the Meta data directly inside the application. To export your edited footage, navigate to File>Export>Media or simply hit Command + M to pop up the export window. Select your desired codecs and navigate to the video tab and ensure that you have selected the VR Video Checkbox.
 
 ## Best Video Editor: [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -94,17 +114,26 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-top-platforms-enhance-your-youtube-presence/"><u>[New] 2024 Approved Top Platforms Enhance Your YouTube Presence</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-flawless-picture-preservation-gratis-space-plus-charged-cloud-sanctuaries-await/"><u>[New] Flawless Picture Preservation Gratis Space + Charged Cloud Sanctuaries Await</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-essentials-in-filming-adventure-vlogs/"><u>[New] In 2024, Essentials in Filming Adventure Vlogs</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-ethereal-editing-in-extended-frame-rate/"><u>[New] In 2024, Ethereal Editing in Extended Frame Rate</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-streaming-stakes-pewdiepies-earnings-examination-for-2024/"><u>[New] Streaming Stakes PewDiePie’s Earnings Examination for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-finding-the-best-fit-essential-tips-to-choose-your-ideal-4k-monitor-for-2024/"><u>[Updated] Finding the Best Fit Essential Tips to Choose Your Ideal 4K Monitor for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-innovative-techniques-for-iphone-sideways-shots-for-2024/"><u>[Updated] Innovative Techniques for iPhone Sideways Shots for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-unleashing-creativity-with-pexels-finding-fabulous-images-for-2024/"><u>[Updated] Unleashing Creativity with Pexels Finding Fabulous Images for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/11-different-ways-to-uninstall-software-in-windows-11/"><u>11 Different Ways to Uninstall Software in Windows 11</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exploring-the-hottest-stock-photos-and-their-journeys/"><u>2024 Approved Exploring the Hottest Stock Photos & Their Journeys</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-quick-steps-to-elevate-low-quality-webcam-vids/"><u>2024 Approved Quick Steps to Elevate Low-Quality WebCam Vids</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-video-repair-tool-to-fix-and-repair-corrupted-video-files-of-huawei-nova-12-by-stellar-video-repair-mobile-video-repair/"><u>Best Video Repair tool to Fix and Repair Corrupted video files of Huawei Nova 12</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/vering-potential-youtubes-role-in-modern-education-strategies-for-2024/"><u>Discovering Potential YouTube's Role in Modern Education Strategies for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/ensure-your-computer-passes-windows-11-standards/"><u>Ensure Your Computer Passes Windows 11 Standards</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/five-superior-timelapse-filmmakers/"><u>Five Superior Timelapse Filmmakers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/imagememe-magic-instant-jokes/"><u>ImageMeme Magic Instant Jokes</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-fine-tuning-soundtracks-with-garageband-expertise/"><u>In 2024, Fine-Tuning Soundtracks with GarageBand Expertise</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-2024-approved-essential-dog-bark-samples-for-audio-projects/"><u>New 2024 Approved Essential Dog Bark Samples for Audio Projects</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unveiling-facetunes-potential-photo-editing-like-never-before-for-2024/"><u>Unveiling Facetune's Potential Photo Editing Like Never Before for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "\"Spotlight on Professional Shoots  Innovative Lighting Techniques\""
-date: 2024-08-16T04:58:16.946Z
-updated: 2024-08-17T04:58:16.946Z
+date: 2025-01-04T13:17:15.850Z
+updated: 2025-01-06T08:31:23.777Z
 tags: 
   - screen-recording
   - ai video
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/b1dca77248729ae79ab1361747a38e85586597f7f
 Many people are wondering how to set up lighting for video shooting. While there are many different ways to set up lighting, some methods are more effective than others.
 
 Therefore, this article will give you a complete guide on how to set up your lighting to make your videos stand out.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1\. How-to Guide
 
@@ -48,6 +52,10 @@ For this tutorial, we will use the Three-Point Lighting technique:
 
 ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
 ##### Step2 Set the Fill Light
@@ -59,6 +67,10 @@ The fill light is used to fill in the shadows created by the key light. It is us
 ##### Step3 Set the Backlight
 
 ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
 
@@ -76,6 +88,10 @@ Finally, we have a few other small LED lights like this unicorn to put in the ba
 
 ![other small led lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 After setting up all the lighting above, you can take a look at the comparison below:
 
 **Using Key Light only**
@@ -86,16 +102,16 @@ After setting up all the lighting above, you can take a look at the comparison b
 
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **_3) Pro Tips: The light setting_**
 
 We usually set the lights around 50% brightness and a color temperature of 5600K.
 
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ## Summary
 
 Hopefully, you learned something about lighting by taking a look at our setup. If you want to know and learn about other lighting tutorials, don’t hesitate to let us know in the comments.
@@ -128,4 +144,16 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-essential-insight-into-the-best-6-harnesses-for-gopro-headsets/"><u>[New] Essential Insight Into The Best 6 Harnesses for GoPro Headsets</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-premier-live-basketball-experience-at-home/"><u>[New] Premier Live Basketball Experience at Home</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-balancing-iphone-hd-video-with-premiere-pros-exposure-control/"><u>[Updated] Balancing iPhone HD Video with Premiere Pro’s Exposure Control</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-enhancing-narratives-a-guide-to-using-b-roll-for-2024/"><u>[Updated] Enhancing Narratives A Guide to Using B-Roll for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-director-of-dishes-behind-the-scenes-of-food-filming/"><u>[Updated] In 2024, The Director of Dishes Behind-the-Scenes of Food Filming</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-premier-picture-preservation-websites/"><u>[Updated] Premier Picture Preservation Websites</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-enhancing-the-endurance-of-your-gopro-battery/"><u>2024 Approved Enhancing the Endurance of Your GoPro Battery</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-boosts-leadership-with-neil-murphys-promotion-to-chief-sales-officer/"><u>ABBYY Boosts Leadership with Neil Murphy's Promotion to Chief Sales Officer</u></a></li>
+<li><a href="https://win-answers.techidaily.com/overcome-gaming-hurdles-solving-pc-crashes-in-forza-horizon-4-easily/"><u>Overcome Gaming Hurdles: Solving PC Crashes in Forza Horizon 4 Easily</u></a></li>
+</ul></div>
 

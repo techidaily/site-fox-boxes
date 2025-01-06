@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Magic of Time Expansion  A Comprehensive Guide to Making Beautifully Long Movies with Still Images & Online Tools for 2024\""
-date: 2024-08-16T04:59:25.777Z
-updated: 2024-08-17T04:59:25.777Z
+date: 2024-12-29T18:55:11.991Z
+updated: 2025-01-05T20:05:25.105Z
 tags: 
   - screen-recording
   - ai video
@@ -40,11 +40,16 @@ Navigate to the folder where your video file is located and right click on it. Y
 
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/slow-motion-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you do not see the option anywhere on your Photos app, there is a chance you are running an outdated version of Windows 10 on your computer. All you need to do is navigate to Windows Update through your system menu. When all the updates install, you will have the latest Photos app with this feature.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2：Customizing the Slow Motion Effect
 
 When you are using the Photos app to add a slow motion effect to your videos, you can tweak it to your liking. You will be able to select the speed using a slider, which lets you get the precise slow motion effect that you desire.
@@ -54,9 +59,6 @@ There is also the handy option of being able to select the portion of your video
 Now you can select the beginning and end point using the bottom slider on the Photos app. Choose the precise starting and ending of the slow motion effect, and then watch through your video to ensure it is exactly as you want.
 
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/make-slow-motion-microsoft-photos.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 
 We recommend that you save your video file under a new name when you are done making your desired changes. It ensures that you still have the original copy of the video saved on your computer or external hard drive.
 
@@ -64,12 +66,13 @@ You can even create multiple versions of the file with the slow motion effect ap
 
 **You may also like:** [How to Use Story Remix to Edit a Video in Windows 10 Photos >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3: How to Edit in Slow Motion Online
 
 If you are not able to access a Windows computer, you may want a solution that can be used online. The good news is that you can use some [online video speed changers](https://tools.techidaily.com/wondershare/filmora/download/)to add a slow motion effect to your content.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### [EZGif](https://ezgif.com/video-speed)
 
@@ -83,25 +86,24 @@ Click on the “upload video” button so that it can be added into the database
 
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/ezgif-change-videos-speed-import.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Output**
 
 The program will let you adjust the video speed to your liking. Then you will get a URL for the output video, which will have been slowed down according to your settings. There is even an option to keep the audio track at the same speed, but you can slow down the audio at the same rate as the video if you want.
 
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/change-video-speed-ezgif-edit.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 Now that you have understood how to add the effect of slow motion in Windows 10 Photos, you will be able to tweak your videos even more. The Photos application has many other features that you may want to check out, which will help you edit images and videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -127,4 +129,18 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-social-media-marketing-elevating-public-health-dialogue/"><u>[New] 2024 Approved Social Media Marketing Elevating Public Health Dialogue</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-experience-gaming-excellence-with-kinemaster-on-android/"><u>[New] Experience Gaming Excellence with KineMaster on Android</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-harnessing-lut-power-for-free-high-quality-colorization/"><u>[New] In 2024, Harnessing LUT Power for Free, High-Quality Colorization</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-tailoring-content-advanced-pc-video-editing-methods-for-youtube/"><u>[New] Tailoring Content Advanced PC Video Editing Methods for YouTube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-the-path-to-polished-projects-utilizing-fades-effectively/"><u>[Updated] 2024 Approved The Path to Polished Projects Utilizing Fades Effectively</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-comprehensive-review-of-non-google-augmented-reality-accessories/"><u>[Updated] Comprehensive Review of Non-Google Augmented Reality Accessories</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-expert-offline-audio-to-text-solutions/"><u>[Updated] Expert Offline Audio to Text Solutions</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-pixelated-pastures-celebrating-rural-games-for-2024/"><u>[Updated] Pixelated Pastures Celebrating Rural Games for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/exploring-windows-n-versions-usage-insights/"><u>Exploring Windows N Versions: Usage Insights</u></a></li>
+<li><a href="https://fox-making.techidaily.com/how-to-customize-high-level-energy-options-via-windows-system-preferences-tech-insights-by-yl-solutions/"><u>How to Customize High-Level Energy Options via Windows' System Preferences - Tech Insights by YL Solutions</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/maximizing-study-efficiency-dos-and-donts-with-chatgpt/"><u>Maximizing Study Efficiency: Do's and Don'ts with ChatGPT</u></a></li>
+</ul></div>
 

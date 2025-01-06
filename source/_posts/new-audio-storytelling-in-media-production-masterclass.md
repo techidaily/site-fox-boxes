@@ -1,7 +1,7 @@
 ---
 title: "[New] Audio Storytelling in Media Production Masterclass"
-date: 2024-12-24T20:21:34.963Z
-updated: 2024-12-27T20:38:37.375Z
+date: 2025-01-04T04:13:12.802Z
+updated: 2025-01-05T16:43:24.580Z
 tags: 
   - screen-recording
   - ai video
@@ -29,10 +29,6 @@ I'll be demonstrating how to add voiceovers and narrations in [Filmora](https://
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Voiceover or Narration?
 
 But first, what's the difference between a voiceover and a narration? Truth be told, there is quite a bit of overlap between the two.
@@ -54,7 +50,7 @@ But here's the good news: the way you add either option is the same in Filmora.
 ![add either option](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to add narration
@@ -63,15 +59,15 @@ So the easiest way to add narration is directly to a project. The benefit of thi
 
 ![add narration to project](https://images.wondershare.com/filmora/guide/stt-tts-srt-09.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 A good example of this would be narrating a story on top of some still images and video clips from a recent vacation. (In most cases you would want to turn off the sound of the video clip, or at least use ducking to help the viewer focus on the narration.)
 
 You put the playhead where you want to start recording and hit the microphone icon under the preview window.
 
 ![hit microphone icon](https://images.wondershare.com/filmora/guide/stt-tts-srt-08.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 A 3-second countdown will pop up and start recording immediately after this countdown.
 
@@ -89,6 +85,10 @@ You can edit pauses or weak parts out of the voiceover to trim it up. But if it 
 
 Fortunately, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) comes equipped with video b-roll which is another great option. When using b-roll, it's better to use multiple shorter clips than one longer clip in most cases. But adding the same b-roll clip near the beginning and another section of the same b-roll clip, later on, should help you match the length of your narration to the video timeline.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Narration is a great storytelling device
 
 Narration is a fantastic tool to have in your arsenal as a young filmmaker. It allows you to quickly communicate feelings, backstory, and context quickly and effectively.
@@ -98,7 +98,7 @@ Practice adding it to your videos to see how it adds depth and dimension to your
 It can also help make a connection with your audience because you can be relating to the images on the screen as they watch them. This is effective in building your YouTube audience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Always use a good mic
@@ -107,11 +107,11 @@ When adding voiceover or narration to your project, be sure to use a good USB mi
 
 ![use good microphone](https://images.wondershare.com/filmora/article-images/2022/11/use-good-microphone.jpg)
 
-Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
 
 ## Should you use narration in your next project?
 
@@ -151,18 +151,22 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://games-able.techidaily.com/creating-a-shared-playspace-on-ps5/"><u>Creating a Shared Playspace on PS5</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ddpai-mini3-dashcam-review-transforming-everyday-journeys-into-fun-adventures/"><u>DDPai Mini3 Dashcam Review: Transforming Everyday Journeys Into Fun Adventures</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/editorsuite-showcase-video-editor-features-and-reviews/"><u>EditorSuite Showcase – Video Editor Features & Reviews</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/effortless-visual-content-creation-for-instagram-users/"><u>Effortless Visual Content Creation for Instagram Users</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/elevate-your-micro-photography-key-tips-for-filmmakers/"><u>Elevate Your Micro Photography Key Tips for Filmmakers</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/exclusive-insight-into-mematics-app-features-for-2024/"><u>Exclusive Insight Into Mematic's App Features for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/expert-filmmakers-picks-best-windows-video-editors-compared/"><u>Expert Filmmaker's Picks Best Windows Video Editors Compared</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-about-oneplus-11r-frp-bypass-by-drfone-android/"><u>In 2024, About OnePlus 11R FRP Bypass</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-the-journey-to-facebooks-high-level-status-symbol/"><u>In 2024, The Journey to Facebook's High-Level Status Symbol</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-windows-10-webcam-recording-essentials-top-10-software-picks/"><u>New In 2024, Windows 10 Webcam Recording Essentials Top 10 Software Picks</u></a></li>
-<li><a href="https://win-blog.techidaily.com/taming-the-beastly-bug-solving-dragon-age-origins-windows-10-crash-issues/"><u>Taming the Beastly Bug: Solving Dragon Age: Origins Windows 10 Crash Issues</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-10-most-popular-minion-memes-that-moms-are-crazy-about-for-2024/"><u>Updated 10 Most Popular Minion Memes that Moms Are Crazy About for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/winning-against-error-0xc19001e1-a-comprehensive-fix-for-windows-miken/"><u>Winning Against Error 0Xc19001e1: A Comprehensive Fix for Windows ˈmíkən</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-current-state-of-vr-hardware/"><u>[New] 2024 Approved Current State of VR Hardware</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-top-gear-helmet-cams-the-most-trusted-choice-riders/"><u>[New] 2024 Approved Top Gear Helmet Cams - The Most Trusted Choice Riders</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-achieve-flawless-imagery-how-to-remove-backgrounds-on-canva/"><u>[New] Achieve Flawless Imagery How to Remove Backgrounds on Canva</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-complete-rundown-how-google-podcast-works-for-2024/"><u>[New] Complete Rundown How Google Podcast Works for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-jaunt-vr-a-gateway-to-virtual-worlds/"><u>[New] Jaunt VR A Gateway to Virtual Worlds</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-photoshop-color-adjustments-for-beginners-for-2024/"><u>[New] Photoshop Color Adjustments for Beginners for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-luminalabs-exploring-affordable-video-editors-for-2024/"><u>[Updated] LuminaLabs Exploring Affordable Video Editors for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-the-definitive-12-tycoon-titles-unmissable-gaming-delights-for-2024/"><u>[Updated] The Definitive 12 Tycoon Titles - Unmissable Gaming Delights for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-essential-meme-blueprint-building-impactful-gifs/"><u>[Updated] The Essential Meme Blueprint Building Impactful GIFs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-who-takes-the-crown-of-video-broadcast-twitch-or-youtube-for-2024/"><u>[Updated] Who Takes the Crown of Video Broadcast? Twitch or YouTube for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1725286137277-dvd/"><u>【すぐに解決策】あなたがかつて楽しんで鑑賞していたDVDが、今は何故見ることが出来なくなったのかとその対策</u></a></li>
+<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-vivo-t2-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Vivo T2 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/cutting-edge-fb-video-creators-20-free-apps-for-marketers-for-2024/"><u>Cutting-Edge FB Video Creators 20 Free Apps for Marketers for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-7-to-other-iphone-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 7 to other iPhone devices? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-best-action-camera-gear-reviewed-by-hunters/"><u>In 2024, Best Action Camera Gear Reviewed by Hunters</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/patekfly-12-tripod-review-unprecedented-flexibility/"><u>Patekfly 12 Tripod Review - Unprecedented Flexibility</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/sale-alert-snag-a-discounted-8tb-samsung-portable-ssd-on-amazons-prime-day-up-to-45-off/"><u>Sale Alert: Snag a Discounted 8TB Samsung Portable SSD on Amazon's Prime Day - Up to 45% Off!</u></a></li>
 </ul></div>
 

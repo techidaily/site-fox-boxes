@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Chasing Titles  Key Moments From 2022 Olympics Short Tracks\""
-date: 2024-12-21T16:53:32.748Z
-updated: 2024-12-28T00:25:05.017Z
+date: 2025-01-04T23:59:43.776Z
+updated: 2025-01-05T19:25:08.963Z
 tags: 
   - screen-recording
   - ai video
@@ -42,7 +42,7 @@ Canada’s Steven Dubois wins the silver medal.
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Russia’s Semen Elistratov wins the bronze medal.
@@ -53,36 +53,28 @@ Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
 
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
 
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
@@ -98,6 +90,10 @@ To create such a highlight video on any sports event, there are certain videos e
 **Motion Tracking** – Using motion tracking, you can track the movement of a particular object or athlete in a video. This helps to attach certain elements such as clipart, text, icon to that particular athlete throughout the video for easy identification by the viewers.
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -127,6 +123,10 @@ Step 5: Select individual slides and apply Transition, Effects or add Titles and
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 South Korean skater Hwang Dae-heon has won the gold medal in men’s short track speed skating 1500m. This has buried the controversy that cropped up due to South Korean disqualification in 1000m short track speed skating. If you want to make a video highlighting all the important scenes and moments of any sports event, we have illustrated how to make a professional-quality video with Wondershare Filmora.
@@ -150,20 +150,18 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-advanced-editor-techniques-from-the-experts-at-canva-for-2024/"><u>[New] Advanced Editor Techniques From the Experts at Canva for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-cropped-footage-queries-why-is-my-video-clipped/"><u>[New] Cropped Footage Queries Why Is My Video Clipped?</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-elevating-your-drone-racing-game-and-discovering-elite-fpv-uavs/"><u>[New] Elevating Your Drone Racing Game & Discovering Elite FPV UAVs</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-the-roadmap-to-instagram-star-status-9-must-do-tactics/"><u>[Updated] 2024 Approved The Roadmap to Instagram Star Status 9 Must-Do Tactics</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-unlocking-pip-techniques-for-professional-apple-users/"><u>[Updated] In 2024, Unlocking PIP Techniques for Professional Apple Users</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95696045-9780857012654-calculating-the-bazi/"><u>Calculating the BaZi | Free Book</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/comprehensive-analysis-gopro-silver-hero4-model-evaluation-for-2024/"><u>Comprehensive Analysis GoPro Silver HERO4 Model Evaluation for 2024</u></a></li>
-<li><a href="https://data-recovery.techidaily.com/effortless-file-restoration-absolutely-free/"><u>Effortless File Restoration - Absolutely Free</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-bridging-gaps-video-platforms-brands-and-collaborative-success/"><u>In 2024, Bridging Gaps Video Platforms, Brands & Collaborative Success</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-the-ultimate-guide-to-ipados-drawing-wonders/"><u>In 2024, The Ultimate Guide to iPadOS Drawing Wonders</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/jokegenius-easy-login-creative-video-making-for-2024/"><u>JokeGenius Easy Login, Creative Video Making for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/m1-pro-vs-m1-max-identifying-core-differences-for-2024/"><u>M1 Pro Vs. M1 Max Identifying Core Differences for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/mkv-avi-online-movavi/"><u>MKV 및 AVI 영상 무료 변환 - Online 가이드: Movavi</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-the-best-free-mov-movie-editors-a-comprehensive-guide/"><u>New In 2024, The Best Free MOV Movie Editors A Comprehensive Guide</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/quick-guide-to-alter-username-in-google-meet-sessions/"><u>Quick Guide to Alter Username in Google Meet Sessions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-our-picks-for-the-finest-car-dvd-units/"><u>[New] 2024 Approved Our Picks for the Finest Car DVD Units</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-smart-snapchat-gifting-step-by-step-for-success/"><u>[New] 2024 Approved Smart Snapchat Gifting Step-by-Step for Success</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-harness-the-power-of-youtubes-movie-maker-for-professionals/"><u>[New] In 2024, Harness the Power of YouTube's Movie Maker for Professionals</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-mastering-instagram-launch-your-live-session/"><u>[New] Mastering Instagram Launch Your Live Session</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-depth-analysis-selecting-the-leading-5-virtual-title-experts/"><u>[Updated] In-Depth Analysis Selecting the Leading 5 Virtual Title Experts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-sticker-perfection-ranking-the-top-10-apps-for-ios-and-android-photos-for-2024/"><u>[Updated] Sticker Perfection Ranking the Top 10 Apps for iOS and Android Photos for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-motorola-edge-40-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Motorola Edge 40 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/high-flying-rivals-dji-drone-vs-gopro/"><u>High-Flying Rivals DJI Drone vs GoPro</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-oppo-find-n3-flip-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Oppo Find N3 Flip</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-guide-to-preferred-applications-vtubers-sonic-transformation-journey/"><u>In 2024, Guide to Preferred Applications Vtuber's Sonic Transformation Journey</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oppo-a58-4g-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Oppo A58 4G to Outlook | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-vivo-s17-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Vivo S17 Pro | Dr.fone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/restore-operational-capacity-in-flawed-usb-serial-cables-windows/"><u>Restore Operational Capacity in Flawed USB-Serial Cables, Windows</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Seamless Transitions  Shooting Smooth Time-Lapse with Hero5 for 2024\""
-date: 2024-08-16T04:57:51.763Z
-updated: 2024-08-17T04:57:51.763Z
+date: 2025-01-05T08:03:34.107Z
+updated: 2025-01-06T13:28:30.363Z
 tags: 
   - screen-recording
   - ai video
@@ -34,6 +34,10 @@ Are you an amateur travel photographer who has recently bought a GoPro cam and w
 
 * [Part 1:Shooting a time lapse video with GoPro Hero5](#part1)
 * [Part 2: Making time lapse videos with Wondershare Filmora](#part2)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Shooting a time lapse video with GoPro Hero5
 
@@ -79,8 +83,9 @@ Make use of good tripod, a fast and spacious SD card, a suction mount and always
 [Check at Amazon](https://www.amazon.com/gp/product/B01M14ATO0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M14ATO0&linkId=5ce54ea937ecffa6b1b8056b6922abaa)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Making time lapse videos with Wondershare Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a powerful and easy to use software with which you can edit your time lapse videos. The Filmora action cam version is going to make your job a lot more easy. It comes with 2 new tools-
@@ -90,24 +95,27 @@ The Action Cam Tool- this has the capacity of correcting lens distortion and can
 The Instant cutter tool on the other hand can be used for trimming and merging videos quickly and easily without damaging its quality. It supports many video formats like  encoded MP4, MTS and mov video which have been shot on phones, HD cameras and Action cams.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * First, launch the Filmora app and then choose the ‘action cam tool’
 * Next, you need to click the ‘Import’ button or the ‘ Import an Action cam video’ button, so as to import your recorded video to Wondershare Filmora.
 
 ![1-action-cam-tool-fix-entrance](https://images.wondershare.com/filmora/article-images/filmora-splash-screen-0321.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Now go to the Speed tab and bring the Playhead to the exact position where the speed effect is to be applied.
 * Click the Add Marker button. Click the speed marker and drag it onto either side of your timeline so as to choose a number of clips on your timeline.
 
 ![speed-effect-speed-add-marke](https://images.wondershare.com/filmora/article-images/speed-effect-speed-add-marker.png)
+
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * The speed settings can be adjusted by clicking on the checkbox marked Speed. The speed slider can be moved forward to make it faster up to 20x for the time lapse effect.
@@ -116,9 +124,6 @@ The Instant cutter tool on the other hand can be used for trimming and merging v
 [Learn more detailed information about how to make a time lapse video in Filmora Full Feature Mode](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Max Wales
 
@@ -143,4 +148,20 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-leading-websites-for-seamless-integration-of-text-overlays/"><u>[New] In 2024, Leading Websites for Seamless Integration of Text Overlays</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-prime-pick-top-10-streamers-for-cutting-edge-tv-content/"><u>[New] Prime Pick Top 10 Streamers for Cutting-Edge TV Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/isual-vocabulary-complimentary-youtube-art-tools-for-2024/"><u>[New] Visual Vocabulary Complimentary YouTube Art Tools for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-secrets-to-proficient-gaming-recordings/"><u>[Updated] 2024 Approved Secrets to Proficient Gaming Recordings</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-beginning-conversations-in-the-cloud-mastering-zoom-on-android-phones-for-2024/"><u>[Updated] Beginning Conversations in the Cloud Mastering Zoom on Android Phones for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-turn-a-minute-into-millions-maximizing-viewership-for-youtubers-for-2024/"><u>[Updated] How to Turn a Minute Into Millions Maximizing Viewership for YouTubers for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/aacmovavi/"><u>「オンラインでアクセシブルなAAC音声ファイルを無料で簡単に変換：Movaviの方法」</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/crafting-perfect-squares-imovie-guide-for-instagram-videos-for-2024/"><u>Crafting Perfect Squares IMovie Guide for Instagram Videos for 2024</u></a></li>
+<li><a href="https://win-webster.techidaily.com/expand-your-playlist-the-fresh-hit-collection-on-party-tyme-subscription-service-update-effective-11-6-17-featuring-the-latest-karaoke-tracks-for-djs-and-si94/"><u>Expand Your Playlist – The Fresh Hit Collection on Party Tyme Subscription Service (Update Effective 11-6-17) Featuring the Latest Karaoke Tracks for DJs and Singers Alike</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-vivo-y78plus-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Vivo Y78+ Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-quintessential-ae-text-styles-for-emphasis/"><u>In 2024, Quintessential AE Text Styles for Emphasis</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-wish-to-look-at-all-my-contacts-media-shared-in-chats/"><u>In 2024, Wish to Look at All My Contacts' Media Shared in Chats</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/ultimate-humor-image-creator-for-2024/"><u>Ultimate Humor Image Creator for 2024</u></a></li>
+</ul></div>
 

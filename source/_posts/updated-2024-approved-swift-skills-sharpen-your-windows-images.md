@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Swift Skills  Sharpen Your Windows Images\""
-date: 2024-08-23T08:04:38.161Z
-updated: 2024-08-24T08:04:38.161Z
+date: 2025-01-02T20:17:21.151Z
+updated: 2025-01-06T12:49:46.015Z
 tags: 
   - screen-recording
   - ai video
@@ -31,6 +31,10 @@ The Photos app in Windows 10 is one of the best and with the addition of the dra
 * [**Part1: How to Draw On Photos App in Windows 10**](#part1)
 * [**Part2: How to Draw on Photos Online**](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Draw On Photos App in Windows 10
 
 When you can add a personal touch to your videos and photos, it becomes all the way more special. Many times, it becomes essential to add a note to explain a video in a better way. Here are the steps to draw on photos in Windows 10 –
@@ -44,6 +48,10 @@ When you can add a personal touch to your videos and photos, it becomes all the 
 * Select the size and color of the fonts you wish to use from a range of palette
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/start-drawing-on-photos-in-windows-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Draw on the images and videos effortlessly
 * You can also find an eraser tool with various sizes of erasers that allows you to erase your entire drawing or a part of it as per your choice when required
@@ -67,25 +75,28 @@ Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lu
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/editing-drawings-on-windows-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * To save your drawing on the image, you must click on Apply after each action you make with the tool
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 The Photos app has an interface that is restructured with dark theme options and new drawing and editing features making it a great tool. If you want to draw on Photos in Windows 10, follow the above steps and make your actions easier. If you want to have more options to edit videos with drawing in Windows 10, why not choose [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)? You can edit your video with various drawing and text style.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -109,4 +120,24 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-excellence-in-penmanship-8-screenplay-classics/"><u>[New] 2024 Approved Excellence in Penmanship 8 Screenplay Classics</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-step-by-step-guide-for-ios-users-jpgpng-to-pdf-transformation/"><u>[New] 2024 Approved Step-by-Step Guide for iOS Users JPG/PNG to PDF Transformation</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-elevate-your-engagement-essential-apps-for-insta-growth-for-2024/"><u>[New] Elevate Your Engagement Essential Apps for Insta Growth for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-how-to-recover-eyes-only-snaps-a-step-by-step-guide/"><u>[New] In 2024, How to Recover Eyes-Only Snaps A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-joining-the-social-tv-revolution-fb-live-and-roku-interactions/"><u>[New] In 2024, Joining the Social TV Revolution FB Live & Roku Interactions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-depth-look-at-12-techniques-for-storing-web-based-songs-for-2024/"><u>[New] In-Depth Look at 12 Techniques for Storing Web-Based Songs for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-strategic-insights-on-making-persuasive-client-centered-videos/"><u>[New] Strategic Insights on Making Persuasive Client-Centered Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-craft-engaging-yt-titles-in-a-flash/"><u>[Updated] 2024 Approved Craft Engaging YT Titles in a Flash</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-designing-dramatic-beginnings-in-podcasts/"><u>[Updated] 2024 Approved Designing Dramatic Beginnings in Podcasts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-perfect-pick-kids-preferred-drones/"><u>[Updated] In 2024, Perfect Pick Kids' Preferred Drones</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/1716069056997-updated-in-2024-zombification-extravaganza-8-epic-titles-ranked/"><u>[Updated] In 2024, Zombification Extravaganza - 8 Epic Titles Ranked!</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-sky-high-adventures-the-gopro-karma-experience/"><u>[Updated] Sky-High Adventures The GoPro Karma Experience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-voice-vaults-best-speech-to-text-tools-without-online-dependency/"><u>[Updated] Voice Vaults Best Speech-to-Text Tools Without Online Dependency</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-ultimate-tale-of-htc-vive-and-total-immersion/"><u>2024 Approved The Ultimate Tale of HTC Vive and Total Immersion</u></a></li>
+<li><a href="https://win-blog.techidaily.com/comprehensive-solutions-to-stop-microsoft-edge-from-crashing-in-windows-11/"><u>Comprehensive Solutions to Stop Microsoft Edge From Crashing in Windows 11</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/easy-instructions-to-buy-ebooks-through-itunes-stores-books-application/"><u>Easy Instructions to Buy eBooks Through iTunes Store's Books Application</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-the-ultimate-4k-aerial-experience-with-xiaomis-drone/"><u>In 2024, The Ultimate 4K Aerial Experience with Xiaomi's Drone</u></a></li>
+</ul></div>
 

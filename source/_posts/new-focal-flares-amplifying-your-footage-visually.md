@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Focal Flares  Amplifying Your Footage Visually\""
-date: 2024-08-16T04:58:03.570Z
-updated: 2024-08-17T04:58:03.570Z
+date: 2025-01-05T12:55:36.265Z
+updated: 2025-01-05T19:45:06.805Z
 tags: 
   - screen-recording
   - ai video
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/97d4b7a24e4095203ce78f6219b92226bf6791663
 Many people are wondering how to set up lighting for video shooting. While there are many different ways to set up lighting, some methods are more effective than others.
 
 Therefore, this article will give you a complete guide on how to set up your lighting to make your videos stand out.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1\. How-to Guide
 
@@ -47,6 +51,10 @@ For this tutorial, we will use the Three-Point Lighting technique:
 ##### Step1 Set the Key Light
 
 ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
@@ -86,6 +94,10 @@ After setting up all the lighting above, you can take a look at the comparison b
 
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **_3) Pro Tips: The light setting_**
 
 We usually set the lights around 50% brightness and a color temperature of 5600K.
@@ -93,8 +105,13 @@ We usually set the lights around 50% brightness and a color temperature of 5600K
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Summary
 
 Hopefully, you learned something about lighting by taking a look at our setup. If you want to know and learn about other lighting tutorials, don’t hesitate to let us know in the comments.
@@ -127,4 +144,20 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-free-online-image-perfection-at-your-fingertips/"><u>[New] Free Online Image Perfection at Your Fingertips</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-top-10-network-for-entrepreneurs-how-they-conquered-channels/"><u>[New] In 2024, Top 10 Network for Entrepreneurs How They Conquered Channels</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-premier-pro-templates-of-the-year-free-version-for-2024/"><u>[New] Premier Pro Templates of the Year - Free Version for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-focus-on-details-masterful-close-up-techniques-for-gaming/"><u>[Updated] 2024 Approved Focus on Details Masterful Close-Up Techniques for Gaming</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-understanding-your-srt-equipment-like-a-pro/"><u>[Updated] Understanding Your SRT Equipment Like a Pro</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-crafting-captivating-stories-embedding-melodies-into-visual-narratives/"><u>2024 Approved Crafting Captivating Stories Embedding Melodies Into Visual Narratives</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-facebooks-videography-preference-which-orientation/"><u>2024 Approved Facebook's Videography Preference Which Orientation?</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/dealing-with-a-damaged-volume-error-code-0x80071ac3-a-troubleshooting-guide/"><u>Dealing with a Damaged Volume (Error Code 0X80071AC3) - A Troubleshooting Guide</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-nubia-red-magic-9-proplus-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Nubia Red Magic 9 Pro+ Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-reset-itunes-backup-password-of-iphone-xr-prevention-and-solution-drfone-by-drfone-ios/"><u>In 2024, Reset iTunes Backup Password Of iPhone XR Prevention & Solution | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/is-your-google-pixel-8-pro-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Google Pixel 8 Pro working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/master-iphoneandroid-apps-top-10-photo-edits-guide-for-2024/"><u>Master iPhone/Android Apps Top 10 Photo Edits Guide for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/speed-up-pc-games-the-ultimate-speed-controller-selection-for-2024/"><u>Speed Up PC Games The Ultimate Speed Controller Selection for 2024</u></a></li>
+</ul></div>
 

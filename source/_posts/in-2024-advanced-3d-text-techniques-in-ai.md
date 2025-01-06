@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Advanced 3D Text Techniques in AI"
-date: 2024-08-23T08:03:25.210Z
-updated: 2024-08-24T08:03:25.210Z
+date: 2025-01-02T03:18:56.088Z
+updated: 2025-01-06T08:14:37.265Z
 tags: 
   - screen-recording
   - ai video
@@ -52,13 +52,25 @@ Step5 Align the text to make it easier to edit and move around the canvas later.
 
 ![align text in illustrator](https://images.wondershare.com/filmora/article-images/adobe-illustrator-align.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step6 Up next, you need to turn on your 3D Effects panel if it still needs to be activated. To do this, click on **Window** → **3D and Materials.** Then, look at the right side of the screen, and you will see the panel pop up.
 
 ![turn on three d panel](https://images.wondershare.com/filmora/article-images/adobe-illustrator-3d-materials-window.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step7 Click on the box icon on the right side of the screen and select **“Extrude”** This will instantly transform your text into a 3D model.
 
 ![turn text into three d](https://images.wondershare.com/filmora/article-images/adobe-illustrator-panel.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step8 Now, all left to do is experiment with the settings in this panel and adjust how you want your 3D text to look. You can adjust its width, rotation, presets, angle, perspective, and so on. Just play around with the settings until you find your ideal result.
 
@@ -87,19 +99,25 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
 If you want to learn more about Filmora’s fantastic features, please watch the video below to see what the latest version of Filmora 12 brings to you!
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 Both programs will get the job done if you use Adobe Illustrator or Filmora for your 3D text effect. The main difference is that it will be easier with Filmora. The choice is yours. Have fun!
@@ -108,9 +126,6 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
 
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### How to Create a 3D Text Effect In Filmora?
 
 The steps are simple. Just follow them precisely as you see here, and you won't have any problems.
@@ -121,23 +136,14 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
 If you want to learn more about Filmora’s fantastic features, please watch the video below to see what the latest version of Filmora 12 brings to you!
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 Both programs will get the job done if you use Adobe Illustrator or Filmora for your 3D text effect. The main difference is that it will be easier with Filmora. The choice is yours. Have fun!
@@ -164,4 +170,24 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-crafting-visual-narratives-with-the-leading-frames/"><u>[New] 2024 Approved Crafting Visual Narratives with the Leading Frames</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-lg-27ud88-w-4k-usb-type-c-monitor-complete-review/"><u>[New] 2024 Approved LG 27UD88-W 4K USB Type-C Monitor Complete Review</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-ultimate-psd-style-boosting/"><u>[New] 2024 Approved Ultimate PSD Style Boosting</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-beyond-youtube-elite-video-sharing-hubs-revealed-for-2024/"><u>[New] Beyond YouTube Elite Video Sharing Hubs Revealed for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-get-ahead-with-these-must-know-pixlr-techniques-for-2024/"><u>[New] Get Ahead with These Must-Know Pixlr Techniques for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-ideal-matches-free-and-paid-ultra-hd-playback-tools-for-windows-macos/"><u>[New] In 2024, Ideal Matches Free & Paid Ultra HD Playback Tools for Windows, macOS</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-integrating-harmonious-sounds-into-your-canva-videos/"><u>[New] In 2024, Integrating Harmonious Sounds Into Your Canva Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-onlineoffline-animation-revolution-with-zero-price-tag/"><u>[New] Online/Offline Animation Revolution with Zero Price Tag</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-flight-paths-revealed-full-review-of-dji-phantom-4/"><u>[Updated] 2024 Approved Flight Paths Revealed Full Review of DJI Phantom 4</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-delving-into-new-iphone-photography-paradigms-with-ios-11/"><u>[Updated] Delving Into New iPhone Photography Paradigms with iOS 11</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-laughlineup-app-become-a-master-at-memes/"><u>[Updated] In 2024, LaughLineup App - Become a Master at Memes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-thriving-in-the-streaming-scene-overcoming-subscriber-limitations/"><u>[Updated] In 2024, Thriving in the Streaming Scene Overcoming Subscriber Limitations</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-best-selling-oculus-rift-gaming-experiences/"><u>[Updated] The Best-Selling Oculus Rift Gaming Experiences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-lithuanian-language-digital-mastery-steps/"><u>Conquer Lithuanian Language: Digital Mastery Steps</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-xiaomi-redmi-12-5g-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Xiaomi Redmi 12 5G If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/identifying-and-resolving-periodic-and-sluggish-internet-connection-problems-expert-insights-from-yl-computings-network-solutions/"><u>Identifying and Resolving Periodic & Sluggish Internet Connection Problems: Expert Insights From YL Computing's Network Solutions</u></a></li>
+<li><a href="https://fox-that.techidaily.com/the-inside-scoop-on-the-iphone-14s-battery-lifespan-and-potential-problems/"><u>The Inside Scoop on the iPhone 14'S Battery Lifespan and Potential Problems</u></a></li>
+</ul></div>
 

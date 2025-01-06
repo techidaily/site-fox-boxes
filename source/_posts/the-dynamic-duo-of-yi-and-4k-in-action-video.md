@@ -1,7 +1,7 @@
 ---
 title: "The Dynamic Duo of Yi and 4K in Action Video"
-date: 2024-08-23T08:02:06.689Z
-updated: 2024-08-24T08:02:06.689Z
+date: 2025-01-03T13:02:34.018Z
+updated: 2025-01-05T22:30:32.894Z
 tags: 
   - screen-recording
   - ai video
@@ -114,11 +114,19 @@ Yi 4K is designed with built in Wi-Fi abilities so that users can make direct co
 
 The future firmware update of Yi 4K+ action camera is supposed to bring so many interesting features into this tiny device. It will be extending support towards live streaming facility and raw images will be soon processed. The most interesting addition will be voice command support that will make control actions much easier during adventurous sports recording needs. This device will be offering impressive high performance service while consuming very low power and all ultra HD videos will deliver crisper details with elegant color distributions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Yi 4K+ is first action camera device to support 60fps frame rate at 4K resolution level and it further provides 8MP support to every still while ensuring crisp and deep details. There are several interesting features inside this tiny action cam including USB-C external mic connectivity and many more. However, you may also find few troubles like it cannot go underwater without protective housing. It not even extends support to live streaming and RAW files cannot be processed. But, even after so many downsides, its amazing video quality makes it standout against all competitors. You must order your new action camera soon.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -143,8 +151,18 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-how-to-retract-macos-upgrade-from-sierra-to-el-capitan/"><u>[New] 2024 Approved How to Retract macOS Upgrade From Sierra to El Capitan</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-unpacking-the-3dr-experience-from-a-single-individual/"><u>[New] 2024 Approved Unpacking the '3DR' Experience From a Single Individual</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-5-premium-4k-displays-for-the-hardcore-gamer-for-2024/"><u>[New] 5 Premium 4K Displays for the Hardcore Gamer for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-elevate-visual-storytelling-in-ar-integrating-downloadable-lut-techniques/"><u>[New] In 2024, Elevate Visual Storytelling in AR Integrating Downloadable LUT Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-key-players-in-top-6-4k-youtube-to-mp3-conversion-software/"><u>[New] In 2024, Key Players in Top 6 4K YouTube-to-MP3 Conversion Software</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-infuse-your-slides-with-clear-voice-communication/"><u>[New] Infuse Your Slides with Clear Voice Communication</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/adapt-or-advance-winning-tactics-in-an-ai-infused-economy/"><u>Adapt or Advance: Winning Tactics in an AI-Infused Economy</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Xiaomi Mix Fold 3? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-motorola-defy-2-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Motorola Defy 2 Phones with/without a PC</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-step-by-step-guide-to-automated-iphone-podcast-downloads/"><u>In 2024, Step-By-Step Guide to Automated iPhone Podcast Downloads</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-split-and-trim-mkv-files-best-free-tools-for-2024/"><u>Updated Split and Trim MKV Files Best Free Tools for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
