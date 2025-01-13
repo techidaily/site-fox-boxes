@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Reinforcing Windows Photo Viewer Functionality in Windows 10"
-date: 2024-12-31T02:04:43.730Z
-updated: 2025-01-06T07:05:17.233Z
+date: 2025-01-09T04:17:59.765Z
+updated: 2025-01-13T03:32:40.602Z
 tags: 
   - screen-recording
   - ai video
@@ -62,6 +62,10 @@ Here is why they want to restore Windows Photo Viewer –
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Method 1 to restore Windows Photo Viewer
 
 The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
@@ -71,16 +75,12 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -97,7 +97,7 @@ Here is the detailed guide –
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
@@ -105,11 +105,11 @@ Here is the detailed guide –
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -145,18 +145,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-high-quality-audio-excellence-with-these-mics/"><u>[New] High-Quality Audio Excellence with These Mics</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-drone-giants-competing-dji-mavic-meets-karma/"><u>[New] In 2024, Drone Giants Competing DJi Mavic Meets Karma</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-iphone-users-guide-to-picture-softening-four-ways/"><u>[New] IPhone Users' Guide to Picture Softening (Four Ways)</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-ultimate-ai-powered-image-editor/"><u>[Updated] In 2024, Ultimate AI-Powered Image Editor</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fixing-league-of-legends-crashing-issues-like-a-pro-effortlessly/"><u>Fixing League of Legends Crashing Issues Like a Pro, Effortlessly</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/guia-paso-a-paso-para-convertir-archivos-png-a-jpeg-sin-costo-alguno-mediante-movavi-metodo-mas-eficiente-y-facil-de-usar/"><u>Guía Paso a Paso Para Convertir Archivos PNG a JPEG Sin Costo Alguno Mediante Movavi: Método Más Eficiente Y Fácil De Usar</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/highpoint-craftsman-workspace-review/"><u>Highpoint Craftsman Workspace Review</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-activation-lock-on-mac-for-apple-iphone-14-pro-max-by-drfone-ios/"><u>How To Bypass iCloud Activation Lock on Mac For Apple iPhone 14 Pro Max?</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-decision-time-choose-your-dream-video-editor-filmora-or-democracy-creator/"><u>In 2024, Decision Time! Choose Your Dream Video Editor (Filmora or Democracy Creator)</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-selective-list-of-pro-gopro-add-ons/"><u>In 2024, Selective List of Pro-Gopro Add-Ons</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-nubia-z50-ultra-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Nubia Z50 Ultra Location | Dr.fone</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-to-help-you-evaluate-which-webcam-software-best-suits-your-needs-ive-featured-pros-cons-etc-in-this-list-of-the-best-free-webcam-software-for-windows-10/"><u>New To Help You Evaluate Which Webcam Software Best Suits Your Needs, Ive Featured Pros, Cons, Etc in This List of the Best Free Webcam Software for Windows 10</u></a></li>
-<li><a href="https://games-able.techidaily.com/nvidias-latest-dlss-enhancement-with-ai-technology/"><u>Nvidia's Latest DLSS Enhancement with AI Technology</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-a-comprehensive-guide-to-professional-level-video-editing-on-windows-11/"><u>[New] 2024 Approved A Comprehensive Guide to Professional-Level Video Editing on Windows 11</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-ultimate-action-cam-for-high-intensity-sports/"><u>[New] 2024 Approved Ultimate Action Cam for High-Intensity Sports</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/xpanding-your-reach-a-complete-guide-to-popularizing-youtube-shorts-for-2024/"><u>[New] Expanding Your Reach A Complete Guide to Popularizing YouTube Shorts for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-exploring-hidden-gems-secrets-on-locating-superb-insta-ringtunes-and-creating-noteworthy-chimes-for-2024/"><u>[New] Exploring Hidden Gems Secrets on Locating Superb Insta-Ringtunes & Creating Noteworthy Chimes for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-rhythmic-resonance-incor-written-by-assistant-for-2024/"><u>[New] Rhythmic Resonance Incor Written by Assistant for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-streamlining-your-editing-workflow-with-final-cut-pro-tips/"><u>[New] Streamlining Your Editing Workflow with Final Cut Pro Tips</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-understanding-whatsapps-sound-conversations-for-2024/"><u>[New] Understanding WhatsApp's Sound Conversations for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-precision-gameplay-with-proximity-focus-in-roblox-for-2024/"><u>[Updated] Precision Gameplay with Proximity Focus in Roblox for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-prospects-picks-the-highest-livestream-sites/"><u>[Updated] Prospects' Picks The Highest Livestream Sites</u></a></li>
+<li><a href="https://win11.techidaily.com/converting-speech-to-text-on-the-spot-with-whisper/"><u>Converting Speech to Text on the Spot with Whisper</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/exclusive-free-player-list-for-windowsmac-users-for-2024/"><u>Exclusive Free Player List for Windows/Mac Users for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/google-images-and-you-fast-collages-created-in-seconds/"><u>Google Images & You Fast Collages Created in Seconds</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-track-apple-iphone-8-plus-by-phone-number-drfone-by-drfone-virtual-ios/"><u>How to Track Apple iPhone 8 Plus by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-steps-to-create-an-impactful-youtube-trailer/"><u>In 2024, Steps to Create an Impactful YouTube Trailer</u></a></li>
+<li><a href="https://discover-great.techidaily.com/reverse-the-upgrades-a-comprehensive-guide-to-switching-from-windows-881-to-windows-7-professional/"><u>Reverse the Upgrades: A Comprehensive Guide to Switching From Windows 8/8.1 to Windows 7 Professional</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/skyrocket-your-earnings-by-mastering-youtube-shorts-monetization/"><u>Skyrocket Your Earnings by Mastering YouTube Shorts Monetization</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-key-to-smooth-auditory-transitions-for-2024/"><u>The Key to Smooth Auditory Transitions for 2024</u></a></li>
 </ul></div>
 

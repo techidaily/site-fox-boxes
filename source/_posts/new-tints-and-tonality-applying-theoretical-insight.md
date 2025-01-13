@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Tints & Tonality  Applying Theoretical Insight\""
-date: 2025-01-02T01:39:19.678Z
-updated: 2025-01-06T10:02:19.625Z
+date: 2025-01-11T20:55:01.283Z
+updated: 2025-01-13T03:41:23.356Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ If you are more selective with your colors in your videos or imagery the viewer 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is Color Theory
@@ -44,7 +44,7 @@ Using red, green and blue as primary colors we can mix the colors to one another
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
@@ -55,6 +55,10 @@ So now we know how the wheel is made and what it looks like. What does it do? We
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
 These colors always work as they create contrast and stability.
@@ -64,7 +68,7 @@ The blue lines represent what is known as split contrasting colors and these wil
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## But How Do I Use This
@@ -80,14 +84,10 @@ As you can see from this example the base color for the scene is a dark blue/pur
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -123,22 +123,16 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-determining-the-price-to-film-a-melody-on-camera/"><u>[New] Determining the Price to Film a Melody on Camera</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-rapid-windows-review-a-step-by-step-approach/"><u>[New] Rapid Windows Review A Step-by-Step Approach</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-leading-tactics-sourcing-high-quality-photo-and-video-backdrops/"><u>[Updated] 2024 Approved Leading Tactics Sourcing High-Quality Photo & Video Backdrops</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-elevate-your-alerts-a-comprehensive-look-at-customizing-ringtone-and-sound-settings-on-android-for-2024/"><u>[Updated] Elevate Your Alerts A Comprehensive Look at Customizing Ringtone & Sound Settings on Android for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-mastering-indoor-brightness-sunlight-strategies-inside/"><u>[Updated] In 2024, Mastering Indoor Brightness Sunlight Strategies Inside</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-professional-tips-for-using-luts-in-adobe-after-effects/"><u>[Updated] In 2024, Professional Tips for Using LUTs in Adobe After Effects</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-master-the-archive-navigating-social-media-live-recordings-for-2024/"><u>[Updated] Master the Archive Navigating Social Media Live Recordings for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-samsung-galaxy-a15-4g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Samsung Galaxy A15 4G Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-nokia-150-2023-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Nokia 150 (2023) for Free? | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-optimal-assortment-premier-webcam-stabilizers/"><u>In 2024, Optimal Assortment Premier Webcam Stabilizers</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-vivo-s18-pro-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Vivo S18 Pro FRP</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/pro-filmmakers-camera-essentials-the-best-10-list-for-2024/"><u>Pro Filmmaker's Camera Essentials - The Best 10 List for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/sound-sleuths-unite-free-beats-tracking-tools-for-2024/"><u>Sound Sleuths Unite! Free Beats-Tracking Tools for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2596132-9781785353413-the-human-experience-is-the-dance-of-heaven-and-earth/"><u>The Human Experience Is The Dance Of Heaven And Earth | Free Book</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-essential-audioscape-a-list-of-prime-online-hubs-for-free-movie-clip-tracks-for-2024/"><u>Updated Essential Audioscape A List of Prime Online Hubs for Free Movie Clip Tracks for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/bes-top-marketing-moves-for-business-growth-unveiled/"><u>YouTube's Top Marketing Moves for Business Growth Unveiled</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-essential-techniques-in-capturing-live-sports-on-camera/"><u>[New] In 2024, Essential Techniques in Capturing Live Sports on Camera</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-maximize-engagement-optimal-twitters-video-converters-for-2024/"><u>[New] Maximize Engagement Optimal Twitters Video Converters for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-pros-cons-and-guide-to-utilizing-samsung-photo-editor/"><u>[New] Pros, Con's, and Guide to Utilizing Samsung PHOTO EDITOR</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-premier-index-of-digital-imagery-collections/"><u>[Updated] In 2024, Premier Index of Digital Imagery Collections</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-spectacited-sight-top-ranked-phones-with-elite-4k-camera-features/"><u>[Updated] In 2024, Spectacited Sight Top-Ranked Phones with Elite 4K Camera Features</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/comprehensive-analysis-of-apples-latest-innovation-the-2019-ipad-air-a-new-era-in-multimedia-entertainment/"><u>Comprehensive Analysis of Apple's Latest Innovation - The 2019 iPad Air: A New Era in Multimedia Entertainment</u></a></li>
+<li><a href="https://fox-that.techidaily.com/diy-iphone-repairs-with-dfu-mode-top-5-issues-you-can-fix-yourself/"><u>DIY iPhone Repairs with DFU Mode: Top 5 Issues You Can Fix Yourself</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/easy-guide-to-saving-vvvvid-videos-locally-on-macos-and-windows-pcs/"><u>Easy Guide to Saving VVVVID Videos Locally on macOS & Windows PCs</u></a></li>
+<li><a href="https://win-blog.techidaily.com/resolving-game-breaking-crashes-for-star-wars-old-republic-expert-fixes-unlocked/"><u>Resolving Game-Breaking Crashes for Star Wars Old Republic - Expert Fixes Unlocked</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solving-your-iphones-blackout-crisis-a-step-by-step-guide/"><u>Solving Your iPhone's Blackout Crisis: A Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-complete-breakdown-of-amazons-fire-hd-10-a-must-have-for-family-media-lovers/"><u>The Complete Breakdown of Amazon's Fire HD 10 - A Must-Have for Family Media Lovers</u></a></li>
 </ul></div>
 
