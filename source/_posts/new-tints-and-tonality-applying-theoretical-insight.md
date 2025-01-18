@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Tints & Tonality  Applying Theoretical Insight\""
-date: 2025-01-11T20:55:01.283Z
-updated: 2025-01-13T03:41:23.356Z
+date: 2025-01-14T17:45:38.891Z
+updated: 2025-01-18T17:38:42.018Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ If you are more selective with your colors in your videos or imagery the viewer 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is Color Theory
@@ -44,20 +44,20 @@ Using red, green and blue as primary colors we can mix the colors to one another
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Color Harmony
 
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
@@ -68,7 +68,7 @@ The blue lines represent what is known as split contrasting colors and these wil
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## But How Do I Use This
@@ -83,11 +83,11 @@ As you can see from this example the base color for the scene is a dark blue/pur
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -123,16 +123,20 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-essential-techniques-in-capturing-live-sports-on-camera/"><u>[New] In 2024, Essential Techniques in Capturing Live Sports on Camera</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-maximize-engagement-optimal-twitters-video-converters-for-2024/"><u>[New] Maximize Engagement Optimal Twitters Video Converters for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-pros-cons-and-guide-to-utilizing-samsung-photo-editor/"><u>[New] Pros, Con's, and Guide to Utilizing Samsung PHOTO EDITOR</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-premier-index-of-digital-imagery-collections/"><u>[Updated] In 2024, Premier Index of Digital Imagery Collections</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-spectacited-sight-top-ranked-phones-with-elite-4k-camera-features/"><u>[Updated] In 2024, Spectacited Sight Top-Ranked Phones with Elite 4K Camera Features</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/comprehensive-analysis-of-apples-latest-innovation-the-2019-ipad-air-a-new-era-in-multimedia-entertainment/"><u>Comprehensive Analysis of Apple's Latest Innovation - The 2019 iPad Air: A New Era in Multimedia Entertainment</u></a></li>
-<li><a href="https://fox-that.techidaily.com/diy-iphone-repairs-with-dfu-mode-top-5-issues-you-can-fix-yourself/"><u>DIY iPhone Repairs with DFU Mode: Top 5 Issues You Can Fix Yourself</u></a></li>
-<li><a href="https://discover-answers.techidaily.com/easy-guide-to-saving-vvvvid-videos-locally-on-macos-and-windows-pcs/"><u>Easy Guide to Saving VVVVID Videos Locally on macOS & Windows PCs</u></a></li>
-<li><a href="https://win-blog.techidaily.com/resolving-game-breaking-crashes-for-star-wars-old-republic-expert-fixes-unlocked/"><u>Resolving Game-Breaking Crashes for Star Wars Old Republic - Expert Fixes Unlocked</u></a></li>
-<li><a href="https://fox-that.techidaily.com/solving-your-iphones-blackout-crisis-a-step-by-step-guide/"><u>Solving Your iPhone's Blackout Crisis: A Step-by-Step Guide</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/the-complete-breakdown-of-amazons-fire-hd-10-a-must-have-for-family-media-lovers/"><u>The Complete Breakdown of Amazon's Fire HD 10 - A Must-Have for Family Media Lovers</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-mixed-reality-shopping-showcase/"><u>[New] 2024 Approved Mixed Reality Shopping Showcase</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-invest-in-insta-success-the-top-earners-playbook/"><u>[New] Invest in Insta Success The Top Earners' Playbook</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-navigating-the-intricacies-of-kinemasters-zooming-capabilities/"><u>[Updated] 2024 Approved Navigating the Intricacies of Kinemaster's Zooming Capabilities</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-showcasing-certifications-and-education/"><u>[Updated] 2024 Approved Showcasing Certifications & Education</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-chucklecanvas-jokesinframes-for-2024/"><u>[Updated] ChuckleCanvas JokesInFrames for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-silence-unwanted-post-suggestions-on-insta/"><u>[Updated] In 2024, Silence Unwanted Post Suggestions on Insta</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-unifying-platforms-the-art-of-incorporating-linktree-in-tiktok-biographies/"><u>[Updated] Unifying Platforms The Art of Incorporating Linktree in TikTok Biographies</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-unveiling-the-secrets-of-engaging-haul-video-production-for-2024/"><u>[Updated] Unveiling the Secrets of Engaging Haul Video Production for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-realme-11-proplus-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Realme 11 Pro+ to iPhone | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/best-practices-for-organizing-online-video-stories/"><u>Best Practices for Organizing Online Video Stories</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-se-2020-to-androidios-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone SE (2020) to Android/iOS? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-oppo-a1-5g-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Oppo A1 5G to Another | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/simplifying-connection-combining-linkedin-profile-with-your-tiktok-bio-for-2024/"><u>Simplifying Connection Combining LinkedIn Profile with Your TikTok Bio for 2024</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/stellar-reimagines-mac-12v-data-retrieval-software/"><u>Stellar Reimagines Mac 12v Data Retrieval Software</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/top-8-mobile-montages-androidios-screenshot-wonders/"><u>Top 8 Mobile Montages Android/iOS Screenshot Wonders</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Memorable Moments From the 2022 Skatescape"
-date: 2025-01-12T02:13:28.916Z
-updated: 2025-01-12T16:30:31.521Z
+date: 2025-01-14T19:19:24.349Z
+updated: 2025-01-18T17:24:25.666Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ Nathan Chen of the United States won the gold medal at the 2022 Beijing Winter O
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. Highlights of Figure Skating Olympics Games Beijing2022
 
 In Olympic competition, skaters need to perform two minutes and 40 seconds short program and four minutes free skate and the winner is decided based on combined score.
@@ -38,10 +42,6 @@ Nathan Chen got the combined score of 332.60 in short program and free skate com
 Nathan Chen of the United States reacts to winning the gold medal at the 2022 Beijing Winter Olympics. He successfully hit five quadruple jumps which helped him outshine others.
 
 ![nathan chen skating gold medal](https://images.wondershare.com/filmora/article-images/nathan-chen-skating-gold-medal.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United States. He receives a combined score of 310.05 points and wins the silver medal at the 2022 Beijing Winter Olympics.
 
@@ -55,16 +55,12 @@ Nathan Chen successful triumph has been four years in the making and it is a per
 
 ![nathan chen best male skater](https://images.wondershare.com/filmora/article-images/nathan-chen-best-male-skater.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Even though Nathan Chen finished first for men's short program of the team event, United States could not hold to the first position and losing to ROC.
 
 ![russian olympic committee athletes](https://images.wondershare.com/filmora/article-images/russian-olympic-committee-athletes.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Russian Olympic Committee athletes won the gold medal at team event by a margin of 9 points with the combined score of 74\. United States won the silver medal with a combined score of 65 points.
@@ -72,6 +68,10 @@ Russian Olympic Committee athletes won the gold medal at team event by a margin 
 ![japan won the bronze medal](https://images.wondershare.com/filmora/article-images/japan-won-the-bronze-medal.jpg)
 
 Japan won the bronze medal with 63 points falling short by 2 points 2 behind the United States. The figure skating competition is held at the Capital Indoor Stadium in Beijing.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. Create a Video for Showing the Highlights of Figure Skating
 
@@ -93,6 +93,10 @@ Step 1: Download and install Filmora. Launch Filmora and click on New Project.
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 2: Go to File > Project Settings and set the parameters as per your requirements.
 
 Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all the still photos and video footage clips you have collected about figure skating Olympics. You can trim them and maintain uniformity throughout.
@@ -100,7 +104,7 @@ Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all
 ![filmora edit videos](https://images.wondershare.com/filmora/article-images/edit-recordings-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 4: You need to add all imported media files to Video Timeline while you should add background music or voiceover to the Audio Timeline.
@@ -108,10 +112,6 @@ Step 4: You need to add all imported media files to Video Timeline while you sho
 Step 5: Select individual or multiple slides and add Transitions, Effects, Titles and Elements.
 
 Step 6: When everything is done, click on Export to save the video and share anywhere you want.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -136,24 +136,20 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-sharing-tunes-instagram-copyright-edicts/"><u>[New] 2024 Approved Sharing Tunes Instagram Copyright Edicts</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-bridging-visual-and-auditory-elements-adding-music-to-premiere-projects-for-2024/"><u>[New] Bridging Visual and Auditory Elements Adding Music to Premiere Projects for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-liberate-iphone-photos-from-red-eye-effects-at-no-cost/"><u>[New] Liberate iPhone Photos From Red Eye Effects at No Cost</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-the-best-10-online-subtitle-editors-for-2024/"><u>[New] The Best 10 Online Subtitle Editors for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-decoding-the-art-of-enhanced-perception/"><u>[Updated] 2024 Approved Decoding the Art of Enhanced Perception</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-choosing-the-right-gimbal-for-flawless-youtube-footage-for-2024/"><u>[Updated] Choosing the Right Gimbal for Flawless YouTube Footage for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-unbeatable-summer-movie-list-10-familial-classics/"><u>[Updated] In 2024, Unbeatable Summer Movie List 10 Familial Classics</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-inside-look-the-future-of-home-cam-recordings-for-2024/"><u>[Updated] Inside Look The Future of Home Cam Recordings for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-old-tech-new-memories-portraits-from-iphone-x-for-2024/"><u>[Updated] Old Tech, New Memories Portraits From iPhone X for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/best-free-apple-iphone-15-pro-imei-checker-by-drfone-ios/"><u>Best Free Apple iPhone 15 Pro IMEI Checker</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/betting-basement-bookmarks/"><u>BETTING BASEMENT BOOKMARKS</u></a></li>
-<li><a href="https://techidaily.com/how-to-hard-reset-xiaomi-redmi-note-13-5g-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Xiaomi Redmi Note 13 5G Without Password | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-laying-foundations-for-understanding-av1-tech/"><u>In 2024, Laying Foundations for Understanding AV1 Tech</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-making-cash-with-zero-skills-check-out-these-13-ways-on-reddit/"><u>In 2024, Making Cash with Zero Skills? Check Out These 13 Ways on Reddit</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211045579-9782017229551-lhypnose-spirituelle/"><u>L'hypnose spirituelle | Free Book</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/mastering-visual-effects-on-a-budget-essential-tutorials-and-techniques-from-4-vfx-experts-videos-for-2024/"><u>Mastering Visual Effects on a Budget Essential Tutorials and Techniques From 4 VFX Experts' Videos for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/transforming-search-the-future-of-microsoft-bing-with-enhanced-ai-capabilities/"><u>Transforming Search: The Future of Microsoft Bing with Enhanced AI Capabilities</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-wevideo-your-go-to-platform-for-easy-video-creation/"><u>Updated WeVideo Your Go-To Platform for Easy Video Creation</u></a></li>
-<li><a href="https://win-superb.techidaily.com/windows-7windows-11/"><u>Windows 7からWindows 11へ円滑なアップグレード:バックアップと移行のステップ</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-how-to-add-crop-and-edit-music-to-canva-video/"><u>[New] 2024 Approved How To Add, Crop, And Edit Music To Canva Video?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-the-streaming-platform-faceoff-twitch-versus-youtube-analysis/"><u>[New] 2024 Approved The Streaming Platform Faceoff Twitch Versus YouTube Analysis</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-best-multiple-video-call-and-chat-tools/"><u>[New] Best Multiple Video Call & Chat Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-transform-your-images-with-text-a-windowsmacos-expertise-guide-for-2024/"><u>[New] Transform Your Images with Text A Windows/MacOS Expertise Guide for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-how-to-amass-a-picture-collection-for-free-the-ultimate-12-website-guide/"><u>[Updated] How to Amass a Picture Collection for Free – The Ultimate 12 Website Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-satirical-shots-reimagined-the-best-onlineiosandroid-tools/"><u>[Updated] In 2024, Satirical Shots Reimagined The Best Online/iOS/Android Tools</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-behind-the-scenes-with-viral-image-memes-and-stories/"><u>2024 Approved Behind the Scenes with Viral Image Memes & Stories</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-honor-x9awithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Honor X9awith/without a PC</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/innovative-approaches-to-cbt-with-conversational-ai-leveraging-chatgpt-for-treatment/"><u>Innovative Approaches to CBT with Conversational AI: Leveraging ChatGPT for Treatment</u></a></li>
+<li><a href="https://fox-http.techidaily.com/mastering-canva-10-best-practices-unveiled/"><u>Mastering Canva 10 Best Practices Unveiled</u></a></li>
+<li><a href="https://windows11.techidaily.com/navigating-through-virtual-disk-service-failures-in-windows/"><u>Navigating Through Virtual Disk Service Failures in Windows</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/splurge-without-the-price-tag-elite-devices-at-budget-rates/"><u>Splurge Without the Price Tag: Elite Devices at Budget Rates</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-ultimate-guide-to-choosing-the-best-free-photo-collage-ios-apps-for-2024/"><u>The Ultimate Guide to Choosing the Best FREE Photo Collage iOS Apps for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-the-recommended-natural-ai-hindi-voice-generator/"><u>Updated In 2024, The Recommended Natural AI Hindi Voice Generator</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>Which Pokémon can Evolve with a Moon Stone For Apple iPhone XR? | Dr.fone</u></a></li>
 </ul></div>
 

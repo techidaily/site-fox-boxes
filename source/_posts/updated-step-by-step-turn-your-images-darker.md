@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step  Turn Your Images Darker\""
-date: 2024-08-16T04:48:05.205Z
-updated: 2024-08-17T04:48:05.205Z
+date: 2025-01-15T16:15:41.142Z
+updated: 2025-01-18T18:35:31.841Z
 tags: 
   - screen-recording
   - ai video
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
 
 During the age of analog photography, the image negative was one of the most important artifacts for photographers, because it enabled them to reproduce a picture as many times as they wanted. Years later photographers invert colors in photos for mostly aesthetical reasons since only a small number of photographers still take photos with analog cameras. Regardless of the type of camera you’re using, inverting colors in a photo is a straightforward process that doesn’t require too much effort. In this article, we are going to take you through some of the best options on Mac and PC computers, as well as Android phones and iPhones that let you invert colors in just a few easy steps. So, let’s dive in.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Make Image Negative of a Digital Photo?
 
 The Invert option is commonly used to invert a scanned film negative to color, but this doesn’t’ mean that you can’t use this effect in very different contexts. However, the extensive and unselective use of this effect can ruin a perfect photo. Here’s how you can invert colors in your photos.
@@ -39,6 +43,10 @@ The Invert option is commonly used to invert a scanned film negative to color, b
 **Compatibility:** Windows
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/ms-paint-invert-color.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Open the photo you’d like to invert with MS Paint, and then choose the **Select All option** from the **Select Menu**. **Right-click** on the picture and click on the **Invert Color** option. The colors in the image will be automatically inverted, so you can then head over to the **Save As submenu** in the **File menu** to select the file format of the new photo.
 
@@ -54,6 +62,10 @@ Besides creating image negatives, the Preview app lets you convert image files a
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color-original.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Clicking on the **Adjust Color feature** will bring up the color adjustment panel that contains **Black Level and White Level** sliders. To invert the colors in the photo you have to drag the **Black Level slider to the right** and the **White Level Slider to the left.**
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color.jpg)
@@ -68,6 +80,10 @@ You can experiment with the values you assign to each of these sliders in order 
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/pinetools-invert-image-colors.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The platform’s homepage contains a number of categories of tools such as **Colors, Numbers, Text and Lists or Images**. Clicking on the **Images category** will grant you the access to all photo editing tools PineTools offers, so you just have to click on the **Invert Colors** options to start the process of inverting a photo online. Once the **Invert Colors window** loads, you can click on the **Choose File button** to select a photo you’d like to invert. When the upload is completed, simply click on the **Invert button** located near the bottom of the screen and the platform will automatically invert the colors in your photo. To save the watermark-free image with inverted colors you just have to click on **PNG, JPEG or WEBP file** formats that are displayed above the preview of the picture.
 
 #### 4. Inverting colors in [tjshome](http://tjshome.com/imageconverter.php) Image Editor
@@ -77,6 +93,10 @@ The platform’s homepage contains a number of categories of tools such as **Col
 **Compatibility** **:** Online platform
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/imageconverter-tjshome.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In addition to a rich selection of effects you can apply to images, tjshome also lets you browse through **Funny Dumb Laws, Famous Quotes or Funny Status Messages** categories. Click on the **Image Filter** category in order to view all effects the platform offers. Make sure that the **Reverse Colors/Negate effect** is selected, and then scroll further down the page to **upload the photo you’d like to invert.** When the upload process is completed, you can check the Make **Public checkbox** if you want to add your photo to the tjshome’s gallery. Click on the **Submit** button, and then proceed to save the picture to your computer. This platform lets you invert images in three easy steps, but if you want to have more control over the process, it is better to use a more powerful photo editor.
 
@@ -145,8 +165,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-win-11-mastery-exclusive-less-known-hacks-revealed/"><u>[New] Win 11 Mastery Exclusive, Less-Known Hacks Revealed</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-expanding-possibilities-with-virtual-reality/"><u>[Updated] In 2024, Expanding Possibilities with Virtual Reality</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-step-by-step-ensuring-accurate-age-on-tiktok/"><u>[Updated] In 2024, Step-by-Step Ensuring Accurate Age on TikTok</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-lut-revolution-no-cost-for-your-favorite-dji-minis-and-air-2-beats/"><u>[Updated] LUT Revolution – No Cost for Your Favorite DJI Minis & Air 2 Beats</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-navigating-through-the-world-of-ar-stickers-highlighting-google-for-2024/"><u>[Updated] Navigating Through the World of AR Stickers, Highlighting Google for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-top-10-online-subtitle-converters-for-free-convert-srt-files/"><u>[Updated] Top 10 Online Subtitle Converters for FREE Convert SRT Files</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-value-dome-cameras-offering-unique-cinematic-angles/"><u>2024 Approved Top Value Dome Cameras Offering Unique Cinematic Angles</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/amplify-detail-top-tips-for-shooting-up-closer-with-videoleap/"><u>Amplify Detail Top Tips for Shooting Up Closer with VideoLeap</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/boost-your-training-session-with-expert-level-chatgpt-query-writing-strategies-for-fitness-lovers/"><u>Boost Your Training Session with Expert-Level ChatGPT Query Writing Strategies for Fitness Lovers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-free-frameworks-for-every-movie-epilogue-you-dream/"><u>In 2024, Free Frameworks for Every Movie Epilogue You Dream</u></a></li>
+<li><a href="https://blog-min.techidaily.com/restez-dans-le-coup-transformez-vos-images-dpx-en-jpg-sans-frais-decouvrez-les-trucs-de-movavi/"><u>Restez Dans Le Coup : Transformez Vos Images DPX en JPG Sans Frais - Découvrez Les Trucs De Movavi!</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-art-of-applying-skin-secrets-establishing-an-online-beauty-platform/"><u>The Art of Applying Skin Secrets Establishing an Online Beauty Platform</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-compelling-case-for-integrating-hdr-in-your-workflow/"><u>The Compelling Case for Integrating HDR in Your Workflow</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/top-10-non-sport-hobbies-for-beginners/"><u>Top 10 Non-Sport Hobbies for Beginners</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/top-8-instagram-story-filters/"><u>Top 8 Instagram Story Filters</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/toutes-les-etapes-pour-transformer-un-fichier-mod-en-mp3-gratuitement-sur-internet-guide-rapide-avec-movavi/"><u>Toutes Les Étapes Pour Transformer Un Fichier MOD en MP3 Gratuitement Sur Internet - Guide Rapide Avec Movavi</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unleash-the-beats-try-these-free-web-scanners-for-2024/"><u>Unleash the Beats Try These Free Web Scanners for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

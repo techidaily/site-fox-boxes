@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Ideal Extra Memory for Sony A7C Model\""
-date: 2024-08-08T14:17:21.254Z
-updated: 2024-08-09T14:17:21.254Z
+date: 2025-01-14T19:05:28.378Z
+updated: 2025-01-18T16:57:37.303Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/c572e526911ff13873cfea2690ee252e9ff11a89c
 
 # Best Memory Card for Sony A7S II
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -34,8 +31,9 @@ thumbnail: https://thmb.techidaily.com/c572e526911ff13873cfea2690ee252e9ff11a89c
  The article below can help you to select right memory cards for your Sony A7S II camera:
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to choose the right memory card for your Sony A7S II
 
 #### Section 1: UHS (Ultra High Speed) Card Classification
@@ -74,8 +72,9 @@ thumbnail: https://thmb.techidaily.com/c572e526911ff13873cfea2690ee252e9ff11a89c
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
 
 <!-- affiliate ads begin -->
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Best Memory Cards for Sony A7S II
 
 #### 1. Sony 64GB High Performance Class 10 UHS-1/U3 SDXC
@@ -114,14 +113,11 @@ thumbnail: https://thmb.techidaily.com/c572e526911ff13873cfea2690ee252e9ff11a89c
 * Extreme Pro is compatible with SDXC devices.
 * Ensures perfect results for Full HD, 3D and 4K resolution levels.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -146,4 +142,21 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-time-saving-techniques-from-complicated-srt-to-simplified-txt/"><u>[New] 2024 Approved Time-Saving Techniques From Complicated SRT to Simplified TXT</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-bring-order-to-your-digital-memories-ios-album-structure-and-icloud-backup-synergy-for-2024/"><u>[New] Bring Order to Your Digital Memories IOS Album Structure & iCloud Backup Synergy for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-chronology-on-camera-best-practices-for-date-insertion/"><u>[New] Chronology on Camera Best Practices for Date Insertion</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-mastering-windows-pc-live-tv-recording-tips-and-tricks-for-2024/"><u>[New] Mastering Windows PC Live TV Recording Tips & Tricks for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-the-ultimate-list-of-superior-live-streaming-services/"><u>[New] The Ultimate List of Superior Live Streaming Services</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-comprehensiveness-in-film-capture-vs-dimensionality-in-visuals/"><u>[Updated] Comprehensiveness in Film Capture vs Dimensionality in Visuals</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-elevate-and-explore-top-wins11-apps-and-games-guide-for-2024/"><u>[Updated] Elevate and Explore Top Wins11 Apps & Games Guide for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-efficient-methods-for-top-tier-gopro-studio-editing/"><u>[Updated] In 2024, Efficient Methods for Top-Tier GoPro Studio Editing</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-poco-x6-pro-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Poco X6 Pro?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-15-pro-to-other-iphone-13-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 15 Pro to other iPhone 13 devices? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-iphone-is-disabled-here-is-the-way-to-unlock-disabled-iphone-14-drfone-by-drfone-ios/"><u>In 2024, iPhone Is Disabled? Here Is The Way To Unlock Disabled iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-superior-streaming-made-simple-enabling-av1-in-youtube/"><u>In 2024, Superior Streaming Made Simple Enabling AV1 in YouTube</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-assessing-apple-watch-s9-and-fitbit-charge-6-side-by-side/"><u>In Depth Review: Assessing Apple Watch S9 and Fitbit Charge 6 Side by Side</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>iPogo will be the new iSpoofer On Apple iPhone 14 Pro? | Dr.fone</u></a></li>
+</ul></div>
 
