@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Video to Photo  Windows 11 Methodology\""
-date: 2025-01-13T16:07:13.336Z
-updated: 2025-01-18T19:13:54.786Z
+date: 2025-01-19T16:40:11.380Z
+updated: 2025-01-24T16:34:01.590Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,10 @@ In this article, you will learn how to save photo from Windows 10 Photos app and
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to save photo from Windows 10 Photos app
 
 In this part of the article, we are going to discuss, how you would save photo from video with Windows 10 Photos app. The Photos app has numerous features for you, and the editing tools would simply amaze you. You can use the Windows Ink to write on the images or capture stills from a video for that matter. Let’s see, how to save photo from video using Windows 10 Photos app –
@@ -52,10 +56,6 @@ Creating a living image:
 
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Now, you can see the living picture by tapping ‘Play’ button.
 
 These photos are stored in the ‘Pictures’ folder of your computer having ‘LI’ appended file names. Now, it’s time to save the living image as photo on your computer using Photos app.
@@ -65,11 +65,11 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Why I can’t save photo from video
 
@@ -77,17 +77,9 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 
 We are explaining the solutions here –
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Sign in a different account in Microsoft Store
 
@@ -112,11 +104,19 @@ Here comes the guide –
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -143,20 +143,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-effortless-video-editing-on-windows-10-no-advanced-software-required/"><u>[New] 2024 Approved Effortless Video Editing on Windows 10 No Advanced Software Required</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-enriching-zoom-video-clarity-essential-tips/"><u>[New] 2024 Approved Enriching Zoom Video Clarity Essential Tips</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-exploring-intensified-illumination-for-advanced-hdr-video/"><u>[New] 2024 Approved Exploring Intensified Illumination for Advanced HDR Video</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-flawlessbackgroundfixer-premium-photo-editing-app/"><u>[New] 2024 Approved FlawlessBackgroundFixer Premium Photo Editing App</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-secrets-of-speed-instant-background-cleanse-techniques/"><u>[New] 2024 Approved Secrets of Speed Instant Background Cleanse Techniques</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-perfect-every-shot-get-10plus-lut-packs-many-free/"><u>[Updated] 2024 Approved Perfect Every Shot Get 10+ LUT Packs, Many Free</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-making-your-favorite-tiktok-beats-your-personal-mobile-alarm-signal/"><u>[Updated] Making Your Favorite TikTok Beats Your Personal Mobile Alarm Signal</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-peek-at-sonys-high-end-smartphone-the-xperia-xz-4k-reveal/"><u>[Updated] Peek at Sony's High-End Smartphone - The Xperia XZ 4K Reveal</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722976268154-get-your-steelseries-game-controllers-upgraded-windows-10-compatible-driver-pack-available-now/"><u>Get Your SteelSeries Game Controllers Upgraded: Windows 10 Compatible Driver Pack Available Now!</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/how-to-download-windows-movie-maker-6/"><u>How to Download Windows Movie Maker 6</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-the-new-frontier-of-jaunt-vr-experiences/"><u>In 2024, The New Frontier of Jaunt VR Experiences</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/mastering-the-art-of-virtual-visuals-zooms-step-by-step-filters-guide-for-2024/"><u>Mastering the Art of Virtual Visuals Zoom's Step-By Step Filters Guide for 2024</u></a></li>
-<li><a href="https://app-tips.techidaily.com/quick-and-easy-guide-to-rapid-iphone-app-migration-discover-the-fastest-transfer-techniques/"><u>Quick & Easy Guide to Rapid iPhone App Migration: Discover the Fastest Transfer Techniques</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unbiased-apple-airtag-assessment-the-optimal-companion-for-your-iphone/"><u>Unbiased Apple AirTag Assessment: The Optimal Companion for Your iPhone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-tecno-spark-10-5g-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Tecno Spark 10 5G Phone Network-Ready</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-craft-laughs-eyedroppermemes/"><u>[New] 2024 Approved Craft Laughs EyeDropperMemes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-unbound-zen-audio-releases/"><u>[New] In 2024, Unbound Zen Audio Releases</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-intelligent-volume-modulation-strategies/"><u>[Updated] 2024 Approved Intelligent Volume Modulation Strategies</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-chart-topping-video-content-on-youtube-for-2024/"><u>[Updated] Chart-Topping Video Content on YouTube for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-vanish-without-a-trace-tips-for-anonymous-instagram-live/"><u>[Updated] In 2024, Vanish Without A Trace Tips for Anonymous Instagram Live</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-ultimate-guide-to-supercharging-srt-with-macwindows/"><u>[Updated] The Ultimate Guide to Supercharging SRT with Mac/Windows</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-elevate-your-live-streams-high-quality-360-options/"><u>2024 Approved Elevate Your Live Streams High-Quality 360° Options</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/essential-guide-to-implementing-filters-in-media-for-2024/"><u>Essential Guide to Implementing Filters in Media for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-ergohead-mats-performance-in-enhancing-long-term-standing-desk-comfort/"><u>Expert Analysis of the Ergohead Mat's Performance in Enhancing Long-Term Standing Desk Comfort</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/exploring-the-validity-of-instagram-photos-for-2024/"><u>Exploring the Validity of Instagram Photos for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-my-spouse-from-spying-on-my-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop My Spouse from Spying on My Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/integrating-luts-for-dynamic-color-correction-in-premiere-pro/"><u>Integrating LUTs for Dynamic Color Correction in Premiere Pro</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolving-the-stuck-during-update-process-issue-in-msfs-2020-a-step-by-step-guide/"><u>Resolving the 'Stuck During Update Process' Issue in MSFS 2020: A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/skyrocket-your-storage-top-20-free-cloud-services-to-choose-from-1tbplus/"><u>Skyrocket Your Storage - Top 20 Free Cloud Services to Choose From (1TB+)</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1060331-9781476714738-the-new-kitchen-mystic/"><u>The New Kitchen Mystic | Free Book</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-realme-c53-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Realme C53 IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/visual-verdict-clash-sj6-prodigy-versus-yis-4k-masterpiece-for-2024/"><u>Visual Verdict Clash SJ6 Prodigy Versus Yi’s 4K Masterpiece for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] The Complete Guide to Shooting with a Green Screen for 2024"
-date: 2024-08-08T14:14:48.010Z
-updated: 2024-08-09T14:14:48.010Z
+date: 2025-01-18T23:50:55.375Z
+updated: 2025-01-25T03:59:49.806Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/9b6181d7d07722f8a9a54201f128a4424f9e657e4
 
 # How to Shoot a Green Screen Video
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -37,9 +34,6 @@ In the previous blog we have talked about the principle of Green Screen video an
 
 If you are wondering how to compositing the shot green screen video with your main video on your Windows PC or Mac, try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Watch the video tutorial of How to make a green screen video with Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 **Related:**[Resources for green screen effects](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -48,9 +42,6 @@ If you are wondering how to compositing the shot green screen video with your ma
 
 We’ve figured out some useful green screen tricks, have fun and hope you’ll be more creative with the help of Filmora green screen video compositing software.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 In the following section, we will share with you five tips when you shooting a video for compositing a green screen video, which covering the lighting tips, the camera tips, the clothing tips, the tips for using green screen sheet, and the tips for resolving motion blur in shooting videos.
@@ -67,10 +58,11 @@ Check out our picks of [the best lighting equipment for shooting videos](https:/
 
 #### 2Camera tips in shooting a Green Screen Video
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Camera tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-6.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 When lighting your key surface, make sure the bounce light is not directed at the camera (as shown in the image above). For example, if your camera faces the key surface directly, set your lights at 45 degree angles to the key surface. This will ensure that the bounce light bounces toward the other light and not at the camera.
 
@@ -88,19 +80,21 @@ There are some mistakes that you can avoid to help your green screen video look 
 
 #### 4 Wrinkles problem in shooting a Green Screen Video
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ![Wrinkles problem in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Wrinkles in your screen can actually lead to heavy shadows and distorted image quality in your green screen video. If you regularly fold your green screen for storage it's very important that you take an iron out and flat negative green screen to prevent shadows and distortions with your background image. This is a step that many skip over but it's important to have a high-quality green screen without wrinkles and folds that cause shadows.
 
 #### 5 Motion blur problem in shooting a Green Screen Video
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ![Motion blur problem in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-4.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If you are planning on shooting a high action scene in front of a green screen with a camera that only has lower shutter speeds, you can run into real problems. When using a camera with a lower shutter speed consider doing action shots in slow motion or getting subjects to not make any sudden movements in front of the green screen. Motion blur from someone moving rapidly on camera in front of a green screen can really ruin the scene and ruin the realism of the scene. Alternately you could also consider renting a high shutter speed camera to avoid this motion blur if you do plan on shooting a lot of action scenes. Ultimately this is something that you will need to test for yourself before shooting a green screen video, so that you can get a feel for how much action your camera can handle with a green screen without motion blur.
 
@@ -112,7 +106,15 @@ Besides compositing chroma keying videos in Filmora, you can also[stabilize your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -137,4 +139,26 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-colormorph-pro-searching-for-lightroom-equals/"><u>[New] ColorMorph Pro Searching for Lightroom Equals</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-how-to-instantly-recover-lost-reddit-posts-for-2024/"><u>[New] How to Instantly Recover Lost Reddit Posts for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-flawlessrecorder-suite-w10-edition/"><u>[New] In 2024, FlawlessRecorder Suite W10 Edition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-innovative-frame-tools-and-websites-image-editors/"><u>[New] In 2024, Innovative Frame Tools and Websites Image Editors</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-unveiling-the-potential-of-todays-drones-for-tomorrow/"><u>[New] Unveiling the Potential of Today's Drones for Tomorrow</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-how-to-stream-on-mixer-macos/"><u>[Updated] How to Stream on Mixer MacOS</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-vs-video-edition-which-editor-wins-for-filmmaking-in-2024/"><u>[Updated] Vs. Video Edition Which Editor Wins for Filmmaking, In 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-high-staking-habitats-critical-commentary/"><u>2024 Approved HIGH-STAKING HABITATS Critical Commentary</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-strategic-use-of-slug-lines-in-blogging/"><u>2024 Approved Strategic Use of Slug Lines in Blogging</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-synchronized-screenshots-pc-or-cloud-perfection/"><u>2024 Approved Synchronized Screenshots PC or Cloud Perfection</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722971137345-bacterial-self-healing-involves-using-bacteria-within-the-concrete-that-produce-limestone-as-a-byproduct-when-activated-by-moisture-ingress/"><u>Bacterial Self-Healing Involves Using Bacteria Within the Concrete that Produce Limestone as a Byproduct when Activated by Moisture Ingress.</u></a></li>
+<li><a href="https://driver-error.techidaily.com/driver-installation-unsuccessful/"><u>Driver Installation Unsuccessful</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/forgot-apple-iphone-se-2022-backup-password-heres-what-to-do-by-drfone-ios/"><u>Forgot Apple iPhone SE (2022) Backup Password? Heres What to Do</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-apple-iphone-se-2020-to-the-latest-iosipados-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update Apple iPhone SE (2020) to the Latest iOS/iPadOS Version? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-enhancing-imagery-with-illustrators-motion-blur-features/"><u>In 2024, Enhancing Imagery with Illustrator's Motion Blur Features</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Xiaomi Redmi Note 13 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/merge-skype-and-zoom-easy-techniques-for-effective-communication-for-2024/"><u>Merge Skype and Zoom Easy Techniques for Effective Communication for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-this-article-i-will-show-you-how-to-change-the-shape-of-a-video-in-3-different-ways-with-filmora-for-2024/"><u>New In This Article, I Will Show You How to Change the Shape of a Video in 3 Different Ways with Filmora for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/speak-with-synthetic-voices-chromebooks-leading-online-text-to-speech-apps/"><u>Speak with Synthetic Voices Chromebook's Leading Online Text-to-Speech Apps</u></a></li>
+</ul></div>
 

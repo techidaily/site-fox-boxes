@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Innovative Interface Intensity for 2024"
-date: 2025-01-04T16:29:54.591Z
-updated: 2025-01-05T18:07:00.852Z
+date: 2025-01-21T23:07:24.634Z
+updated: 2025-01-24T17:11:38.229Z
 tags: 
   - screen-recording
   - ai video
@@ -27,21 +27,29 @@ After Effects have a wide range of text presets to make the texts and titles in 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Glitch Text Effect Toolkit
 
 Glitch text effect is a trendy effect that gets the viewers’ attention immediately. In this pack, you get 30 glitch text effects that you can apply to the text in your video to make them stand out. These effects are highly adjustable and you can time them in and out of your text as per your preference. Along with glitch text effects, you get glitch sound effects to make the animation impactful. You can experiment with Random seed as well as Glitch maps you get in the pack.
 
 ![glitch text effect toolkit ae](https://images.wondershare.com/filmora/article-images/2022/07/glitch-text-effect-toolkit-ae.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Liquid Text Animation
 
 You get 110 animated elements that you can apply to the text in your video. The effects are perfectly suitable for videos where comedy is the main theme. The liquid text effect looks organic and natural, and the colors are eye-catching to grab everyone’s attention. There are 8 text scenes and one text preset present, along with 110 animated presets. The effects are HD in resolution, and they are modular and adjustable. It is time to download and use them to make your video dynamic.
 
 ![liquid text animation effect ae](https://images.wondershare.com/filmora/article-images/2022/07/liquid-text-animation-effect-ae.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Dynamic Text Animations
 
@@ -56,7 +64,7 @@ If you want to add texts and titles in your video that looks like the games mean
 ![squash stretch preset ae](https://images.wondershare.com/filmora/article-images/2022/07/squash-stretch-preset-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. CounterPro Preset
@@ -65,10 +73,6 @@ In this pack, you will find unique text effects, and you can animate text with k
 
 ![counterpro preset ae](https://images.wondershare.com/filmora/article-images/2022/07/counterpro-preset-ae.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. Text Library
 
 If there is a must-have preset you should manage to have in After Effects is Text Library. There are as many as 1000 text presets available and this will serve all your requirements completely. Starting from animations and effects to transitions, everything is available in different categories for you to choose from and apply to your text. The pack keeps on updating to include trendy and funky text effects so that you do not miss out anything.
@@ -76,11 +80,11 @@ If there is a must-have preset you should manage to have in After Effects is Tex
 ![text library effect ae](https://images.wondershare.com/filmora/article-images/2022/07/text-library-effect-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. Kinetic Text Animation
@@ -88,10 +92,6 @@ If there is a must-have preset you should manage to have in After Effects is Tex
 Kinetic text effect is a part of dynamic text effects and there is a high demand for kinetic text animation. In this pack, you get 56 text animations and all the effects have full HD resolution. The effect will literally transform your video content and help you to get a proper branding on the video. There are different types of animations available and you videos will not look boring by any chance.
 
 ![kinetic text aniamtion ae](https://images.wondershare.com/filmora/article-images/2022/07/kinetic-text-aniamtion-ae.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 8\. Text Animation Lower Third
 
@@ -133,15 +133,20 @@ As the saying goes, the more the merrier and the more presets you have, the more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-19-secrets-to-free-capture-of-virtual-learning-sessions-for-2024/"><u>[New] 19 Secrets to FREE Capture of Virtual Learning Sessions for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/solved-guilty-gear-strive-wont-launch/"><u>[SOLVED] Guilty Gear -Strive- Won't Launch</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-orchestrating-a-journey-through-hidden-youtube-archives/"><u>[Updated] Orchestrating a Journey Through Hidden YouTube Archives</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-swift-shutter-speed-iphone-tricks-for-blur-magic-for-2024/"><u>[Updated] Swift Shutter Speed IPhone Tricks for Blur Magic for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-the-ultimate-guide-to-voice-changes-experts-handbook-for-morphvox-transformation/"><u>[Updated] The Ultimate Guide to Voice Changes Expert's Handbook for MorphVOX Transformation</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-prime-edition-ai-graphic-mastery-software/"><u>2024 Approved Prime Edition AI Graphic Mastery Software</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/discover-novel-webcam-functions-today-for-2024/"><u>Discover Novel Webcam Functions Today for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-snapshots-from-videos-within-windows-11-photos-app/"><u>In 2024, Snapshots From Videos Within Windows 11 Photos App</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/speech-recognition-made-accessible-transforming-audio-to-text-with-ease-in-microsoft-word-for-2024/"><u>Speech Recognition Made Accessible Transforming Audio to Text with Ease in Microsoft Word for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/top-tablets-exclusively-designed-for-amateur-and-professional-photographers-for-2024/"><u>Top Tablets Exclusively Designed for Amateur and Professional Photographers for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/corrected-far-cry-new-dawn-not-starting-dx12-error/"><u>[CORRECTED] Far Cry New Dawn Not Starting - DX12 Error</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-explore-the-best-in-class-pc-vr-headsets/"><u>2024 Approved Explore the Best-In-Class PC VR Headsets</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-resolution-duel-comparing-gopro-hero-and-polaroid-cube/"><u>2024 Approved Resolution Duel Comparing GoPro Hero and Polaroid Cube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-spotlight-on-top-video-making-talents/"><u>2024 Approved Spotlight on Top Video Making Talents</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-srgb-encoding-versus-rgb-basics/"><u>2024 Approved Srgb Encoding Versus Rgb Basics</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-ultimate-sfpr-levels-in-slow-motion-content/"><u>2024 Approved Ultimate SFPR Levels in Slow-Motion Content</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-your-quick-reference-to-using-windows-11s-movie-maker/"><u>2024 Approved Your Quick Reference to Using Windows 11'S Movie Maker</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-process-system-isnt-responding-error-on-nubia-red-magic-9-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Process System Isnt Responding Error on Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/a-complete-list-where-to-find-high-quality-music-files/"><u>A Complete List Where to Find High-Quality Music Files</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/mastering-sound-loads-in-inshot-editing-software/"><u>Mastering Sound Loads in InShot Editing Software</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-create-jaw-dropping-slow-mo-videos-with-these-top-10-editors/"><u>New Create Jaw-Dropping Slow Mo Videos with These Top 10 Editors</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-epitome-of-engagement-celebrating-the-most-voted-posts-10/"><u>The Epitome of Engagement Celebrating the Most-Voted Posts (10)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/the-science-behind-engaging-video-content-on-fb/"><u>The Science Behind Engaging Video Content on FB</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-top-tier-content-guild-for-2024/"><u>The Top Tier Content Guild for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-free-animated-logo-makers-top-picks-and-expert-design-tips-for-2024/"><u>Updated Free Animated Logo Makers Top Picks and Expert Design Tips for 2024</u></a></li>
 </ul></div>
 

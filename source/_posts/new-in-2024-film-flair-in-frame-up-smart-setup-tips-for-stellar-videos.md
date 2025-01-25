@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Film Flair in Frame-Up  Smart Setup Tips for Stellar Videos\""
-date: 2024-08-08T14:08:30.701Z
-updated: 2024-08-09T14:08:30.701Z
+date: 2025-01-21T22:20:42.951Z
+updated: 2025-01-25T03:25:30.602Z
 tags: 
   - screen-recording
   - ai video
@@ -23,9 +23,9 @@ Many people are wondering how to set up lighting for video shooting. While there
 Therefore, this article will give you a complete guide on how to set up your lighting to make your videos stand out.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1\. How-to Guide
 
 **_1) Preparation_**
@@ -58,11 +58,19 @@ The key light is the main light that illuminates the subject. You can place it i
 
 ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
 
 ##### Step3 Set the Backlight
 
 ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
 
@@ -70,25 +78,19 @@ For this tutorial, we use Aperture 120d as the backlight and lift it up into the
 
 Practical lights appear on the camera to add some visual flair. It can be any light source that isn't meant for lighting the subject. For example, we use a green lamp to help our background pop as it casts a nice orange light on the back wall.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![use practical lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-4.jpg)
 
 Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
 
 Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ![other small led lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 After setting up all the lighting above, you can take a look at the comparison below:
 
@@ -104,14 +106,12 @@ After setting up all the lighting above, you can take a look at the comparison b
 
 We usually set the lights around 50% brightness and a color temperature of 5600K.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Summary
 
 Hopefully, you learned something about lighting by taking a look at our setup. If you want to know and learn about other lighting tutorials, don’t hesitate to let us know in the comments.
@@ -144,4 +144,22 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-capture-the-spectacular-with-nikon-d500-in-4k/"><u>[New] 2024 Approved Capture the Spectacular with Nikon D500 in 4K</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-best-free-online-photo-tools-ranked-15-for-2024/"><u>[New] Best Free Online Photo Tools Ranked #15 for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-audio-enhancement-strategies-using-premiere-pro/"><u>[New] In 2024, Audio Enhancement Strategies Using Premiere Pro</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-price-scale-for-shooting-tunes-in-visual-narratives/"><u>[New] In 2024, Price Scale for Shooting Tunes in Visual Narratives</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-transformative-youtube-decks-via-tailored-templates/"><u>[New] In 2024, Transformative Youtube Decks via Tailored Templates</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-verify-your-youtube-account/"><u>[Updated] 2024 Approved How to Verify Your YouTube Account?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-joining-images-harmoniously-on-your-pc/"><u>[Updated] Joining Images Harmoniously on Your PC</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-proven-strategies-for-professional-lut-making/"><u>2024 Approved Proven Strategies for Professional LUT Making</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-vivo-x100-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Vivo X100 | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-script-to-sound-crafting-captivating-podcast-episodes/"><u>In 2024, From Script to Sound Crafting Captivating Podcast Episodes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-mirror-movies-a-guide-to-flipping-your-youtube-video-upside-down/"><u>In 2024, Mirror Movies A Guide to Flipping Your YouTube Video Upside Down</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-top-5-samsung-galaxy-a54-5g-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Samsung Galaxy A54 5G Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-viral-vibes-a-guide-to-memetic-magic/"><u>In 2024, Viral Vibes A Guide to Memetic Magic</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/wie-man-einen-gesperrten-pc-mit-windows-10-wieder-freischaltet-effektive-strategien-erklart/"><u>Wie Man Einen Gesperrten PC Mit Windows 10 Wieder Freischaltet - Effektive Strategien Erklärt</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-realme-12-proplus-5g-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+</ul></div>
 

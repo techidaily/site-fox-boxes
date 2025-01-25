@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Leveraging Alternative Footage in Filmmaking for 2024"
-date: 2024-12-31T03:30:03.376Z
-updated: 2025-01-06T13:02:41.786Z
+date: 2025-01-21T20:45:10.692Z
+updated: 2025-01-25T00:07:01.161Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ B roll can be utilized for establishing shots as well as close-ups of items. It 
 
 For instance, wider shots are frequently used when someone is giving a speech while seated behind a podium so that we can see both them and their surroundings, such as audience members standing close and applauding or security personnel.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Methods to use b roll
 
 Now that there are so many stock footage platforms, you have a lot of choices when you need just the right scene for your project. Most of the time, filmmakers don't use B roll footage. One good way to use it is to use it as a way to move from one scene to the next. It can also be used to set the mood for an event or show what time of day it is when filming.
@@ -50,7 +54,7 @@ On the other hand, cutaways can show how different people react to what is being
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Archival b roll footage
@@ -61,16 +65,12 @@ Aerial B roll is the solution when you like to show your viewers where your film
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Storytelling b roll footage
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Undirected b roll footage
@@ -90,7 +90,7 @@ A pick-up is a tiny shot added to previously captured material. Re-shoots involv
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7\. A roll vs b roll
@@ -98,7 +98,7 @@ If flaws were discovered during primary photography, the directors could have re
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -135,16 +135,14 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-revelations-on-identifying-outstanding-film-making-talents/"><u>[New] 2024 Approved Revelations on Identifying Outstanding Film Making Talents</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-audio-allies-the-new-tiktok-trend-for-2024/"><u>[New] Audio Allies The New TikTok Trend for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-speech-recognition-made-accessible-transforming-audio-to-text-with-ease-in-microsoft-word/"><u>[New] Speech Recognition Made Accessible Transforming Audio to Text with Ease in Microsoft Word</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-directors-discourse-insights-and-answers/"><u>[Updated] Directors' Discourse Insights and Answers</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-the-leading-video-technology-of-the-year-2024/"><u>[Updated] The Leading Video Technology of the Year - 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-building-an-online-empire-ramp-up-video-views/"><u>2024 Approved Building an Online Empire Ramp Up Video Views</u></a></li>
-<li><a href="https://discover-cheats.techidaily.com/maximizing-your-pcs-efficiency-expert-strategies-from-yl-computing-top-performance-tips-revealed/"><u>Maximizing Your PC's Efficiency: Expert Strategies From YL Computing - Top Performance Tips Revealed!</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/navigating-the-best-lipo-cells-for-quality-flight-time/"><u>Navigating the Best LiPo Cells for Quality Flight Time</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/unraveling-the-new-dimensions-of-vegaspro-19/"><u>Unraveling the New Dimensions of VegasPro '19</u></a></li>
-<li><a href="https://techidaily.com/use-device-manager-to-update-your-drivers-in-windows-11-and-10-and-7-by-drivereasy-guide/"><u>Use Device Manager to update your drivers in Windows 11 & 10 & 7</u></a></li>
-<li><a href="https://win11.techidaily.com/windows-11-update-impact-on-linux-subsystem/"><u>Windows 11 Update: Impact on Linux Subsystem</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-professional-tips-for-sims-game-capture/"><u>[Updated] In 2024, Professional Tips for Sims Game Capture</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-setting-up-facebook-viewing-for-smooth-apple-tv-experience/"><u>[Updated] In 2024, Setting Up Facebook Viewing for Smooth Apple TV Experience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-a-compreous-guide-to-recording-and-securing-periscope-videos/"><u>2024 Approved A Compreous Guide to Recording & Securing Periscope Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-decoding-script-annotations-slug-lines-explained/"><u>2024 Approved Decoding Script Annotations Slug Lines Explained</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-ultimate-list-10-superior-podcast-mic-choices/"><u>2024 Approved The Ultimate List 10 Superior Podcast Mic Choices</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/best-websites-for-downloading-skype-ringtone-for-2024/"><u>Best Websites For Downloading Skype Ringtone for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-vivo-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Vivo FRP Locks</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Motorola Moto G84 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/strategic-evaluation-of-robotic-automation-through-advanced-process-analytics-techniques/"><u>Strategic Evaluation of Robotic Automation Through Advanced Process Analytics Techniques</u></a></li>
 </ul></div>
 

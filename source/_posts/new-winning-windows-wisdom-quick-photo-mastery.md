@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Winning Window's Wisdom  Quick Photo Mastery\""
-date: 2024-08-08T14:12:19.687Z
-updated: 2024-08-09T14:12:19.687Z
+date: 2025-01-23T18:46:19.108Z
+updated: 2025-01-24T18:07:56.275Z
 tags: 
   - screen-recording
   - ai video
@@ -31,9 +31,6 @@ The Photos app in Windows 10 is one of the best and with the addition of the dra
 * [**Part1: How to Draw On Photos App in Windows 10**](#part1)
 * [**Part2: How to Draw on Photos Online**](#part2)
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: How to Draw On Photos App in Windows 10
 
 When you can add a personal touch to your videos and photos, it becomes all the way more special. Many times, it becomes essential to add a note to explain a video in a better way. Here are the steps to draw on photos in Windows 10 –
@@ -41,18 +38,20 @@ When you can add a personal touch to your videos and photos, it becomes all the 
 * Firstly, open a video or a photo from your phone gallery
 * Select the **Edit and Create** option and click on Draw
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/draw-on-photos-in-windows-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * You can see a Windows Ink Toolbar, select your preferred pen from the options available
 * Select the size and color of the fonts you wish to use from a range of palette
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/start-drawing-on-photos-in-windows-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Draw on the images and videos effortlessly
 * You can also find an eraser tool with various sizes of erasers that allows you to erase your entire drawing or a part of it as per your choice when required
@@ -60,8 +59,9 @@ When you can add a personal touch to your videos and photos, it becomes all the 
 When you draw on the image or video, the ink can be attached to a particular object or person within the video. As you move the camera angle or the object, the ink stays or moves along. You just need to select the anchor icon and link it to the object in the video.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: How to Draw on Photos Online
 
 Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lunapic.com/editor/?action=draw) is one such tool that lets you draw on your photos easily online. It is more of a paint tool that lets you edit, adjust, draw borders, add filters, effects, art, animation, and more. It has more than 200 effects option to choose from. To draw on photos online with LunaPic, follow the below-mentioned steps-
@@ -73,14 +73,19 @@ Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lu
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/lunapic-drawing.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Select the color from the range of palette available
 * Select the pen size using the given number scroll option
 * Click on apply if you are all set to draw or click on clear if you wish to make changes
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/editing-drawings-on-windows-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * To save your drawing on the image, you must click on Apply after each action you make with the tool
 
@@ -88,9 +93,6 @@ Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lu
 
 The Photos app has an interface that is restructured with dark theme options and new drawing and editing features making it a great tool. If you want to draw on Photos in Windows 10, follow the above steps and make your actions easier. If you want to have more options to edit videos with drawing in Windows 10, why not choose [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)? You can edit your video with various drawing and text style.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -118,4 +120,22 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-cant-see-cursor-only-sony-a6400-glitch/"><u>[New] 2024 Approved Can't See, Cursor Only - Sony A6400 Glitch</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-hands-of-honour-versus-followers-faith-for-2024/"><u>[New] Hands of Honour Versus Followers’ Faith for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-most-popular-free-soundtrack-sites-for-gamers/"><u>[Updated] In 2024, The Most Popular Free Soundtrack Sites for Gamers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-ultimate-list-of-10-best-zero-cost-srt-conversion-software-for-2024/"><u>[Updated] Ultimate List of 10 Best Zero-Cost Srt Conversion Software for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-10-steps-to-perfectly-plated-food-vids/"><u>2024 Approved 10 Steps to Perfectly Plated Food Vids</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-spectral-vision-next-gen-drone-review/"><u>2024 Approved Spectral Vision Next-Gen Drone Review</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-streamline-conversion-selecting-the-top-10-free-tools/"><u>2024 Approved Streamline Conversion Selecting the Top 10 Free Tools</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-stuttering-sound-problems-in-windows-11-and-10-a-comprehensive-guide/"><u>Fixing Stuttering Sound Problems in Windows 11 and 10: A Comprehensive Guide</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-vivo-v30-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Vivo V30 Pro | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-nokia-c300-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Nokia C300 Fingerprint Lock</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-excellence-in-dialogue-and-plot-hub/"><u>In 2024, Excellence in Dialogue & Plot Hub</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-mastering-the-craft-perfecting-podcast-trailer-production/"><u>In 2024, Mastering the Craft Perfecting Podcast Trailer Production</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolved-how-to-restore-your-devices-disabled-wi-fi-functionality/"><u>Resolved: How to Restore Your Device's Disabled Wi-Fi Functionality</u></a></li>
+<li><a href="https://win-web.techidaily.com/usbmac/"><u>USBメモリへのMacからのファイルコピーが上手くいきません - 解決策を学ぶ</u></a></li>
+<li><a href="https://win-blog.techidaily.com/iuyasoumroqwgcdsojzqs7xtlzjripqg66y066omioybueuvvcdrj5nsmihsg4eg67oa7zmyioyenou5hoykpdog66qo67cu7j2067meig/"><u>우리가 제공하는 무료 웹민 동영상 변환 서비스: 모바이비</u></a></li>
+</ul></div>
 
