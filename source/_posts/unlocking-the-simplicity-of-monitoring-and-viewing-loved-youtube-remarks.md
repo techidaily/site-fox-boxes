@@ -1,7 +1,7 @@
 ---
 title: "Unlocking the Simplicity of Monitoring and Viewing Loved YouTube Remarks"
-date: 2025-01-19T21:29:02.066Z
-updated: 2025-01-24T17:08:36.828Z
+date: 2025-01-25T23:35:13.370Z
+updated: 2025-02-01T20:23:05.825Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ People can watch, like, share, comment on, and upload videos using the YouTube s
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Are YouTube's Primary Purposes?
 
 * Users can look up and view videos.
@@ -37,7 +41,7 @@ People can watch, like, share, comment on, and upload videos using the YouTube s
 * To arrange videos and combine them together, make playlists.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Use YouTube?
@@ -92,29 +96,21 @@ Step1 Click on your Google Account icon and find **Your data in YouTube**.
 
 ![find your data in youtube](https://images.wondershare.com/filmora/article-images/2022/11/find-your-data-in-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Scroll down a little bit and click the **More** button.
 
 ![your youtube dashboard more](https://images.wondershare.com/filmora/article-images/2022/11/your-youtube-dashboard-more.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step3 Click the **Comments** section.
 
 ![click comments your youtube dashboard](https://images.wondershare.com/filmora/article-images/2022/11/click-comments-your-youtube-dashboard.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now you will see your comment history, including the date when you commented on a certain video and also the exact comment you posted.
 
 ![your youtube comments date](https://images.wondershare.com/filmora/article-images/2022/11/your-youtube-comments-date.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 To see videos/comments you liked or disliked, please follow these steps as continuation:
 
@@ -125,6 +121,10 @@ Step4 In the **Google My Activity** tab, click **Other activity**.
 Step5 Scroll down and find **Comment Likes and Dislikes on YouTube** section. Click **View Comment Likes and Dislikes**.
 
 ![your comment likes and dislikes](https://images.wondershare.com/filmora/article-images/2022/11/your-comment-likes-and-dislikes.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now you will see the videos you liked or disliked and also the comments you liked or disliked, including the date when you liked or disliked the video/comment.
 
@@ -167,6 +167,10 @@ Remember that you can only leave comments on videos that are public (or unlisted
 Because understanding how to comment is only one aspect of the issue; very important is knowing how to comment well. A brand's YouTube remark should provide value beyond simply attempting to sell something.
 
 Try making a joke, pointing out something amusing, providing helpful information, or expressing sympathy or concern for a fan. Additionally, a simple thumbs-up or heart can go a long way to demonstrate that you are paying attention even if you aren't feeling very friendly (we all have bad days, it's OK!).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Did you know what a Highlighted comment is?
 
@@ -187,7 +191,7 @@ Additionally, video creators can manually highlight commenters to mark them for 
 ![](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to See Liked Comments on YouTube?
@@ -208,17 +212,9 @@ Step1 Click on your Google Account icon and find **Your data in YouTube**.
 
 ![find your data in youtube](https://images.wondershare.com/filmora/article-images/2022/11/find-your-data-in-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Scroll down a little bit and click the **More** button.
 
 ![your youtube dashboard more](https://images.wondershare.com/filmora/article-images/2022/11/your-youtube-dashboard-more.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step3 Click the **Comments** section.
 
@@ -234,25 +230,25 @@ Step4 In the **Google My Activity** tab, click **Other activity**.
 
 ![other activity youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/other-activity-youtube-comments.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step5 Scroll down and find **Comment Likes and Dislikes on YouTube** section. Click **View Comment Likes and Dislikes**.
 
 ![your comment likes and dislikes](https://images.wondershare.com/filmora/article-images/2022/11/your-comment-likes-and-dislikes.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Now you will see the videos you liked or disliked and also the comments you liked or disliked, including the date when you liked or disliked the video/comment.
 
 ![date likes videos youtube](https://images.wondershare.com/filmora/article-images/2022/11/date-likes-videos-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This article tells you that you can't see who liked or disliked a comment, but you can see how many likes or dislikes a comment got. Then go to any video you want, scroll down to the comment section, and see how many likes or dislikes a comment received.
 
 ![likes comment received](https://images.wondershare.com/filmora/article-images/2022/11/likes-comment-received.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In this image, the following comments only got likes and no dislikes. That is why there are just written numbers on the like button and on the dislike button there are none.
 
@@ -287,6 +283,10 @@ Remember that you can only leave comments on videos that are public (or unlisted
 Because understanding how to comment is only one aspect of the issue; very important is knowing how to comment well. A brand's YouTube remark should provide value beyond simply attempting to sell something.
 
 Try making a joke, pointing out something amusing, providing helpful information, or expressing sympathy or concern for a fan. Additionally, a simple thumbs-up or heart can go a long way to demonstrate that you are paying attention even if you aren't feeling very friendly (we all have bad days, it's OK!).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Did you know what a Highlighted comment is?
 
@@ -326,24 +326,24 @@ Additionally, video creators can manually highlight commenters to mark them for 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-creature-companions-best-animal-titles-on-android/"><u>[Updated] 2024 Approved Creature Companions Best Animal Titles on Android</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-guide-to-closing-videos-effectively-for-2024/"><u>[Updated] The Ultimate Guide to Closing Videos Effectively for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-15-fun-filled-multiplayer-titles-for-friends/"><u>2024 Approved 15 Fun-Filled Multiplayer Titles for Friends</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-altering-articulations-in-free-fire-arena/"><u>2024 Approved Altering Articulations in Free Fire Arena</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-elite-virtuoso-broadcasting-services/"><u>2024 Approved Elite Virtuoso Broadcasting Services</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-lgs-ultrafine-4k-display-unpacked-a-detailed-analysis/"><u>2024 Approved LG's UltraFine 4K Display Unpacked A Detailed Analysis</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-ultimate-selection-of-cost-free-excellent-video-player-software-on-pc-and-mobile/"><u>2024 Approved Ultimate Selection of Cost-Free, Excellent Video Player Software on PC and Mobile</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-unleashing-creativity-with-captivating-image-assemblies/"><u>2024 Approved Unleashing Creativity with Captivating Image Assemblies</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-vlc-media-player-your-free-windows-substitute/"><u>2024 Approved VLC Media Player Your Free Windows Substitute</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ai-basics-and-beyond-learn-the-ropes-in-our-9-top-communities/"><u>AI Basics & Beyond: Learn the Ropes in Our 9 Top Communities</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/androids-top-choice-does-pickup-beat-other-photo-editors-for-2024/"><u>Android's Top Choice Does PickUp Beat Other Photo Editors for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/avoid-payment-secure-your-free-fcp-copy/"><u>Avoid Payment Secure Your Free FCP Copy</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/cinematic-brilliance-mastering-video-lighting-techniques-for-2024/"><u>Cinematic Brilliance Mastering Video Lighting Techniques for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/free-online-conversion-change-your-mp4-file-into-a-webm-format-with-ease-movavi/"><u>Free Online Conversion: Change Your MP4 File Into a WebM Format with Ease - Movavi</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-flashlight-from-apple-iphone-12-pro-max-lock-screen-drfone-by-drfone-ios/"><u>How To Remove Flashlight From Apple iPhone 12 Pro Max Lock Screen | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/top-rated-ergonomic-vertical-mice-of-2024/"><u>Top-Rated Ergonomic Vertical Mice of 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/troubleshooting-solutions-for-binkw32dll-not-found-errors/"><u>Troubleshooting Solutions for binkw32.dll Not Found Errors</u></a></li>
-<li><a href="https://some-skills.techidaily.com/ultimate-editing-hacks-for-flawless-image-edits-on-canva-for-2024/"><u>Ultimate Editing Hacks for Flawless Image Edits on Canva for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/uncover-top-affordable-video-enhancement-platforms-a-comprehensive-guide/"><u>Uncover Top Affordable Video Enhancement Platforms - A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-affordable-flight-masters-top-drone-selections-below-500/"><u>[New] In 2024, Affordable Flight Masters Top Drone Selections Below $500</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-revenue-revolution-unlocking-online-income-through-youtube-monetization/"><u>[New] Revenue Revolution Unlocking Online Income Through YouTube Monetization</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-avoiding-pitfalls-in-submitting-to-apple/"><u>[Updated] 2024 Approved Avoiding Pitfalls in Submitting to Apple</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-metaverse-reflections-a-pioneering-collection-of-thoughts/"><u>[Updated] 2024 Approved Metaverse Reflections A Pioneering Collection of Thoughts</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-recording-sims-4-games-a-complete-beginners-guide/"><u>[Updated] 2024 Approved Recording Sims 4 Games A Complete Beginner's Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-complete-guide-mastering-voice-recognition-in-google-documents/"><u>[Updated] Complete Guide Mastering Voice Recognition in Google Documents</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-horizon-hurdlers-celebrating-the-most-staying-power-drones/"><u>[Updated] Horizon Hurdlers Celebrating the Most Staying Power Drones</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-power-of-active-listening-in-interviews/"><u>[Updated] In 2024, The Power of Active Listening in Interviews</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-srt-mastery-curating-the-best-mac-and-windows-turbo-boosts-for-2024/"><u>[Updated] SRT Mastery Curating the Best Mac & Windows Turbo Boosts for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/high-end-humor-scripts/"><u>High-End Humor Scripts</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-by-checkra1n-even-on-apple-iphone-se-if-youve-tried-everything-by-drfone-ios/"><u>How To Bypass iCloud By Checkra1n Even On Apple iPhone SE If Youve Tried Everything</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-grateful-reels-exclusive-free-and-paid-otus/"><u>In 2024, Grateful Reels Exclusive Free & Paid OTUs</u></a></li>
+<li><a href="https://driver-error.techidaily.com/nexus-s-not-recognized-by-elementary-os-5-juno-solution-found-108-characters/"><u>Nexus S Not Recognized by Elementary OS 5 Juno - Solution Found (108 Characters)</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317729-9781401924874-return-to-the-sacred/"><u>Return to the Sacred | Free Book</u></a></li>
+<li><a href="https://games-able.techidaily.com/roblox-cheat-code-risks-and-mechanics-insight/"><u>Roblox Cheat Code: Risks and Mechanics Insight</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ng-up-your-youtube-standings-from-beginner-to-beneficial-businesses-for-2024/"><u>Setting Up Your YouTube Standings From Beginner to Beneficial Businesses for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/tips-and-techniques-to-restore-microphone-functionality-in-turtle-beach-vaultz-r8/"><u>Tips and Techniques to Restore Microphone Functionality in Turtle Beach Vaultz R8</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/yl-computing-unveils-how-to-safely-remove-memory-dumps-in-windows-11-operating-system/"><u>YL Computing Unveils How to Safely Remove Memory Dumps in Windows 11 Operating System</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/zoom-assisted-video-production-for-tiktok-for-2024/"><u>Zoom-Assisted Video Production for TikTok for 2024</u></a></li>
 </ul></div>
 

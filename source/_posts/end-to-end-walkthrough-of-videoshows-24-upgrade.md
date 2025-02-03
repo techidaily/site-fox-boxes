@@ -1,7 +1,7 @@
 ---
 title: "\"End-to-End Walkthrough of VideoShow's '24 Upgrade\""
-date: 2024-07-29T17:17:31.391Z
-updated: 2024-07-30T17:17:31.391Z
+date: 2025-01-30T17:03:34.633Z
+updated: 2025-02-01T21:54:58.403Z
 tags: 
   - screen-recording
   - ai video
@@ -27,9 +27,6 @@ An excellent video editor and movie maker made especially for Android and iOS us
 | Android and iOS compatibility   | You will frequently push up ads asking you to buy their premium version |
 | A free version is available     | Some of its limitations in the free version are very undesired          |
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## Part 1\. What is VideoShow Video Editor App?
 
 VideoShow video editor is currently the best option for those who want to edit their videos professionally with much less effort. It has all the updated editing tools which any mobile video editor should have.
@@ -50,9 +47,6 @@ VideoShow video editor has various sound effects in its library, like Minions, l
 
 It also has a great collection of pre-prepared templates, which can be very helpful in making awesome videos very quickly. The best thing about this feature in VideoShow is that it does not require any premium subscription from you. All the templates are available for free and without any ads. You can use a template according to the aspect ratio of your video.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Amazing Filters
 
 The VideoShow application also has a unique and exciting collection of filters you can use in your videos. However, some popular filters are only available in their paid version, but still, in their free version, there are also many filter options for you.
@@ -61,9 +55,6 @@ The VideoShow application also has a unique and exciting collection of filters y
 
 Its live dubbing feature allows you to dub your videos by watching them on your screen. So it will surely be a beneficial feature for those dubbing their videos for the first time. Moreover, you can also make your music video using it.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### Special effects
 
 This feature of the VideoShow video editor enables you to add some special effects to your videos. There is an entirely separate library of these effects from which you can select which one you want to use. However, not all these effects are accessible in the free version. Some requires paid version as well.
@@ -75,11 +66,16 @@ This feature of the VideoShow video editor enables you to add some special effec
 Now that we know about it, we will discuss how we can use it.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Import
 
 First, click on the video edit button to import your media files to the VideoShow video editor. Then it will take you to a menu where all your mobile's media will appear. You can select the media you want to import and click on the add button. The flaws in its importing are that it cannot separate your media in such a way that your pictures and videos are in different sections. However, thankfully there are separations of albums in it, making it easy for you to find the media you want. Also, in the free version, you cannot import any video of higher resolution. You need to convert them to some lower resolution for it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Filters
 
@@ -89,9 +85,17 @@ You can use filters by clicking on the filters option, which will be at the bott
 
 You can add different stickers to your video using it as well. For this purpose, you have to select the sticker's option from the bottom menu of it. A library will open from which you can choose them. After choosing your favorite stickers, click the Apply the changes button at the top right corner.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Speed adjustment
 
 Its speed adjustment feature is also not less than any of the above, as it can help you to make your video slow or fast. It will surely provide you with a cinematic effect. To use this feature, you must click the Edit button. Then you have to click on the Clip edit option and then the speed option. A setting will appear from which you can easily adjust your video's speed. It is a free feature. It does not require any premium package from you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Export
 
@@ -100,14 +104,15 @@ Now you click on the export button at the top right of your screen for this. Aft
 ![click on export button](https://images.wondershare.com/filmora/article-images/2022/09/videoshow-app-review-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-## Part 4\. Advantages and Disadvantages of VideoShow Video Editor App
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## Part 4\. Advantages and Disadvantages of VideoShow Video Editor App
+
 ### Advantages
 
 #### **User-friendly layout:**
@@ -119,8 +124,9 @@ The layout of this application is too user-friendly. It helps the new users to u
 You can use the highly advanced features in your videos using this application. However, they will be trending filters and effects, popular video templates and stickers, audio or video adjustments, etc., all can be avail using it. Although some are free and some need to be purchased.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Disadvantages
 
 Some of its disadvantages are the following:
@@ -137,9 +143,6 @@ As we have described, not all this application's features are free. Some of them
 
 The biggest con of using VideoShow is that they also put their watermark on the exported videos, which ruins the quality and look of your videos.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 5\. The best VideoShow App Alternative on Desktop
 
 However, the VideoShow video editor provides you with nearly everything to edit your videos on mobiles. It still can't compete with any desktop app regarding usability, features, and user experience. Now you're probably thinking about what to do on the desktop.
@@ -150,9 +153,6 @@ It's simple to use [Wondershare Filmora](https://tools.techidaily.com/wondershar
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 So now, in the end, the final words for today's topic are that VideoShow video editor is the best application to use on mobiles for video editing purposes. But because of the limitation of mobile devices, we recommend you to use the desktop video editor. Among these, Filmora will be the best option as it has all the great features you want to have in your desktop video editor. We hope you guys find this article quite interesting and helpful. Thanks for reading it.
@@ -173,50 +173,44 @@ Now lets us discuss some of its key features as well.
 
 VideoShow video editor has various sound effects in its library, like Minions, little girl, taking tom and monster, etc., from which you can easily choose one of your choices. They can help make the audio of your videos fascinating for the viewers. Moreover, you can adjust the settings of these audio effects by yourself, but for that purpose, you must buy their premium version first.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Pre-Prepared Templates
 
 It also has a great collection of pre-prepared templates, which can be very helpful in making awesome videos very quickly. The best thing about this feature in VideoShow is that it does not require any premium subscription from you. All the templates are available for free and without any ads. You can use a template according to the aspect ratio of your video.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Amazing Filters
 
 The VideoShow application also has a unique and exciting collection of filters you can use in your videos. However, some popular filters are only available in their paid version, but still, in their free version, there are also many filter options for you.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Live Dubbing
 
 Its live dubbing feature allows you to dub your videos by watching them on your screen. So it will surely be a beneficial feature for those dubbing their videos for the first time. Moreover, you can also make your music video using it.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Special effects
 
 This feature of the VideoShow video editor enables you to add some special effects to your videos. There is an entirely separate library of these effects from which you can select which one you want to use. However, not all these effects are accessible in the free version. Some requires paid version as well.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![special effects](https://images.wondershare.com/filmora/article-images/2022/09/videoshow-app-review-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## Part 3\. How to use VideoShow Video Editor App?
 
 Now that we know about it, we will discuss how we can use it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Import
 
 First, click on the video edit button to import your media files to the VideoShow video editor. Then it will take you to a menu where all your mobile's media will appear. You can select the media you want to import and click on the add button. The flaws in its importing are that it cannot separate your media in such a way that your pictures and videos are in different sections. However, thankfully there are separations of albums in it, making it easy for you to find the media you want. Also, in the free version, you cannot import any video of higher resolution. You need to convert them to some lower resolution for it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ### Filters
 
 You can use filters by clicking on the filters option, which will be at the bottom of your screen. Then it will take you to its filter library, where you can choose the filter of your choice. And then, click on the Tick button to apply that filter to your video. Some filters are free, and for some, you must purchase their premium package.
@@ -229,18 +223,12 @@ You can add different stickers to your video using it as well. For this purpose,
 
 Its speed adjustment feature is also not less than any of the above, as it can help you to make your video slow or fast. It will surely provide you with a cinematic effect. To use this feature, you must click the Edit button. Then you have to click on the Clip edit option and then the speed option. A setting will appear from which you can easily adjust your video's speed. It is a free feature. It does not require any premium package from you.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ### Export
 
 Now you click on the export button at the top right of your screen for this. After that, a menu asks which resolution you want to export your content. Only those who use a free version of the software can export videos at SD resolution. You must then select the "save to gallery" option after selecting the video resolution and frame rate.
 
 ![click on export button](https://images.wondershare.com/filmora/article-images/2022/09/videoshow-app-review-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4\. Advantages and Disadvantages of VideoShow Video Editor App
 
 ### Advantages
@@ -269,9 +257,6 @@ As we have described, not all this application's features are free. Some of them
 
 The biggest con of using VideoShow is that they also put their watermark on the exported videos, which ruins the quality and look of your videos.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ## Part 5\. The best VideoShow App Alternative on Desktop
 
 However, the VideoShow video editor provides you with nearly everything to edit your videos on mobiles. It still can't compete with any desktop app regarding usability, features, and user experience. Now you're probably thinking about what to do on the desktop.
@@ -308,4 +293,24 @@ So now, in the end, the final words for today's topic are that VideoShow video e
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-film-swapping-ideas-best-replacements-1-7/"><u>[New] 2024 Approved Film Swapping Ideas Best Replacements #1-7</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-superior-free-viewing-software-guide-top-16/"><u>[New] 2024 Approved Superior Free Viewing Software Guide - Top 16</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-backup-blueprint-from-your-phone-to-your-snap-story/"><u>[Updated] 2024 Approved Backup Blueprint From Your Phone to Your Snap Story</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-fun-for-the-whole-family-revisiting-a-goofy-movie/"><u>2024 Approved 'Fun for the Whole Family' Revisiting a 'Goofy Movie'</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-expert-pathway-for-webp-to-jpg-transformation/"><u>2024 Approved Expert Pathway for WebP-to-JPG Transformation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-high-performance-low-price-excellent-asmr-mics/"><u>2024 Approved High Performance, Low Price Excellent ASMR Mics</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-ranking-the-best-8-websites-with-shimmering-3d-and-text/"><u>2024 Approved Ranking the Best 8 Websites with Shimmering 3D & Text</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-ranking-the-greats-top-15-stop-motion-masterpieces/"><u>2024 Approved Ranking the Greats - Top 15 Stop Motion Masterpieces</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-understanding-the-technology-behind-vr-goggles/"><u>2024 Approved Understanding the Technology Behind VR Goggles</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/accelerated-learning-quick-start-to-becoming-a-lut-expert-for-2024/"><u>Accelerated Learning Quick Start to Becoming a LUT Expert for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/cost-effective-action-cameras-secure-your-selection-below-100-for-2024/"><u>Cost-Effective Action Cameras Secure Your Selection Below $100 for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/experience-elegance-and-convenience-in-depth-review-of-the-acer-chromebook-r-11s-lightweight-build/"><u>Experience Elegance and Convenience: In-Depth Review of the Acer Chromebook R 11'S Lightweight Build</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/guidelines-for-administered-window-on-os-x/"><u>Guidelines for Administered Window on OS X</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-sony-xperia-10-v-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Sony Xperia 10 V Phones</u></a></li>
+<li><a href="https://win-able.techidaily.com/overcoming-mlb-the-show-21-online-play-glitches-a-comprehensive-fix-guide/"><u>Overcoming MLB The Show 21 Online Play Glitches: A Comprehensive Fix Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/transferez-facilement-votre-fichier-avi-en-format-mkv-sans-frais-gratuiciel-de-conversion-video/"><u>Transférez Facilement Votre Fichier AVI en Format MKV Sans Frais - Gratuiciel De Conversion Vidéo!</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/unveiling-the-hidden-potential-of-earnings-on-vimeo-platforms-for-2024/"><u>Unveiling the Hidden Potential of Earnings on Vimeo Platforms for 2024</u></a></li>
+</ul></div>
 

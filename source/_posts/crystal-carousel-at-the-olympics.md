@@ -1,7 +1,7 @@
 ---
 title: "Crystal Carousel at the Olympics"
-date: 2024-08-08T14:02:19.234Z
-updated: 2024-08-09T14:02:19.234Z
+date: 2025-01-27T17:15:08.564Z
+updated: 2025-02-01T23:34:11.146Z
 tags: 
   - screen-recording
   - ai video
@@ -32,38 +32,45 @@ Nathan Chen got the combined score of 332.60 in short program and free skate com
 
 Nathan Chen of the United States reacts to winning the gold medal at the 2022 Beijing Winter Olympics. He successfully hit five quadruple jumps which helped him outshine others.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![nathan chen skating gold medal](https://images.wondershare.com/filmora/article-images/nathan-chen-skating-gold-medal.jpg)
 
 Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United States. He receives a combined score of 310.05 points and wins the silver medal at the 2022 Beijing Winter Olympics.
 
 ![yuma kagiyama](https://images.wondershare.com/filmora/article-images/yuma-kagiyama.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shoma Uno of Japan won the bronze medal with a combined score of 293 points and he has become the second Japanese to win a medal at the 2022 Beijing Winter Olympics.
 
 ![shoma uno](https://images.wondershare.com/filmora/article-images/shoma-uno.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Nathan Chen successful triumph has been four years in the making and it is a perfect combination of seven perfect skating minutes. Back at 2018 Olympics, he botched and ended with disappointment. Therefore, Olympics Games Beijing2022 has been redemption for America's best male skater.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![nathan chen best male skater](https://images.wondershare.com/filmora/article-images/nathan-chen-best-male-skater.jpg)
 
 Even though Nathan Chen finished first for men's short program of the team event, United States could not hold to the first position and losing to ROC.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![russian olympic committee athletes](https://images.wondershare.com/filmora/article-images/russian-olympic-committee-athletes.jpg)
 
 Russian Olympic Committee athletes won the gold medal at team event by a margin of 9 points with the combined score of 74\. United States won the silver medal with a combined score of 65 points.
 
 ![japan won the bronze medal](https://images.wondershare.com/filmora/article-images/japan-won-the-bronze-medal.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Japan won the bronze medal with 63 points falling short by 2 points 2 behind the United States. The figure skating competition is held at the Capital Indoor Stadium in Beijing.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. Create a Video for Showing the Highlights of Figure Skating
 
@@ -85,6 +92,10 @@ Step 1: Download and install Filmora. Launch Filmora and click on New Project.
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 2: Go to File > Project Settings and set the parameters as per your requirements.
 
 Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all the still photos and video footage clips you have collected about figure skating Olympics. You can trim them and maintain uniformity throughout.
@@ -97,9 +108,6 @@ Step 5: Select individual or multiple slides and add Transitions, Effects, Title
 
 Step 6: When everything is done, click on Export to save the video and share anywhere you want.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 Figure skating is undoubtedly one of the most followed sport events in the Winter Olympics. Naturally, there is a huge demand for figure skating highlights across the Winter Olympics fans and followers. We have provided figure skating highlights 2022 and we have illustrated the steps to create a highlight video of figure skating easily.
@@ -121,6 +129,21 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-unleash-the-power-of-engaging-headline-crafting/"><u>[New] 2024 Approved Unleash the Power of Engaging Headline Crafting</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-how-to-toggle-pip-mode-in-ios-a-step-by-step-approach-for-2024/"><u>[New] How to Toggle PIP Mode in iOS A Step-by-Step Approach for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-opening-and-playing-srt-files-in-different-oses/"><u>[New] In 2024, Opening and Playing SRT Files in Different OSes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-prime-landscapes-for-streaming-success/"><u>[New] In 2024, Prime Landscapes for Streaming Success</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-leading-the-pack-the-premier-camera-lenses-of-2024-in-order/"><u>[New] Leading the Pack The Premier Camera Lenses of 2024, in Order</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-from-standard-to-spectaculuxe-video-enhancer-22-upgrade-guide-for-2024/"><u>[Updated] From Standard to Spectaculuxe Video Enhancer 2.2 Upgrade Guide for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/complete-ipad-buying-guide-top-models-compared/"><u>Complete iPad Buying Guide: Top Models Compared</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/essential-tips-on-how-to-manage-and-audit-your-mobilebroadband-data-use/"><u>Essential Tips on How to Manage and Audit Your Mobile/Broadband Data Use</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/iphones-artistry-for-time-extended-cinematography-for-2024/"><u>IPhone's Artistry for Time-Extended Cinematography for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/is-ai-chatbots-forecasting-accuracy-superior-to-traditional-horoscopes/"><u>Is AI Chatbot's Forecasting Accuracy Superior to Traditional Horoscopes?</u></a></li>
+<li><a href="https://some-skills.techidaily.com/streamlining-pc-video-cuts-with-inshot-for-2024/"><u>Streamlining PC Video Cuts with Inshot for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/troubleshooting-missing-sound-driver-in-win/"><u>Troubleshooting Missing Sound Driver in Win</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/ultimate-morphvox-alteration-guidebook-for-2024/"><u>Ultimate MorphVOX Alteration Guidebook for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/unveiling-professional-monitor-recording-by-zdsoft/"><u>Unveiling Professional Monitor Recording by ZDSoft</u></a></li>
+</ul></div>
 

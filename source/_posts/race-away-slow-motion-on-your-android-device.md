@@ -1,7 +1,7 @@
 ---
 title: "Race Away Slow Motion on Your Android Device"
-date: 2025-01-17T23:57:22.073Z
-updated: 2025-01-24T18:29:54.865Z
+date: 2025-01-29T19:13:39.242Z
+updated: 2025-02-01T16:55:30.019Z
 tags: 
   - screen-recording
   - ai video
@@ -54,10 +54,6 @@ Now that you know the specifications of the apps, you should know **how to turn 
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 1\. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the best tools available for video editing that you can use and get high-quality video adjustment tools. One capable feature here is the ability to change the speed of the video through the Speed icon available after you add the video into the editor.
@@ -67,6 +63,10 @@ One of the best parts of this app in the matter of **how to turn a slow-motion v
 Watch this [video](https://www.youtube.com/watch?v=SQUsdxJvYLQ) to understand how Filmora works.
 
 ![filmorago interface](https://images.wondershare.com/filmora/article-images/2023/01/top-8-android-apps-to-change-slow-motion-videos-to-regular-speed-videos-in-2022-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **How to Convert Slow Motion Video to Normal on Android with Filmora?**
 
@@ -82,6 +82,10 @@ Step5 From the bottom toolbar, swipe left and tap the Speed icon to change the v
 
 ![click on the speed icon make changes and export](https://images.wondershare.com/filmora/article-images/2023/01/top-8-android-apps-to-change-slow-motion-videos-to-regular-speed-videos-in-2022-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step6 Drag the slider to change the speed from the left (slow) to the right (fast) side. Click on the Play icon to see a preview of the video.
 
 Step7 After completing the changes, click on Export from the top-right section of the screen. Make settings changes like frame rate and then press the Export button again.
@@ -96,10 +100,6 @@ Step7 After completing the changes, click on Export from the top-right section o
 
 * Advanced features like more effects and transitions are available for Pro version users.
 * Free version users cannot remove ads or watermarks.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 2\. [Vizmato](http://www.vizmato.com/website/)
 
@@ -159,7 +159,7 @@ There is a simple-to-access speed controls section where you can find the Speed 
 * A registered Adobe account is needed.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 5\. [VLC Media Player](https://play.google.com/store/apps/details?id=org.videolan.vlc&hl=en%5FUS)
@@ -200,10 +200,6 @@ With this feature, you can reverse elements like in-camera transitions and focal
 * Layer support is available in select device models when your install the app.
 * You can remove ads and watermarks with paid version only.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 7\. [Quik](https://gopro.com/en/us/shop/quik-app-video-photo-editor)
 
 If you are learning **how to turn a slow motion videos to regular** videos with stable speed, you cannot do wrong with the Quik app. The app's Android version is easy to access and use across different Android smartphones and tablets.
@@ -211,10 +207,6 @@ If you are learning **how to turn a slow motion videos to regular** videos with 
 After you import the video into the editing software, you can click on the Speed icon to make changes to your video's speed quality. Depending on the level of slow-motion your original video has, you can increase your video speed to 8x.
 
 ![quik app interface](https://images.wondershare.com/filmora/article-images/2023/01/top-8-android-apps-to-change-slow-motion-videos-to-regular-speed-videos-in-2022-9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Pros
 
@@ -226,6 +218,10 @@ After you import the video into the editing software, you can click on the Speed
 
 * You need to upgrade to the Pro version to enjoy adjustment benefits.
 * Not very huge files are editable here.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 8\. [InShot Video Editor](http://www.inshot.com/)
 
@@ -288,6 +284,10 @@ Watch this [video](https://www.youtube.com/watch?v=SQUsdxJvYLQ) to understand ho
 
 ![filmorago interface](https://images.wondershare.com/filmora/article-images/2023/01/top-8-android-apps-to-change-slow-motion-videos-to-regular-speed-videos-in-2022-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **How to Convert Slow Motion Video to Normal on Android with Filmora?**
 
 Step1 Install Filmora and launch it on your Android smartphone.
@@ -301,10 +301,6 @@ Step4 If you want to make further changes, click on the tools for editing, like 
 Step5 From the bottom toolbar, swipe left and tap the Speed icon to change the video speed.
 
 ![click on the speed icon make changes and export](https://images.wondershare.com/filmora/article-images/2023/01/top-8-android-apps-to-change-slow-motion-videos-to-regular-speed-videos-in-2022-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step6 Drag the slider to change the speed from the left (slow) to the right (fast) side. Click on the Play icon to see a preview of the video.
 
@@ -321,6 +317,10 @@ Step7 After completing the changes, click on Export from the top-right section o
 * Advanced features like more effects and transitions are available for Pro version users.
 * Free version users cannot remove ads or watermarks.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Method 2\. [Vizmato](http://www.vizmato.com/website/)
 
 You can use the Vizmato app for Android and iOS devices to make different video editing work, including speed adjustments. After you use it to clip and merge your video, you can set the video playback speed to your preferred rate.
@@ -328,10 +328,6 @@ You can use the Vizmato app for Android and iOS devices to make different video 
 It is possible to reverse the current speed of your slow-motion video by increasing the video speed by Fast or Slow. The quality of the video during playing is not compromised.
 
 ![vizmato interface](https://images.wondershare.com/filmora/article-images/2023/01/top-8-android-apps-to-change-slow-motion-videos-to-regular-speed-videos-in-2022-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Pros
 
@@ -344,10 +340,6 @@ It is possible to reverse the current speed of your slow-motion video by increas
 * Language personalization is not available in all countries.
 * Advanced benefits require payment.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 3\. [VivaVideo](https://vivavideo.tv/)
 
 Another notable software you should seriously consider if you want a simple Android-based app to update your video speed is VivaVideo. It is an easy-to-use tool where you can easily insert your video into different file formats. Then, choose the Speed icon from the features icons listed in the lower toolbar.
@@ -355,10 +347,6 @@ Another notable software you should seriously consider if you want a simple Andr
 Browse through the options and choose the Speed changing option. It supports a 0.1-10x range for speed adjustment. Keep choosing a higher speed than your default one until you reach a rate that best represents a stable video speed.
 
 ![vivavideo interface](https://images.wondershare.com/filmora/article-images/2023/01/top-8-android-apps-to-change-slow-motion-videos-to-regular-speed-videos-in-2022-5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Pros
 
@@ -370,6 +358,10 @@ Browse through the options and choose the Speed changing option. It supports a 0
 
 * Best for creating simplistic or short videos.
 * Not many levels of speed change are available.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 4\. [Adobe Premiere Rush](https://www.adobe.com/products/premiere-rush.html)
 
@@ -417,6 +409,10 @@ With this feature, you can reverse elements like in-camera transitions and focal
 
 ![kinemaster app interface](https://images.wondershare.com/filmora/article-images/2023/01/top-8-android-apps-to-change-slow-motion-videos-to-regular-speed-videos-in-2022-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Pros
 
 * Multiple effects to add.
@@ -455,10 +451,6 @@ You could choose the Speed option from the toolbar in the settings menu and incr
 
 ![inshot video editor interface](https://images.wondershare.com/filmora/article-images/2023/01/top-8-android-apps-to-change-slow-motion-videos-to-regular-speed-videos-in-2022-10.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Pros
 
 * Speed ramping is also available.
@@ -469,6 +461,10 @@ You could choose the Speed option from the toolbar in the settings menu and incr
 
 * Filter package requires payment.
 * Too many ads in the free version.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## FAQs
 
@@ -485,6 +481,10 @@ It is possible to record videos in slow-motion on Android phones using the edito
 You can use different tools to convert a slow-motion video to a higher speed. The best software for that is [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), with strong and multi-level video editing functions. You can import the video, click the speed icon, choose the video section to edit using the slide, and increase speed to level 100.0.
 
 For a more detailed understanding, you can refer to this [video](https://www.youtube.com/watch?v=oBF1xTx7hBk).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -518,20 +518,21 @@ It would help if you tried them all out before settling on the best one suited f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-add-videos-to-youtube-playlist/"><u>[New] Add Videos to YouTube Playlist</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/peed-tutorial-changing-photos-into-engaging-youtube-thumbnails-for-2024/"><u>[New] Speed Tutorial Changing Photos Into Engaging YouTube Thumbnails for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-top-8-best-video-calling-app-for-windows/"><u>[Updated] In 2024, Top 8 Best Video Calling App for Windows</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-cutting-edge-subtitling-solutions-the-ultimate-top-10-list-online/"><u>2024 Approved Cutting-Edge Subtitling Solutions The Ultimate Top 10 List (Online)</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-high-performance-in-fb-video-streaming/"><u>2024 Approved High Performance in FB Video Streaming</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-streamlining-post-processing-with-effective-use-of-luts-in-pscc/"><u>2024 Approved Streamlining Post-Processing with Effective Use of LUTs in PSCC</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-ultimate-trailer-highlight-hodgepodge/"><u>2024 Approved Ultimate Trailer Highlight Hodgepodge</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/chuckle-forge-mutant-comedy-creatures/"><u>Chuckle Forge Mutant Comedy Creatures</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/cyber-satirist-studio-for-2024/"><u>Cyber Satirist Studio for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/grasping-the-heart-of-narrative-design-for-2024/"><u>Grasping the Heart of Narrative Design for 2024</u></a></li>
-<li><a href="https://driver-error.techidaily.com/1721105051033-how-to-fix-no-driver-found-error-on-your-device-with-windows-11-8-or-7-solved/"><u>How to Fix 'No Driver Found' Error on Your Device with Windows 11, 8 or 7 – Solved!</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-beyond-popularity-youtube-earnings-for-1m-viewer-base/"><u>In 2024, Beyond Popularity – YouTube Earnings for 1M Viewer Base</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Oppo A1x 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-news.techidaily.com/navigating-gpu-accelerated-video-encoding-with-handbrake-essential-qandas-unveiled/"><u>Navigating GPU-Accelerated Video Encoding with HandBrake: Essential Q&As Unveiled</u></a></li>
-<li><a href="https://games-able.techidaily.com/razer-pushes-gaming-boundaries-with-mechanical-keyboard/"><u>Razer Pushes Gaming Boundaries with Mechanical Keyboard</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-break-down-long-form-videos-the-insiders-guide-to-youtube-chapter-inclusion/"><u>[New] 2024 Approved Break Down Long-Form Videos The Insider's Guide to YouTube Chapter Inclusion</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-comparative-study-alert-inshot-vs-standard-editors/"><u>[New] 2024 Approved Comparative Study Alert InShot vs Standard Editors</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-virtual-frontiers-current-trends-in-vr-tech/"><u>[New] 2024 Approved Virtual Frontiers Current Trends in VR Tech</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-comparing-sharex-with-industry-leaders/"><u>[New] Comparing ShareX with Industry Leaders</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-essential-recording-software-for-engaging-online-gatherings-google-meet/"><u>[New] Essential Recording Software for Engaging Online Gatherings (Google Meet)</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-expert-advice-on-acquiring-the-latest-360-cameras-for-2024/"><u>[New] Expert Advice on Acquiring the Latest 360 Cameras for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-innovative-groups-shaping-future-of-vr-worlds-for-2024/"><u>[New] Innovative Groups Shaping Future of VR Worlds for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-black-hero-4-or-ghost-s-choosing-the-best-motorsport-camera/"><u>[Updated] Black Hero 4 or Ghost-S Choosing the Best Motorsport Camera</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-crop-chronicles-the-ultimate-farm-farewell-fest-for-2024/"><u>[Updated] Crop Chronicles The Ultimate Farm Farewell Fest for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-mastering-the-process-essential-techniques-and-strategies-for-green-screen-filmmaking-for-2024/"><u>[Updated] Mastering the Process Essential Techniques & Strategies for Green Screen Filmmaking for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/8-mirrorless-cameras-to-elevate-your-vlogging-game-for-2024/"><u>Best 8 Mirrorless Cameras to Elevate Your Vlogging Game for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-call-logs-from-oppo-a38-by-fonelab-android-recover-call-logs/"><u>Best Android Data Recovery - undelete lost call logs from Oppo A38</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/googles-augmented-reality-stickers-an-in-depth-look-and-alternatives/"><u>Google's Augmented Reality Stickers An In-Depth Look and Alternatives</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/solutions-to-mitigate-vibrational-jello-in-uav-recordings-for-2024/"><u>Solutions to Mitigate Vibrational Jello in UAV Recordings for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/ultimate-psd-layer-control-for-2024/"><u>Ultimate PSD Layer Control for 2024</u></a></li>
 </ul></div>
 

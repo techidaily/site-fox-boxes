@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Chasing Titles  Key Moments From 2022 Olympics Short Tracks\""
-date: 2025-01-24T02:15:26.510Z
-updated: 2025-01-24T17:34:42.853Z
+date: 2025-01-27T20:21:27.069Z
+updated: 2025-02-02T02:08:04.735Z
 tags: 
   - screen-recording
   - ai video
@@ -37,12 +37,16 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Russia’s Semen Elistratov wins the bronze medal.
@@ -57,13 +61,13 @@ Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian na
 
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
 
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
 
@@ -72,10 +76,6 @@ The last leg of competition among skaters before reaching the finishing line at 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -92,7 +92,7 @@ To create such a highlight video on any sports event, there are certain videos e
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -113,6 +113,10 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
 
 Step 3: Go to Import > Import Media Files and bring in all the still footages and short clips you have collected. You can also use the option Import with Instant Cutter Tool to trim the footages and clips for uniformity.
@@ -122,10 +126,6 @@ Step 4: Add all the still footages and clips on the Video Timeline while add aud
 Step 5: Select individual slides and apply Transition, Effects or add Titles and Elements from the top bar.
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -150,17 +150,22 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-the-illustrators-toolkit-making-text-pop-in-3d/"><u>[New] 2024 Approved The Illustrator's Toolkit Making Text Pop in 3D</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-photoshop-basics-for-beginners-10-must-know-tricks/"><u>[New] Photoshop Basics for Beginners 10 Must-Know Tricks</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-the-definitive-guide-to-googles-podcast-submission/"><u>[New] The Definitive Guide to Google’s Podcast Submission</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-best-in-class-premium-screenshots-and-recorders/"><u>[Updated] 2024 Approved Best in Class Premium Screenshots & Recorders</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-call-history-from-spark-20-pro-by-fonelab-android-recover-call-logs/"><u>Easy steps to recover deleted call history from Spark 20 Pro</u></a></li>
-<li><a href="https://driver-error.techidaily.com/how-to-update-your-idt-software-for-new-hardware-support-and-avoid-common-issues/"><u>How to Update Your IDT Software for New Hardware Support and Avoid Common Issues</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-breaking-barriers-with-excellent-job-interview-techniques/"><u>In 2024, Breaking Barriers with Excellent Job Interview Techniques</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-you-when-your-apple-iphone-13-pro-max-is-off-drfone-by-drfone-virtual-ios/"><u>In 2024, Can Life360 Track You When Your Apple iPhone 13 Pro Max is off? | Dr.fone</u></a></li>
-<li><a href="https://some-tips.techidaily.com/satellite-emergency-messaging-now-available-on-the-revolutionary-new-google-pixel-9-a-game-changer-in-mobile-safety-features/"><u>Satellite Emergency Messaging Now Available on the Revolutionary New Google Pixel 9 - A Game-Changer in Mobile Safety Features</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/unleashing-the-power-of-voice-ms-words-speech-recognition-features/"><u>Unleashing the Power of Voice MS Word's Speech Recognition Features</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/unlocking-performance-secrets-in-computers-the-toms-hardware-way/"><u>Unlocking Performance Secrets in Computers - The Tom's Hardware Way</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveil-the-power-of-directed-posting-with-these-top-3-facebook-tags-methods/"><u>Unveil the Power of Directed Posting with These Top 3 Facebook Tags Methods</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-expedite-tech-advancement-how-to-embrace-macos-11-big-sur/"><u>[New] 2024 Approved Expedite Tech Advancement How to Embrace macOS 11 Big Sur</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-elevate-your-twitter-presence-essential-unfollowing-apps-guide-for-2024/"><u>[New] Elevate Your Twitter Presence Essential Unfollowing Apps Guide for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-fbx-for-gamers-expert-tips-on-recording-playthroughs-for-2024/"><u>[New] FBX for Gamers Expert Tips on Recording Playthroughs for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-harmonizing-workplay-by-incorporating-podcast-listening/"><u>[New] In 2024, Harmonizing Work/Play by Incorporating Podcast Listening</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-m1-chip-wins-smoothness-in-every-edit-every-time/"><u>[Updated] 2024 Approved M1 Chip Wins Smoothness in Every Edit, Every Time</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-step-into-new-realms-with-vr-technology/"><u>[Updated] 2024 Approved Step Into New Realms with VR Technology</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-improving-visual-storytelling-with-secondary-shoots/"><u>[Updated] In 2024, Improving Visual Storytelling with Secondary Shoots</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-virtual-reality-grips-the-ultimate-selection/"><u>[Updated] In 2024, Virtual Reality Grips The Ultimate Selection</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-ultimate-guide-to-improved-zoom-video-quality/"><u>[Updated] The Ultimate Guide to Improved Zoom Video Quality</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-direct-route-uploading-from-youtube-to-dailymotion/"><u>2024 Approved Direct Route Uploading From YouTube to Dailymotion</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-step-into-the-shoes-of-a-pro-screen-capture-techniques-for-mac-enthusiasts/"><u>2024 Approved Step Into the Shoes of a Pro Screen Capture Techniques for Mac Enthusiasts</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/digital-filmmaking-recording-video-across-various-platforms-for-2024/"><u>Digital Filmmaking Recording Video Across Various Platforms for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-i-add-my-signature-to-excel-2019-files-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How do i add my signature to Excel 2019 files</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-comprehensive-guide-to-samsung-photography-suite-2023/"><u>In 2024, Comprehensive Guide to Samsung Photography Suite, 2023</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/techniques-to-surpass-instagrams-typical-video-limits/"><u>Techniques to Surpass Instagram's Typical Video Limits</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-ultimate-resource-for-microsoft-azure-speech-services-for-2024/"><u>The Ultimate Resource for Microsoft Azure Speech Services for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-the-potential-a-comprehensive-review-of-the-apple-ipad-mini-5/"><u>Unboxing the Potential: A Comprehensive Review of the Apple iPad Mini 5</u></a></li>
 </ul></div>
 

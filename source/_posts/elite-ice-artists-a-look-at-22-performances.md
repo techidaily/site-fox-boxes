@@ -1,7 +1,7 @@
 ---
 title: "\"Elite Ice Artists  A Look at '22 Performances\""
-date: 2024-07-29T17:15:05.726Z
-updated: 2024-07-30T17:15:05.726Z
+date: 2025-01-27T21:33:59.161Z
+updated: 2025-02-01T18:13:36.328Z
 tags: 
   - screen-recording
   - ai video
@@ -28,10 +28,11 @@ In Olympic competition, skaters need to perform two minutes and 40 seconds short
 
 Nathan Chen got the combined score of 332.60 in short program and free skate competitions to win the 2022 Olympic men's figure skating title.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![nathan chen skating](https://images.wondershare.com/filmora/article-images/nathan-chen-skating.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Nathan Chen of the United States reacts to winning the gold medal at the 2022 Beijing Winter Olympics. He successfully hit five quadruple jumps which helped him outshine others.
 
@@ -39,17 +40,19 @@ Nathan Chen of the United States reacts to winning the gold medal at the 2022 Be
 
 Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United States. He receives a combined score of 310.05 points and wins the silver medal at the 2022 Beijing Winter Olympics.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![yuma kagiyama](https://images.wondershare.com/filmora/article-images/yuma-kagiyama.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shoma Uno of Japan won the bronze medal with a combined score of 293 points and he has become the second Japanese to win a medal at the 2022 Beijing Winter Olympics.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ![shoma uno](https://images.wondershare.com/filmora/article-images/shoma-uno.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Nathan Chen successful triumph has been four years in the making and it is a perfect combination of seven perfect skating minutes. Back at 2018 Olympics, he botched and ended with disappointment. Therefore, Olympics Games Beijing2022 has been redemption for America's best male skater.
 
@@ -59,23 +62,16 @@ Even though Nathan Chen finished first for men's short program of the team event
 
 ![russian olympic committee athletes](https://images.wondershare.com/filmora/article-images/russian-olympic-committee-athletes.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Russian Olympic Committee athletes won the gold medal at team event by a margin of 9 points with the combined score of 74\. United States won the silver medal with a combined score of 65 points.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ![japan won the bronze medal](https://images.wondershare.com/filmora/article-images/japan-won-the-bronze-medal.jpg)
 
 Japan won the bronze medal with 63 points falling short by 2 points 2 behind the United States. The figure skating competition is held at the Capital Indoor Stadium in Beijing.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2\. Create a Video for Showing the Highlights of Figure Skating
 
 In today's world, people prefer checking out highlights of sports events when they cannot watch the whole event due to time constraints and work commitments. They prefer a video package containing the highlights of the sports event, and hence, you can get a lot of traction if you make figure skating highlights 2022 Winter Olympics Beijing. To make a video showing the highlights of figure skating, you need a professional video editing software. This is because you need certain video effects that are commonly used in highlight videos.
@@ -100,10 +96,11 @@ Step 2: Go to File > Project Settings and set the parameters as per your require
 
 Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all the still photos and video footage clips you have collected about figure skating Olympics. You can trim them and maintain uniformity throughout.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![filmora edit videos](https://images.wondershare.com/filmora/article-images/edit-recordings-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step 4: You need to add all imported media files to Video Timeline while you should add background music or voiceover to the Audio Timeline.
 
@@ -132,4 +129,22 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-dive-into-social-media-streams-watching-facebook-live-on-roku-for-2024/"><u>[New] Dive Into Social Media Streams Watching Facebook Live on Roku for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-role-of-supplemental-imagery-in-storytelling/"><u>[New] In 2024, The Role of Supplemental Imagery in Storytelling</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-mastering-the-craft-professional-gopro-video-creation/"><u>[New] Mastering the Craft Professional GoPro Video Creation</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-how-to-add-fonts-to-after-effects/"><u>[Updated] 2024 Approved How to Add Fonts to After Effects</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-your-ultimate-guide-to-the-best-affordable-online-video-effect-tools/"><u>[Updated] 2024 Approved Your Ultimate Guide to the Best Affordable Online Video Effect Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-calculating-video-data-use-in-a-full-day-watch-for-2024/"><u>[Updated] Calculating Video Data Use in a Full-Day Watch for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-exposed-the-hazards-of-fake-follower-purchases-on-youtube/"><u>[Updated] Exposed The Hazards of Fake Follower Purchases on YouTube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-powerful-book-trailer-examples-for-2024/"><u>[Updated] Powerful Book Trailer Examples for 2024</u></a></li>
+<li><a href="https://discover-best.techidaily.com/comprendre-parfaitement-les-avantages-dabbyy-ocr-server-pour-rewalk/"><u>Comprendre Parfaitement Les Avantages D'ABBYY OCR Server Pour Rewalk</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-xiaomi-redmi-k70-pro-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Xiaomi Redmi K70 Pro in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/identifying-counterfeit-chatgpt-applications-within-the-ios-marketplace/"><u>Identifying Counterfeit ChatGPT Applications Within the iOS Marketplace</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-the-best-ai-naming-assistants-for-podcast-innovation/"><u>In 2024, The Best AI Naming Assistants for Podcast Innovation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-unlocking-the-secrets-of-google-podcast-uploads/"><u>In 2024, Unlocking the Secrets of Google Podcast Uploads</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-samsung-galaxy-z-fold-5-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Samsung Galaxy Z Fold 5? | Dr.fone</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/scramble-alert-japan-tracks-chinese-reconnaissance-drone-between-yonaguni-and-taiwan-ministry-says/"><u>Scramble Alert: Japan Tracks Chinese Reconnaissance Drone Between Yonaguni and Taiwan, Ministry Says</u></a></li>
+</ul></div>
 

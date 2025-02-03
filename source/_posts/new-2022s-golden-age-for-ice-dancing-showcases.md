@@ -1,7 +1,7 @@
 ---
 title: "[New] 2022'S Golden Age for Ice Dancing Showcases"
-date: 2025-01-22T04:09:50.284Z
-updated: 2025-01-24T22:06:50.551Z
+date: 2025-01-31T19:37:06.407Z
+updated: 2025-02-01T21:09:46.515Z
 tags: 
   - screen-recording
   - ai video
@@ -27,10 +27,6 @@ Nathan Chen of the United States won the gold medal at the 2022 Beijing Winter O
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. Highlights of Figure Skating Olympics Games Beijing2022
 
 In Olympic competition, skaters need to perform two minutes and 40 seconds short program and four minutes free skate and the winner is decided based on combined score.
@@ -39,25 +35,29 @@ Nathan Chen got the combined score of 332.60 in short program and free skate com
 
 ![nathan chen skating](https://images.wondershare.com/filmora/article-images/nathan-chen-skating.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Nathan Chen of the United States reacts to winning the gold medal at the 2022 Beijing Winter Olympics. He successfully hit five quadruple jumps which helped him outshine others.
 
 ![nathan chen skating gold medal](https://images.wondershare.com/filmora/article-images/nathan-chen-skating-gold-medal.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United States. He receives a combined score of 310.05 points and wins the silver medal at the 2022 Beijing Winter Olympics.
 
 ![yuma kagiyama](https://images.wondershare.com/filmora/article-images/yuma-kagiyama.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shoma Uno of Japan won the bronze medal with a combined score of 293 points and he has become the second Japanese to win a medal at the 2022 Beijing Winter Olympics.
 
 ![shoma uno](https://images.wondershare.com/filmora/article-images/shoma-uno.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Nathan Chen successful triumph has been four years in the making and it is a perfect combination of seven perfect skating minutes. Back at 2018 Olympics, he botched and ended with disappointment. Therefore, Olympics Games Beijing2022 has been redemption for America's best male skater.
 
@@ -67,19 +67,15 @@ Even though Nathan Chen finished first for men's short program of the team event
 
 ![russian olympic committee athletes](https://images.wondershare.com/filmora/article-images/russian-olympic-committee-athletes.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Russian Olympic Committee athletes won the gold medal at team event by a margin of 9 points with the combined score of 74\. United States won the silver medal with a combined score of 65 points.
 
 ![japan won the bronze medal](https://images.wondershare.com/filmora/article-images/japan-won-the-bronze-medal.jpg)
 
-Japan won the bronze medal with 63 points falling short by 2 points 2 behind the United States. The figure skating competition is held at the Capital Indoor Stadium in Beijing.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Japan won the bronze medal with 63 points falling short by 2 points 2 behind the United States. The figure skating competition is held at the Capital Indoor Stadium in Beijing.
 
 ## Part 2\. Create a Video for Showing the Highlights of Figure Skating
 
@@ -106,6 +102,10 @@ Step 2: Go to File > Project Settings and set the parameters as per your require
 Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all the still photos and video footage clips you have collected about figure skating Olympics. You can trim them and maintain uniformity throughout.
 
 ![filmora edit videos](https://images.wondershare.com/filmora/article-images/edit-recordings-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step 4: You need to add all imported media files to Video Timeline while you should add background music or voiceover to the Audio Timeline.
 
@@ -136,20 +136,21 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-visual-excellence-roundup-top-6-high-definition-dslrs-for-2024/"><u>[New] Visual Excellence Roundup Top 6 High-Definition DSLRs for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-easy-peasy-the-route-to-past-facebook-stories/"><u>[Updated] In 2024, Easy Peasy The Route to Past Facebook Stories</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-essential-tips-for-constructing-professional-podcast-rss-feeds/"><u>[Updated] In 2024, Essential Tips for Constructing Professional Podcast RSS Feeds</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-pictureweaversierra-blending-apple-media-artfully/"><u>2024 Approved PictureWeaverSierra Blending Apple Media Artfully</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-polishing-pixels-8-pro-photo-frames-for-images-online/"><u>2024 Approved Polishing Pixels 8 Pro Photo Frames for Images Online</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-prolific-pose-pattern-packages/"><u>2024 Approved Prolific Pose Pattern Packages</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-straightforward-steps-for-hassle-free-high-dynamic-range/"><u>2024 Approved Straightforward Steps for Hassle-Free High Dynamic Range</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-beginners-blueprint-mastering-telegram-web/"><u>2024 Approved The Beginner's Blueprint Mastering Telegram Web</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/aerial-cutting-edge-the-ultimate-drone-editing-comparison-for-2024/"><u>Aerial Cutting Edge The Ultimate Drone Editing Comparison for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/elevate-your-user-experience-highlighting-mouse-pointers-on-win-11/"><u>Elevate Your User Experience: Highlighting Mouse Pointers on Win 11</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Asus ROG Phone 7? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-password-on-your-iphone-se-2022-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID Password On your iPhone SE (2022)</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/new-best-video-language-changers-to-make-your-videos-accessible/"><u>New Best Video Language Changers to Make Your Videos Accessible</u></a></li>
-<li><a href="https://techidaily.com/samsung-galaxy-m34-can-t-play-avchd-mts-video-by-aiseesoft-video-converter-play-mts-on-android/"><u>Samsung Galaxy M34 can’t play AVCHD .mts video</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-unleash-stunning-4k-videos-with-these-top-editing-tools/"><u>Updated In 2024, Unleash Stunning 4K Videos with These Top Editing Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-compiling-leading-short-form-video-editors-iosandroid-edition/"><u>[New] 2024 Approved Compiling Leading Short-Form Video Editors IOS/Android Edition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-selecting-perfect-unboxing-tunes-a-guide/"><u>[New] 2024 Approved Selecting Perfect Unboxing Tunes A Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-choreographing-pictures-and-tunes-in-video/"><u>[New] Choreographing Pictures & Tunes in Video</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-bare-bones-budget-friendly-best-5-windows-10-recording-apps/"><u>[Updated] 2024 Approved Bare-Bones, Budget-Friendly Best 5 Windows 10 Recording Apps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-best-camera-apps-to-shoot-and-record-videos-on-iphone-and-andriod-phones/"><u>[Updated] Best Camera Apps to Shoot and Record Videos on iPhone and Andriod Phones</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-gigglegif-builder/"><u>[Updated] GiggleGif Builder</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-iphone-solutions-for-reverse-playback/"><u>[Updated] In 2024, IPhone Solutions for Reverse Playback</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-journey-of-joyrides-top-6-easy-mc-habitats-revealed-for-2024/"><u>[Updated] Journey of Joyrides Top 6 Easy MC Habitats Revealed for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-premiered-5-screen-options-for-ps5-gamers/"><u>[Updated] Premiered 5 Screen Options for PS5 Gamers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-essentials-of-effective-video-narration-techniques-for-2024/"><u>[Updated] The Essentials of Effective Video Narration Techniques for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-encompassing-explanation-what-is-googles-podcast-service/"><u>2024 Approved Encompassing Explanation What Is Google's Podcast Service?</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/customize-classroom-feel-in-win-11-ui/"><u>Customize Classroom Feel in Win 11 UI</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-xiaomi-14-pro-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Xiaomi 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/key-methods-for-gathering-high-end-video-backdrops-for-2024/"><u>Key Methods for Gathering High-End Video Backdrops for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/latest-guide-how-to-bypass-nokia-c02-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Nokia C02 FRP Without Computer</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/secure-your-acer-monitor-download-compatible-drivers-today/"><u>Secure Your Acer Monitor: Download Compatible Drivers Today</u></a></li>
 </ul></div>
 

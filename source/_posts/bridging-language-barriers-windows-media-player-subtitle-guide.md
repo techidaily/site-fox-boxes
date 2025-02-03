@@ -1,7 +1,7 @@
 ---
 title: "\"Bridging Language Barriers  Windows Media Player Subtitle Guide\""
-date: 2024-08-08T14:03:46.415Z
-updated: 2024-08-09T14:03:46.415Z
+date: 2025-01-28T18:59:57.677Z
+updated: 2025-02-01T17:43:35.678Z
 tags: 
   - screen-recording
   - ai video
@@ -34,20 +34,25 @@ The process of adding subtitles to video clips is quite simple; you need to foll
 
 **Step 1:** First of all you need to save your video and subtitle file with same name. It is not possible to manually add subtitles using Window Media Player but it can easily detect all subtitles when both files are saved with same name.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/subtitle-wmp-1.jpg)
 
 **Step 2:** Once you are done with the first step then simply open your Window Media Player and move to the Library Mode. Now switch to play, then Lyrics, captions and finally you will reach at subtitles. Hit this option and choose “On if Available”. The same option is also available in the Now Playing Mode where you simply need to right click and this option will appear in drop down menu.
 
 ![](https://images.wondershare.com/filmora/article-images/subtitle-wmp-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Now, it is time to download DirectVobSub codec and get it installed on your PC. This software is easily available in 32, 64 bit versions so you can easily access any of these. Simply install codec from this source; no need to work on configuration settings. Note that these codecs must be installed from a trusted source so that malware or virus attacks can be avoided.
 
 **Step 4:** Once you are done with step 3 then download Sharkoo7’s Advanced Codec from internet. Get it installed for Window Media Player and then open with 64 bit settings or 32 bit as per your device specifications. To open it, simply right click on icon and from drop down menu choose “Run as administrator”.
 
 ![](https://images.wondershare.com/filmora/article-images/subtitle-wmp-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 5:** Within very less time application will get opened with a fresh window on your system. Now move to tabs of different video file types then search for the option that says: “Disable Media Foundation for MP4/MKV and AVI etc”. Further, go to the swap tab and then disable window media foundation.
 
@@ -56,8 +61,9 @@ The process of adding subtitles to video clips is quite simple; you need to foll
 As soon as you will finish all these settings, your subtitles will appear perfectly over video and you can enjoy great synchronism for all content. Window Media player tool is capable enough to make effective adjustments for subtitle placements and it will take just a few minutes to complete all these steps.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Websites for Downloading Subtitles
 
 If you are searching for websites that can help you to download subtitles for your videos then this list can be useful for you:
@@ -71,15 +77,17 @@ You will be glad to know that this website offers subtitles in wide range of lan
 This website stays one of the top preferences lists of all professionals as well as beginners. It serves with easy to access search function so that users can easily navigate for their desired subtitle file. It also allows users to upload movie subtitle files and they can be rated.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. TVsubtitles.net:
 
 There is no doubt to say that TVSubtitles.com is well known as best site for TV show subtitle download needs. This platform contains largest collection of popular TV show subtitles from every corner of world and they are available in multiple languages. Some of the most commonly downloaded subtitle files use to be in Korean, Russian, German, Greek, French and English language.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4. Tvsubs.net:
 
 One more online platform for downloading wide range of subtitles and the best thing to know about this website is that it possesses user friendly platform that has super cool appearance. As soon as you will open your website you will notice that well placed search box. Yeah! This is your biggest need when you need to search for subtitles. Enter your details inside this search box and it will soon bring all desired results to your computer screen. One can also access this site for uploading movie subtitles.
@@ -109,6 +117,21 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-from-idea-to-reality-examining-mycams-video-recorder-performance/"><u>[New] 2024 Approved From Idea to Reality Examining MyCam’s Video Recorder Performance</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-transforming-windows-photos-viewer-with-creative-filter-settings-and-soundscape/"><u>[New] 2024 Approved Transforming Windows Photos Viewer with Creative Filter Settings & Soundscape</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-ideas-aplenty-crafting-inspirational-photographic-mosaics/"><u>[New] Ideas Aplenty Crafting Inspirational Photographic Mosaics</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-mastering-the-art-of-sounding-different-in-pubg-for-2024/"><u>[New] Mastering the Art of Sounding Different in PUBG for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-reviewing-microsofts-hololens-step-into-the-future/"><u>[New] Reviewing Microsoft's HoloLens – Step Into the Future</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-step-by-step-augmenting-youtube-video-space/"><u>[New] Step-by-Step Augmenting YouTube Video Space</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-ancient-artifacts-iphone-x-selfies/"><u>[Updated] 2024 Approved Ancient Artifacts – iPhone X Selfies</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-capture-perfection-with-canons-paired-lut-gifts/"><u>[Updated] Capture Perfection with Canon's Paired LUT Gifts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/20-most-memorable-anime-series-intros-for-2024/"><u>20 Most Memorable Anime Series Intros for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/breaking-the-ice-with-instagrams-interactive-audience-queries-for-2024/"><u>Breaking the Ice with Instagram's Interactive Audience Queries for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/m1-macbook-air-video-editors-dream-machine/"><u>M1 MacBook Air Video Editor's Dream Machine?</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/october-unveiling-of-apples-innovative-intelligence-tech-according-to-recent-reports-by-zdnet/"><u>October Unveiling of Apple’s Innovative Intelligence Tech, According to Recent Reports by ZDNet</u></a></li>
+<li><a href="https://win-answers.techidaily.com/overcoming-visual-hitches-fixing-the-dark-display-fault-in-world-war-ii-call-of-duty-game-on-pc/"><u>Overcoming Visual Hitches: Fixing the Dark Display Fault in World War II - Call of Duty Game on PC</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-honor-90-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Honor 90? | Dr.fone</u></a></li>
+</ul></div>
 

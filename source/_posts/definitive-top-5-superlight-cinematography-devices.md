@@ -1,7 +1,7 @@
 ---
 title: "Definitive Top 5 Superlight Cinematography Devices"
-date: 2024-08-08T14:02:11.579Z
-updated: 2024-08-09T14:02:11.579Z
+date: 2025-01-31T22:22:53.864Z
+updated: 2025-02-01T23:04:21.637Z
 tags: 
   - screen-recording
   - ai video
@@ -59,10 +59,11 @@ thumbnail: https://thmb.techidaily.com/b9b05a126aedfd2f1ee9a14603409ac5ab4c281dd
 
 #### 2\. Garmin Virb Elite ($159.95)
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Backpacking/Hiking Cameras - Garmin Virb Elite](https://images.wondershare.com/filmora/article-images/garmin_virb.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01HP4PMG0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01HP4PMG0&linkId=d4c86edc07888f1a73f2696e417da1e1)
 
@@ -70,10 +71,11 @@ thumbnail: https://thmb.techidaily.com/b9b05a126aedfd2f1ee9a14603409ac5ab4c281dd
 
 #### 3\. Olympus TG-Tracker
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Backpacking/Hiking Cameras - Olympus TG-Tracker](https://images.wondershare.com/filmora/article-images/olympus-tg-tracker.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01ERLMTSI/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01ERLMTSI&linkId=34d5c0e389cef67e7a6b9e5d754a12fc
 )
@@ -84,6 +86,10 @@ thumbnail: https://thmb.techidaily.com/b9b05a126aedfd2f1ee9a14603409ac5ab4c281dd
 
 ![Backpacking/Hiking Cameras - Sony FDR x1000v](https://images.wondershare.com/filmora/article-images/sony-fdr-1000.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Check at Amazon](https://www.amazon.com/gp/product/B00R1COCT0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00R1COCT0&linkId=eb0771cffd16191ae77ad0a5c6df67b1
 )
 
@@ -91,20 +97,22 @@ thumbnail: https://thmb.techidaily.com/b9b05a126aedfd2f1ee9a14603409ac5ab4c281dd
 
 #### 5\. Ricoh WG-M2 ($196.99)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Backpacking/Hiking Cameras - Ricoh WG M-2](https://images.wondershare.com/filmora/article-images/ricoh-wg-m2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01C395NWU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01C395NWU&linkId=6090fffac05d4c82ef9e790492fd38f8
 )
 
  This camera is equipped with ultra wide lenses of 204 degree coverage capacity and its compact and attractive construction make it action ready device. The 4K resolution can be obtained with 30 frames per second rate and you can even record at rough locations with this shock resistant camera. It can go under water up to 65’ and can stay there up to two hours without any trouble whereas freezing temperature is adjusted to its maximum value of 14 degrees.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -129,6 +137,26 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-budget-savvy-shoppers-best-cameras/"><u>[New] 2024 Approved Budget-Savvy Shoppers' Best Cameras</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-reviewing-the-next-level-in-mobile-video-with-samsung-s8/"><u>[New] 2024 Approved Reviewing the Next Level in Mobile Video with Samsung S8</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-speak-with-elegance-on-chrome-top-picks-for-web-based-voice-transformers/"><u>[New] In 2024, Speak with Elegance on Chrome Top Picks for Web-Based Voice Transformers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-insiders-guide-to-snapchats-spotlight-feature/"><u>[New] In 2024, The Insider's Guide to Snapchat's Spotlight Feature</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-ultimate-list-for-choosing-your-camera-and-gear/"><u>[New] In 2024, The Ultimate List for Choosing Your Camera & Gear</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-video-size-adjustments-on-igtv/"><u>[New] Mastering Video Size Adjustments on IGTV</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-prime-shopping-destinations-customizable-presents-with-flair/"><u>[New] Prime Shopping Destinations Customizable Presents with Flair</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-quick-steps-for-adding-speech-to-text-in-powerpoint-slides/"><u>[New] Quick Steps for Adding Speech-to-Text in PowerPoint Slides</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-highest-quality-live-tv-and-community-broadcasting-guide-2esecurity/"><u>[Updated] Highest-Quality Live TV & Community Broadcasting Guide, 2Esecurity</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-mastering-online-tale-creation-fundamentals/"><u>[Updated] In 2024, Mastering Online Tale Creation Fundamentals</u></a></li>
+<li><a href="https://common-error.techidaily.com/effortless-guide-to-navigating-file-explorer-on-your-windows-10-pc/"><u>Effortless Guide to Navigating File Explorer on Your Windows 10 PC</u></a></li>
+<li><a href="https://article-posts.techidaily.com/elevate-your-photography-access-to-10plus-free-purchasable-luts-for-canon-cams/"><u>Elevate Your Photography Access to 10+ Free, Purchasable LUTs for Canon Cams</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-immerse-in-visual-creation-best-3d-model-and-rendering-tools-reviewed/"><u>In 2024, Immerse in Visual Creation Best 3D Model & Rendering Tools Reviewed</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-versions-of-windows-movie-maker/"><u>In 2024, Versions of Windows Movie Maker</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On ZTE Blade A73 5G | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/mastering-microsoft-windows-troubleshooting-quick-fixes-for-entry-point-missing-errors/"><u>Mastering Microsoft Windows Troubleshooting: Quick Fixes for 'Entry Point Missing' Errors</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/simple-steps-getting-support-and-assistance-on-windows-10-quickly/"><u>Simple Steps: Getting Support and Assistance on Windows 10 Quickly</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/the-most-effective-adata-backup-solutions-for-optimal-data-protection/"><u>The Most Effective ADATA Backup Solutions for Optimal Data Protection</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/why-filmora-stands-out-its-top-10-alluring-features/"><u>Why Filmora Stands Out Its Top 10 Alluring Features</u></a></li>
+</ul></div>
 

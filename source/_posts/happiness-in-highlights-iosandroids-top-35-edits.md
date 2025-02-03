@@ -1,7 +1,7 @@
 ---
 title: "\"Happiness in Highlights  IOS/Android's Top 35 Edits\""
-date: 2024-12-15T23:54:01.286Z
-updated: 2024-12-21T18:01:06.131Z
+date: 2025-01-25T22:28:44.653Z
+updated: 2025-02-01T19:27:01.086Z
 tags: 
   - screen-recording
   - ai video
@@ -98,6 +98,10 @@ It is possible to access so many serious kinds of images from this platform and 
 
 ![funny-pixisnap](https://images.wondershare.com/filmora/article-images/funny-pixisnap.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 PixiSnap is an advanced mosaic developer with a polaroid picture editor effect where people can generate stunning results within few seconds.
 
 #### 8. [Festisite Money](https://www.festisite.com/money/)
@@ -116,6 +120,10 @@ Those who want to create their own interesting yearbook to impress their friends
 
 ![funny-dumpr](https://images.wondershare.com/filmora/article-images/funny-dumpr.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Dumpr is extremely easy to use and it contains few basic photo effects tools. Users can easily upload their photos to this site and add some funny things to them and finally share them with other platforms online.
 
 #### 11. [In 20 Years](https://in20years.com/)
@@ -129,7 +137,7 @@ As the name indicates, this image can help you to generate a future prediction a
 ![funny-magmypic](https://images.wondershare.com/filmora/article-images/funny-magmypic.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Here is one more free online image editor tool that can assist users to do easy personalizations with comics like covers and artfully designed magazines. It is easier to use and interactive enough with a wide set of artistic flavors.
@@ -138,15 +146,15 @@ Here is one more free online image editor tool that can assist users to do easy 
 
 ![funny-faceinhole](https://images.wondershare.com/filmora/article-images/funny-faceinhole.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you are crazy enough to make fun of your co-workers then get connected to FaceinHole right now. It will help you to make them look like jerks while you will always look awesome in every photo. Just a few clicks of the mouse can create an impressive effect on your stills.
 
 #### 14. [Blingee](https://blingee.com/)
 
 ![funny-blingee](https://images.wondershare.com/filmora/article-images/funny-blingee.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Blingee is well popular as a creative community that possesses so many animated graphics and stills. Users can try them for free on their own images and get funny results within seconds. It will help you to develop goth, emo, fantasy, and anime leading stills.
 
@@ -168,6 +176,10 @@ This interactive online editing tool will add more fun and adventure to your lif
 * [Top Funny Photo Apps for iPhone and iPad](#part2)
 * [Top Funny Photo Apps for Android](#part3)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Top 10 Funny Photo Editor Apps for iPhone and iPad
 
 #### 1. [InstaRage](https://itunes.apple.com/us/app/instarage-photo-editor-meme-rage-face-stickers/id592632102?mt=8)
@@ -180,29 +192,17 @@ It is time to use storage to make funny photos with popular memes. It will help 
 
 ![funny-epica2](https://images.wondershare.com/filmora/article-images/funny-epica2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 It is well known as second-generation for cameras because it makes everything cool with new scenes, new special effects, new poses, and many more.
 
 #### 3. [InstaMeme](https://itunes.apple.com/us/app/instameme-the-best-meme-creator-free/id578523295?mt=8)
 
 ![funny-instameme](https://images.wondershare.com/filmora/article-images/funny-instameme.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Instameme will make your photos spicier with interesting memes and you can also give a challenge to your grandma to see her new funny face.
 
 #### 4. [Pic Artist Collage Plus](https://itunes.apple.com/hk/app/pic-artist-collage-plus-picture/id861302851?mt=8)
 
 ![funny-picartist](https://images.wondershare.com/filmora/article-images/funny-picartist.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 It can easily combine a number of photos to generate something very funny quickly. It updates results with funny frames.
 
@@ -234,15 +234,15 @@ Let this app grow a mustache on your face and soon you will be able to see a new
 
 ![funny-memeyou](https://images.wondershare.com/filmora/article-images/funny-memeyou.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 If you want to develop your own meme photos with tons of impressive faces then go to Meme You and start enjoy editing.
 
 #### 10. [Animal Face](https://itunes.apple.com/us/app/animal-face-editor-photo-booth-funny-animal-head-stickers/id816231635?mt=8)
 
 ![funny-animal-face](https://images.wondershare.com/filmora/article-images/funny-animal-face.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 It is really funny to replace your face with an animal faces but you can apply this trick to your friends in a group photo.
 
@@ -264,21 +264,25 @@ Photography is all about fun and it is well proven by this android compatible ap
 
 ![funny-face](https://images.wondershare.com/filmora/article-images/funny-face.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Create instant fun in a serious class by simply editing your friend’s photo in this app. It is just hilarious and you will die of laughter. You can add hat, funny glasses, and even a crazy beard on the uploaded photo face. It is the best way to fool your friends and family and have a grand time with lots of laughter. There is a wide collection of accessories that can be used like interactive fun elements.
 
 #### 3. [Image Faker](https://play.google.com/store/apps/details?id=com.kauf.baum.ImageFaker)
 
 ![funny-imagefaker](https://images.wondershare.com/filmora/article-images/funny-imagefaker.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You should definitely check the image faker at once because it has so many things to explore and will help you to choose photos easily from the gallery for editing. There is a wide collection of illusions, photomontages, backgrounds, and cool wallpapers. The final results of this editing application can be easily shared on Facebook or can be transferred via MMS.
 
 #### 4. [Funny Camera](https://play.google.com/store/apps/details?id=com.photo.funnycams)
 
 ![funny-funny-camera](https://images.wondershare.com/filmora/article-images/funny-funny-camera.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The funny Camera app is quite simple but it can develop perfect funny frames on your photos. You can even replace few great art pieces with funny things and enjoy unlimited fun on each editing result.
 
@@ -299,7 +303,7 @@ If you need an android compatible app with quick fun facts then Camera Illusion 
 ![funny-photo-warp](https://images.wondershare.com/filmora/article-images/funny-photo-warp.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Let us start a challenge of laughter with long entertaining hours on Photo Warp. Update your own faces here or make a try with your friends. It will soon generate a classic but funny prank as an output. Photo Warp can make your face flatter, thinner, or distort and bend it with creative effects.
@@ -314,6 +318,10 @@ If you are already tired of Instagram then it is time to step ahead into Lightbo
 
 ![funny-paper-camera](https://images.wondershare.com/filmora/article-images/funny-paper-camera.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You might have watched so many cartoons on TV but if somehow you become able to see your surroundings with cartoonist effects then it will be something extraordinary. Go to the Paper Camera app and start photo editing with a unique concept while using halftones. Comics, cartoons, and sketches for every photo.
 
 If you want to change your image background and make a photo that you have traveled to the moon, you should really try [Wondershare Fotophire](https://tools.techidaily.com/wondershare/fotophire/download/). Using the [photo cutter tool](https://tools.techidaily.com/wondershare/fotophire/download/) in Fotophire, you can remove the original background of your image and add a new background to your photos easily. Using Fotophire, you can also [remove the watermarks from images](https://tools.techidaily.com/wondershare/filmora/download/) with ease.
@@ -324,15 +332,7 @@ Wanna make an impressive photo slideshow with music, text, filters, overlays, fu
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -359,19 +359,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-complete-survey-lightroom-app-unpacked-android-for-2024/"><u>[New] Complete Survey Lightroom App Unpacked (Android) for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-explore-the-difference-basic-plus-and-pro-in-vimeo-services-for-2024/"><u>[New] Explore The Difference Basic, Plus & Pro in Vimeo Services for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-unraveling-the-complexities-of-music-licensing-on-instagram/"><u>[New] In 2024, Unraveling the Complexities of Music Licensing on Instagram</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-mastering-online-tale-creation-fundamentals/"><u>[New] Mastering Online Tale Creation Fundamentals</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-optimizing-video-playback-sizes-on-youtube/"><u>[New] Optimizing Video Playback Sizes on YouTube</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-ace-your-messaging-must-know-advanced-tricks-and-techniques-in-whatsapp/"><u>[Updated] 2024 Approved Ace Your Messaging Must-Know Advanced Tricks and Techniques in WhatsApp</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-tricks-to-upgrade-streaming-quality-on-mobile-apps-like-facebook/"><u>[Updated] 2024 Approved Tricks to Upgrade Streaming Quality on Mobile Apps Like Facebook</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-discovering-windows-10s-game-changing-advances/"><u>[Updated] Discovering Windows 10’S Game-Changing Advances</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-navigate-through-apples-best-in-class-virtual-reality-games-for-2024/"><u>[Updated] Navigate Through Apple's Best-in-Class Virtual Reality Games for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-launchpad-logic-the-complete-framework-for-founders-of-a-reviews-channel/"><u>2024 Approved Launchpad Logic The Complete Framework for Founders of a Reviews Channel</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/best-microphones-ranked-perfect-companions-for-4k-cinematography/"><u>Best Microphones Ranked Perfect Companions for 4K Cinematography</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-lock-on-iphone-se-by-drfone-ios/"><u>How to Bypass iCloud Lock on iPhone SE</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/hustle-smart-listen-hard-top-tasks-for-podcast-enthusiasts-for-2024/"><u>Hustle Smart, Listen Hard Top Tasks for Podcast Enthusiasts for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/the-complete-guide-to-zte-nubia-flip-5g-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to ZTE Nubia Flip 5G FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-best-12-mouse-focused-pc-games-for-enthusiasts/"><u>[New] 2024 Approved Best 12 Mouse-Focused PC Games for Enthusiasts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-blend-mp3s-with-presentation-content-in-ppt-for-2024/"><u>[New] Blend MP3s with Presentation Content in PPT for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-dive-into-vlogging-your-first-set-of-tools/"><u>[New] Dive Into Vlogging Your First Set of Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-how-to-downgrade-or-rollback-the-macos-sierra-to-os-x-el-capitan/"><u>[New] In 2024, How To Downgrade Or Rollback The macOs Sierra To Os X El Capitan</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-twisting-the-narrative-a-guide-to-angled-photography-in-todays-digital-landscape/"><u>[New] In 2024, Twisting the Narrative A Guide to Angled Photography in Today's Digital Landscape</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-pioneering-techniques-in-health-and-wellness-fb-campaigns/"><u>[New] Pioneering Techniques in Health & Wellness FB Campaigns</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-premiere-pro-exposure-corrections-to-fix-overlit-iphone-videos-for-2024/"><u>[New] Premiere Pro Exposure Corrections to Fix Overlit iPhone Videos for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-step-by-step-increasing-viewership-with-facebook-mobile-broadcasts/"><u>[New] Step-by-Step Increasing Viewership with Facebook Mobile Broadcasts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-free-red-eye-correction-for-iphone-users-tips-and-tricks-for-2024/"><u>[Updated] Free Red-Eye Correction for iPhone Users - Tips and Tricks for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-weaving-an-engaging-film-teaser-thread/"><u>[Updated] In 2024, Weaving an Engaging Film Teaser Thread</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-step-by-step-crafting-captivating-haul-videos-for-2024/"><u>[Updated] Step-by-Step Crafting Captivating Haul Videos for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-unleash-creativity-with-top-9-free-tools-to-craft-your-brand/"><u>2024 Approved Unleash Creativity with Top 9 Free Tools to Craft Your Brand</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-removing-unneeded-podcast-advice-from-spotify/"><u>In 2024, Removing Unneeded Podcast Advice From Spotify</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-lava-storm-5gs-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Lava Storm 5Gs Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/resolve-your-apple-iphone-se-2020-keeps-asking-for-outlook-password-drfone-by-drfone-ios/"><u>Resolve Your Apple iPhone SE (2020) Keeps Asking for Outlook Password | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/sightsphere-scrutiny-summary/"><u>SightSphere Scrutiny Summary</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-definitive-selection-gopros-top-15-tripod-options/"><u>The Definitive Selection GoPro's Top 15 Tripod Options</u></a></li>
+<li><a href="https://win11.techidaily.com/the-essence-of-windows-n-versions-decision-making-factors/"><u>The Essence of Windows N Versions: Decision-Making Factors</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/troubleshooting-asus-pce-ac56-drivers-comprehensive-solutions-for-windows-11-8-and-7/"><u>Troubleshooting ASUS PCE-AC56 Drivers: Comprehensive Solutions for Windows 11, 8 & 7</u></a></li>
 </ul></div>
 

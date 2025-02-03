@@ -1,7 +1,7 @@
 ---
 title: "DJi Flyer X20's Flying High Vision Headset Breakdown"
-date: 2024-07-29T17:16:04.062Z
-updated: 2024-07-30T17:16:04.062Z
+date: 2025-01-29T00:23:04.849Z
+updated: 2025-02-01T17:47:01.155Z
 tags: 
   - screen-recording
   - ai video
@@ -31,19 +31,20 @@ thumbnail: https://thmb.techidaily.com/4729098ff75053594bc9af7963d84132dd5d779fe
 [Check at Amazon](https://www.amazon.com/gp/product/B071Z6DSHB/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B071Z6DSHB&linkId=7289b5ef284ae3b0206e825eeb794baa)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Design
 
  DJI Goggles can be split into two parts - headband and display module.
 
  The display module has two 5" 1080O LED display, DJI cleverly position the display screen on the back and top of the display module.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![DJI Goggle's design](https://images.wondershare.com/filmora/article-images/dji-goggle-gif.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image resource: [DJI Official Site](https://store.dji.com/guides/dji-goggles-unboxing-and-quick-review/)
 
@@ -54,6 +55,10 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 * The fixation level of the headband is related with the user's head type
 * The feeling of \[top heavy\] is obvious.
 * When using head trackingfeature, the goggles have a risk of falling off.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Compatible products for DJI Goggles
 
@@ -70,13 +75,11 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
  Moreover, DJI Goggles can be connected to a computer, PS4 for watching videos and gaming. But, regarding to experience…the same budget can allow you to purchase 28" 4K display.
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Main features and experience
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Head Tracking
 
 ###### #1\. What is Head Tracking
@@ -107,22 +110,20 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
 ![DJI Goggle's touchpad](https://images.wondershare.com/filmora/article-images/goggles-touchpad.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: [DJI Official Site](https://store.dji.com/guides/dji-goggles-unboxing-and-quick-review/)
 
 ###### #2\. Experience
 
  DJI Goggles's main interaction needs to be done through the touchpad. This touchpad supports swipe and clicks of single and double fingers. It is responsive to unusual speed. Sometimes it is too sensitive that occasionally, a swipe will be misunderstood as a click. In the case of a fault in touch, we can use double fingers to slide back to lock the touchpad.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
  As DJI's first generation digital image transmission FPV goggles, I think it has a lot of room for improvement. Although Many software issues and hardware design still need to be improved, I think it worth to try.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -148,4 +149,24 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-from-syncing-to-capturing-a-complete-itunes-journey/"><u>[New] From Syncing to Capturing A Complete iTunes Journey</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-top-10-premium-android-and-pc-compatible-video-editors/"><u>[Updated] 2024 Approved Top 10 Premium Android & PC-Compatible Video Editors</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-obs-mac-integration-step-by-step-installation-walkthrough/"><u>[Updated] In 2024, OBS Mac Integration Step-by-Step Installation Walkthrough</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-top-12-wildlife-wonders-for-your-android-device-for-2024/"><u>[Updated] Top 12 Wildlife Wonders for Your Android Device for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-tips-for-reducing-unsteady-shots/"><u>2024 Approved Tips for Reducing Unsteady Shots</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/discovering-content-iphones-and-podcasts/"><u>Discovering Content IPhones and Podcasts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/discovering-the-immersive-world-of-lg-27ud68-for-2024/"><u>Discovering the Immersive World of LG 27UD68 for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/dive-into-discoworld-our-top-10-theme-picks/"><u>Dive Into DiscoWorld - Our Top 10 Theme Picks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/elite-choices-top-8-tripods-for-cinematic-4k-experiences-for-2024/"><u>Elite Choices Top 8 Tripods for Cinematic 4K Experiences for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/embracing-high-dynamic-range-transforming-your-video-outputs-for-2024/"><u>Embracing High Dynamic Range Transforming Your Video Outputs for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/engaging-consumer-openings-for-2024/"><u>Engaging Consumer Openings for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/essential-list-of-premium-cost-free-webm-streaming-services-for-2024/"><u>Essential List of Premium, Cost-Free WebM Streaming Services for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/exclusive-gathering-of-top-tier-no-fee-vectr-and-illustration-sources/"><u>Exclusive Gathering of Top-Tier No-Fee Vectr and Illustration Sources</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/expert-tips-on-creating-striking-ae-titles/"><u>Expert Tips on Creating Striking AE Titles</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-vivo-s17t-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Vivo S17t Back to Operation | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/live-streaming-software-vs-hardware-which-is-better/"><u>Live Streaming Software Vs Hardware Which Is Better?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/twilight-assessment-diverse-ideas-for-2024/"><u>Twilight Assessment Diverse Ideas for 2024</u></a></li>
+</ul></div>
 

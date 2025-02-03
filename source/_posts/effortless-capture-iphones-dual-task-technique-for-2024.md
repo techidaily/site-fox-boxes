@@ -1,7 +1,7 @@
 ---
 title: "\"Effortless Capture  IPhone's Dual-Task Technique for 2024\""
-date: 2024-07-29T17:14:34.697Z
-updated: 2024-07-30T17:14:34.697Z
+date: 2025-01-28T17:29:54.043Z
+updated: 2025-02-01T16:04:37.717Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/63eaa39ba6f901f19dd5d6107e02d0bfc04195c0f
 
 # How to Take Photos While Recording Videos on iPhone
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -32,8 +29,9 @@ thumbnail: https://thmb.techidaily.com/63eaa39ba6f901f19dd5d6107e02d0bfc04195c0f
  Video or picture capturing these days are plainly one of the frequently done tasks at various instants be it for recording a birthday party or a dance performance. And often times, you might have experienced the urge to take a picture out of the video recording so that the precious moment can be captured. But, switching to photo mode again for this will break the flow and the desired moment will be missed in the next second. And considering this situation, we have brought this article where you will learn to take photos and videos simultaneously.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to shoot a still photo and record a video simultaneously on your iPhone
 
  The feature of simultaneous photo and video recording had begun since the coming of iPhone 5\. So, iPhone 5 and later model users can enjoy taking photos while recording videos while if we talk about other iOS devices, iPad makes this feature available with its fourth generation as well as iPod touch sixth generation started supporting the feature of capturing stills when recording videos.
@@ -44,14 +42,19 @@ thumbnail: https://thmb.techidaily.com/63eaa39ba6f901f19dd5d6107e02d0bfc04195c0f
 * Look for the video mode and switch to it for initiating video recording.
 * Tap the red button located at the bottom and it will start the video recording.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/take-photo-while-recording-videos-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image resource: igeeksblog.com
 
 * Now, to take a still, just tap on the white 'take picture' button that can be noticed at the left of the red button. The screen will flicker each time you press the button to take the photo.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The drawbacks of taking photos and videos simultaneously
 
@@ -69,15 +72,13 @@ thumbnail: https://thmb.techidaily.com/63eaa39ba6f901f19dd5d6107e02d0bfc04195c0f
 | **iPhone 7 series**  | 4032 × 3024               | 3412 × 1920                                  | 3840 × 2160                               | 1280 × 720                                    |
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Extract frames from video
 
  If you are one of those who wish to **take photos while recording videos** without compromising the quality, we are glad to inform you that there is a solution for this. You can easily extract a specific frame from the recorded video keeping the standard resolution quality via Wondershare Filmora and will never be bothered about missing anything interesting from the video.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### Why Choose Wondershare Filmora?
 
 * It supports a wide range of video formats and can help in extracting the desired frame out from any file format while keeping the quality intact as the original file.
@@ -86,10 +87,11 @@ thumbnail: https://thmb.techidaily.com/63eaa39ba6f901f19dd5d6107e02d0bfc04195c0f
 
  Check this video to see how to extract photos from a video with Filmora:
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
@@ -116,4 +118,20 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-revolutionary-wraps-transforming-virtual-reality-play/"><u>[New] Revolutionary Wraps Transforming Virtual Reality Play</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-pioneering-techniques-for-popularizing-youtube-videos/"><u>[Updated] 2024 Approved Pioneering Techniques for Popularizing YouTube Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-contrasting-copyright-clauses-in-youtube-and-the-freedom-of-cc-for-2024/"><u>[Updated] Contrasting Copyright Clauses in Youtube & the Freedom of CC for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-heartfelt-gratitude-paidfree-creative-templates-for-2024/"><u>[Updated] Heartfelt Gratitude Paid/Free Creative Templates for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-highpoint-artist-suite-evaluation/"><u>[Updated] Highpoint Artist Suite Evaluation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-pilots-perspective-dji-dualsense-fpv-tech/"><u>[Updated] Pilot's Perspective DJI DualSense FPV Tech</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-free-minecraft-youtube-banners-with-templates/"><u>2024 Approved Free Minecraft YouTube Banners with Templates</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-how-to-find-elite-instagram-tones-and-craft-unique-alarm-sounds/"><u>2024 Approved How to Find Elite Instagram Tones and Craft Unique Alarm Sounds</u></a></li>
+<li><a href="https://win-blog.techidaily.com/dota-2-stability-hacks-fix-frequent-game-crashes-easily/"><u>Dota 2 Stability Hacks: Fix Frequent Game Crashes Easily</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/flash-fiction-directorial-map/"><u>Flash Fiction Directorial Map</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/groundbreaking-films-in-the-vr-world/"><u>Groundbreaking Films in the VR World</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-samsung-galaxy-m34-5g-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Samsung Galaxy M34 5G Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-top-strategies-for-box-enthusiasts-for-2024/"><u>The Top Strategies for Box Enthusiasts for 2024</u></a></li>
+</ul></div>
 

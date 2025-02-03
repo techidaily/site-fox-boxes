@@ -1,7 +1,7 @@
 ---
 title: "Discover 11 Secrets of Windows 11"
-date: 2024-07-29T17:17:45.586Z
-updated: 2024-07-30T17:17:45.586Z
+date: 2025-01-26T22:29:14.326Z
+updated: 2025-02-01T17:45:43.007Z
 tags: 
   - screen-recording
   - ai video
@@ -34,26 +34,31 @@ With the increased number of notifications in Windows 11, you might get annoyed.
 
 ![turn off unnecessary notifications](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Minimize Applications
 
 Minimizing Applications allows you to minimize the extra tabs as a whole rather than doing it individually. You have to hold the tab that you are using by left-clicking and shaking it. It will minimize all extra tabs. The same process can be done to restore the minimized windows.
 
 This feature can be activated through Windows Settings and then by clicking on ‘Multi-Tasking.' Switch on the toggle switch next to ‘Title Bar Window Shake,' and it is ready to use.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ![minimize applications by shaking](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Shortcut Keys
 
 Windows 11 has many shortcut keys that will save your time on a busy day. These shortcut keys cover areas such as Widgets with (Win + W). It Opens the Team Chat app (Win + C), notification center (Win + N), Quick settings with (Win + A), and a lot more. Whereas the shortcuts for copying, pasting, and screenshots are the same as Windows 10.
 
 ![windows 11 shortcut keys](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Taskbar and Start Menu Placements
 
@@ -62,20 +67,15 @@ The biggest Windows 11 tip and trick is the placement of Taskbar and Start Menu.
 ![align taskbar to the left](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 5\. Remove Unwanted Ads on Apps
 
 The updated technology allows you to have better control over the privacy of your data and device from personalized ads. For this, go to the ‘Settings’ panel and then move over to the 'Privacy and Security’ section. From the right panel, hit the ‘General’ settings. Now you can select whether you want the apps or websites to show ads based on your interests.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![disable unwanted ads](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 6\. Voice Typing Feature
 
 The coolest thing about Windows 11 that most people don’t know is the ‘Voice Typing’ feature. You might have experienced this before in your iPhones or Android devices, but this is new for Windows to have voice typing built-in. Press ‘Windows Key + H’ when you are in a text box and then start speaking. By using the mic button from the pop-out menu, you can start using the feature.
@@ -83,8 +83,9 @@ The coolest thing about Windows 11 that most people don’t know is the ‘Voice
 ![windows 11 voice typing feature](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 7\. Widgets and Chat Customization
 
 Using Widgets and Chats helps the user have a quick chat with people that they love the most. Widget and Chats are the two new features introduced in Windows 11.
@@ -94,30 +95,26 @@ However, some people do not like using this kind of stuff. They don’t even pre
 ![disable widgets and other items](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 8\. Block Trackers and Pop-up
 
 Another brilliant Windows 11 tip and trick is that it lets you block the pop-ups and also the tracking. For that, open Microsoft Edge and head over to the 3 dots on the top right corner to open 'Settings.' From the left panel in Settings, look for 'Privacy, Search and Services.' By default, it is set to 'Balanced.' You are suggested to select the 'Strict' option so that all the harmful trackers are blocked.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![secure your browsing on windows 11](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 9\. Change your Geolocation
 
 Every app we install has our location, but with Windows 11, we can change our default location. For this fun tip, press 'Win + I' to open the 'Settings.' Then head over to the ‘Privacy & Security’ section. Now, scroll down and look for the 'Location' tab.
 
 For changing your default location, hit the ‘Set Default’ button on the right side of the screen. This will open the Map. Now, enter the location that you want to have, and lastly, click on the ‘Change’ button in the top left corner.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![change windows 11 location](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 10\. Bring Folders on Start
 
@@ -125,9 +122,6 @@ Windows 11 tips and tricks also include bringing back the folders on the start m
 
 For that, press ‘Win + I’ and then select 'Personalization.' Now, choose 'Start,' and after that, select 'Folders.' At this point, select the system folders that you want to see on the Start Menu. You can flip the switch to 'On.'
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ![bring folders to windows 11 start](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-10.jpg)
 
 ### The Bottom Line
@@ -149,9 +143,14 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 ![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 <!-- affiliate ads begin -->
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
@@ -179,4 +178,22 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-achieving-flawless-photos-with-size-tweaks-on-ios/"><u>[New] In 2024, Achieving Flawless Photos with Size Tweaks on iOS</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-androids-best-in-sky-file-sanctuaries/"><u>2024 Approved Android's Best In-Sky File Sanctuaries</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-captureone-expert-tutorial-series/"><u>2024 Approved CaptureOne Expert Tutorial Series</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-converting-video-content-from-twitter-to-an-audiophile-written-mp3-format/"><u>2024 Approved Converting Video Content From Twitter to an Audiophile' Written MP3 Format</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-expert-advice-on-acquiring-royalty-free-high-quality-graphics/"><u>2024 Approved Expert Advice on Acquiring Royalty-Free, High-Quality Graphics</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-live-action-top-9-gaming-portals/"><u>2024 Approved Live Action Top 9 Gaming Portals</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-modernized-guide-of-queries-for-engaging-podcast-discussions/"><u>2024 Approved Modernized Guide of Queries for Engaging Podcast Discussions</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-ranking-the-best-mac-recording-alternatives-to-bandicam/"><u>2024 Approved Ranking the Best Mac Recording Alternatives to Bandicam</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-superior-pc-experience-innovation-at-your-fingertips/"><u>2024 Approved Superior PC Experience Innovation at Your Fingertips</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/becoming-an-smm-virtuoso-the-ultimate-pathway-of-10-strategic-steps-for-2024/"><u>Becoming an SMM Virtuoso The Ultimate Pathway of 10 Strategic Steps for 2024</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/best-free-real-time-subtitling-apps-live-closed-and-open-captions-solutions/"><u>Best Free Real-Time Subtitling Apps: Live, Closed & Open Captions Solutions</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/essential-tools-for-crafting-a-competitive-business-plan/"><u>Essential Tools for Crafting a Competitive Business Plan</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Tecno Pop 8 | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-cutting-ties-with-instagram-navigating-a-permanent-exit-strategy/"><u>In 2024, Cutting Ties with Instagram Navigating a Permanent Exit Strategy</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Discover the Thrill  Panasonic’s Wearable ActionCam, HX-A1\""
-date: 2024-07-29T17:14:23.519Z
-updated: 2024-07-30T17:14:23.519Z
+date: 2025-01-29T23:46:01.563Z
+updated: 2025-02-01T21:21:13.672Z
 tags: 
   - screen-recording
   - ai video
@@ -32,18 +32,24 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 
  With an unconventional cylindrical design, this digital camcorder is ready to make you fall for it. Panasonic has always tried to add versatility to their product and this focus has helped to win the hearts of its fans! HX-A1 Wearable Action Camera, as its name suggests, helps to mount it to any ideal spot. Its elongated torch-like shape helps in mounting it to your helmet, board or any other piece of mountain gear. You can attach it to your bag, hat or backpack or just put it like a headband! The twin mount helps in clicking in dark situations especially where you need an IR flashlight. Its 0 lux night vision mode allows IR flashlight to be mounted in addition to A1\. The camera allows to film in 1080p at 30fps, 720p at 60fps and 480p at 240fps. Available at a very affordable price of $101.95, A1 is certainly compatible to exceed your expectations. Let us unfold aspects of this A1 camera in this post.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Design and Usability
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![panasonic-hx-a1-design](https://images.wondershare.com/filmora/article-images/panasonic-hx-a1-design.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specification
 
 | Review Price                | $101.95 (Amazon)                                                                             |
@@ -69,9 +75,6 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 | Allows to record Slow-motion and in dark also.                                                                                                                         | No HDMI output for HD movies                                                                           |
 | Plenty of optional mounts for any activities to increase its operational feasibility at every location.                                                                | Built-in battery does not allow you to swap out for a fresh one so no scope of improving battery life. |
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Accessories in the box
 
  The box obviously contains one of the best products from Panasonic which is the camera but also has little surprising accessories which will alleviate your shooting experience.
@@ -110,8 +113,9 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 [Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Features
 
 #### **1. Video and photo quality**
@@ -140,19 +144,17 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 
  A1 connectivity to the Image App eases out its usage drastically. It gives a gateway to adjust the resolution and also provides access to various white balance options including dalylight and cloudy for outdoor and some user and automatic configured ones for indoor shoots. This app can also be used for live preview and toggling record acting as camera’s screen after complete configuration.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
  The minor drawbacks in A1 are completely understandable. With its decent picture quality and plenty of other features such as SFDW formula, it can be rightly said that Panasonic has created a fine budget camera which is worth investing. There is always a way to capture your fun and thrills and Panasonic HX-A1 gets along your making it a capable action camera!
 
  Looking for action cameras with low budget? [Check best action cameras under 100 now.](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -177,4 +179,24 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-premium-4k-screen-capturing-solutions/"><u>[New] In 2024, Premium 4K Screen Capturing Solutions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-why-cant-i-see-videos-on-sony-a6400/"><u>[New] In 2024, Why Can’t I See Videos on Sony A6400?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-leading-pictorial-storage-hubs/"><u>[New] Leading Pictorial Storage Hubs</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-no-cost-youtube-audio-tools-for-seamless-mp3-downloads/"><u>[New] No-Cost YouTube Audio Tools for Seamless MP3 Downloads</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-quick-and-easy-method-for-clearing-image-backdrops/"><u>[New] Quick and Easy Method for Clearing Image Backdrops</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-wit-worthy-pictures-mememakers-for-2024/"><u>[New] Wit Worthy Pictures MemeMakers for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-change-saving-spot-for-macs-photos-for-2024/"><u>[Updated] Change Saving Spot for Mac's Photos for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-from-novice-to-expert-elevating-screencapture-skills-for-2024/"><u>[Updated] From Novice to Expert Elevating ScreenCapture Skills for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-step-by-step-turn-your-images-darker/"><u>[Updated] Step-by-Step Turn Your Images Darker</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-ultimate-list-mac-video-editors-for-macos-big-sur-11-users-for-2024/"><u>[Updated] Ultimate List Mac Video Editors for macOS Big Sur 11 Users for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unleash-your-creative-potential-with-zooms-step-by-step-filter-guide/"><u>[Updated] Unleash Your Creative Potential with Zoom's Step-by-Step Filter Guide</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-step-by-step-setting-up-your-first-xbox-record-session/"><u>2024 Approved Step-by-Step Setting Up Your First Xbox Record Session</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-crafting-perfect-memos-through-sound-waves/"><u>In 2024, Crafting Perfect Memos Through Sound Waves</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-infinix-note-30-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Infinix Note 30 5G Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-pioneering-the-virtual-landscape-with-metaverse-marketing/"><u>In 2024, Pioneering the Virtual Landscape with Metaverse Marketing</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/keep-your-ai-chats-intact-stealthy-ways-to-hide-not-delete/"><u>Keep Your AI Chats Intact: Stealthy Ways to Hide, Not Delete</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/top-10-memetic-artistry-codes/"><u>Top 10 Memetic Artistry Codes</u></a></li>
+</ul></div>
 

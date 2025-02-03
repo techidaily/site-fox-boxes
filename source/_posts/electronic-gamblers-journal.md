@@ -1,7 +1,7 @@
 ---
 title: "ELECTRONIC GAMBLER'S JOURNAL"
-date: 2024-07-29T17:15:35.079Z
-updated: 2024-07-30T17:15:35.079Z
+date: 2025-01-29T21:01:50.867Z
+updated: 2025-02-01T19:42:45.764Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
 
 # POT Player Review
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -34,8 +31,9 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
 * [Part3.Deep Review of Pot Player](#part3)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What’s POT Player?
 
  POT Player is a feature rich platform that offers wide range of functionality even beyond expectations of common users. This player is available as a freeware for Windows OS on 32 bit as well as 64 bit platform and plays videos without posing any restriction. Users can easily download this software from internet and get started for free.
@@ -46,9 +44,6 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
 
  You will be glad to know that POT player platform is highly customizable and it assists users to enjoy videos with added support to subtitles. It accepts all audio and video files with quality delivery of content.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ### POT Player Features
 
 * This software tool can play most of the video and audio file formats.
@@ -70,6 +65,10 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
 * User defined shortcuts makes controlling much easier.
 * It creates minimal loads of memory and CPU.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### The Bad
 
 * Beginners may find its setup quite difficult with loads of advanced settings.
@@ -78,14 +77,12 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
 
  The truth behind its classic design is that POT player is basically dedicated to advanced or professional users. Those who demand higher controls over customization and want to explore wide range of media file formats can enjoy great viewing experience over POT Player.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Deep Review of Pot Player
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Adding Files and Managing Playlists
 
  Users can add various files, even a complete directory to POT player library and allow it to play high quality content from URLs directly. The key board shortcuts make playlist editing much easier whereas drag and drop features are more beginners friendly.
@@ -94,9 +91,6 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
 
 ![ pot-add-files](https://images.wondershare.com/filmora/article-images/pot-add-files.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ### 2\. Playing Audio Files
 
  When you are ready to enjoy playbacks then it is also possible to pair up content with equalizers in order to have rich sound quality. When this paired up connection is dragged into timeline, they work in perfect synchronism and if you want to separate them at any moment then simply drag the playlist.
@@ -105,10 +99,11 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
 
  Users can manage audio equalizer adjustments from control panel and it can also provide services for easy settings of video frames, video ratios, play settings, control subtitles, screen captures and other video settings.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ![pot-play-audio ](https://images.wondershare.com/filmora/article-images/pot-play-audio.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Playing Video Files
 
@@ -117,6 +112,10 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
  It is also possible to hide skin during video playbacks and users can easily hover over different elements on screen. The video playback menu of Pot Player is quite useful and it allows users to manage channel controls. NV12 offers controls for specific frames, within subtitles, frame by frame movements within videos. The first three control buttons on bottom screen works for video processing, subtitles and stream controls. If you want to access advanced control menu then simply right click over control panel button and soon you will be able to manage so many advanced controls for your player.
 
 ![pot-play-video ](https://images.wondershare.com/filmora/article-images/pot-play-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
@@ -143,4 +142,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-direct-transfer-path-youtube-content-to-dailymotion-hub/"><u>[New] 2024 Approved Direct Transfer Path YouTube Content to Dailymotion Hub</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-master-levels-enhancing-steam-gameplay-videos/"><u>[New] In 2024, Master Levels Enhancing Steam Gameplay Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-inverted-video-playback-on-android-made-simple/"><u>[New] Inverted Video Playback on Android Made Simple</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-rapid-routines-easy-iphone-media-sharing/"><u>[New] Rapid Routines Easy iPhone Media Sharing</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-slomo-visual-delight-thorough-assessment-release/"><u>[New] SloMo Visual Delight Thorough Assessment Release</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-streamline-your-workflow-ultimate-convertor-list-1-8/"><u>[New] Streamline Your Workflow Ultimate Convertor List #1-8</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-balancing-acts-understanding-the-importance-of-drone-stabilizers/"><u>[Updated] 2024 Approved Balancing Acts Understanding the Importance of Drone Stabilizers</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-comprehensive-idevice-screenplay-techniques/"><u>[Updated] 2024 Approved Comprehensive iDevice Screenplay Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-deconstructing-digital-dimensions-the-trios-unique-traits-vr-ar-and-mr-for-2024/"><u>[Updated] Deconstructing Digital Dimensions The Trio's Unique Traits (VR, AR, & MR) for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-seamless-time-manipulation-for-professional-videos/"><u>[Updated] Seamless Time Manipulation for Professional Videos</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-cloud-data-economy-comparison-saving-tips-and-price-leaders/"><u>2024 Approved Cloud Data Economy Comparison, Saving Tips & Price Leaders</u></a></li>
+<li><a href="https://win-news.techidaily.com/easy-guide-how-to-save-and-enjoy-daftsex-originals-on-your-device-as-mp4-files/"><u>Easy Guide: How to Save and Enjoy DaftSex Originals on Your Device as MP4 Files</u></a></li>
+<li><a href="https://blog-min.techidaily.com/enhancing-video-processing-in-vlc-through-gpu-utilization-techniques/"><u>Enhancing Video Processing in VLC Through GPU Utilization Techniques</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-gopros-latest-camera-face-off/"><u>In 2024, GoPro's Latest Camera Face-Off</u></a></li>
+<li><a href="https://fox-info.techidaily.com/liberate-iphone-photos-from-red-eye-effects-at-no-cost-for-2024/"><u>Liberate iPhone Photos From Red Eye Effects at No Cost for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/transformative-tips-to-take-your-lunapic-skills-up-for-2024/"><u>Transformative Tips to Take Your LunaPic Skills Up for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/transforming-youtube-into-animation-a-comprehensive-tutorial-on-making-gifs/"><u>Transforming YouTube Into Animation: A Comprehensive Tutorial on Making GIFs</u></a></li>
+</ul></div>
 

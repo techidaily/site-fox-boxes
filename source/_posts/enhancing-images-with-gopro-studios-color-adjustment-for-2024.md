@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Images with GoPro Studio's Color Adjustment for 2024"
-date: 2024-07-29T17:15:38.433Z
-updated: 2024-07-30T17:15:38.433Z
+date: 2025-01-28T19:30:56.648Z
+updated: 2025-02-01T19:23:39.054Z
 tags: 
   - screen-recording
   - ai video
@@ -32,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/7104eb033fbf632865800cb348d315fa27012665c
 
 [Color Grading and Correction in Final Cut Pro >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Color Correction in GoPro Studio
 
  One of the easiest and most convenient ways of making the most out of your action camera is to use the ["Protune"](https://gopro.com/support/articles/how-to-use-protune) setting. The Protune among other things is capable of enhancing the dynamic recording range. The enhanced dynamic range would offer you a flat log like image which appears more vigorous while during color grading.
@@ -46,6 +50,10 @@ thumbnail: https://thmb.techidaily.com/7104eb033fbf632865800cb348d315fa27012665c
 
 ![Color correction in GoPro Studio](https://images.wondershare.com/filmora/article-images/color-correction-in-gopro-studio-0.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Color Correction- On the right hand side of your window the color correction can be done just by hitting on the arrow beside the White Balance button and the Image button. Now you can see the options which needed to be changed in order to correct the color. You will be able to view all the options like temperature, exposure, sharpness, contrast, tint and saturation. You can also choose to apply different preset overlays to give the footage a special filter.
 
 ![how to do color correction in GoPro Studio](https://images.wondershare.com/filmora/article-images/color-correction-in-gopro-studio-1.jpg)
@@ -54,51 +62,44 @@ thumbnail: https://thmb.techidaily.com/7104eb033fbf632865800cb348d315fa27012665c
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The all new version of the Wondershare Filmora editing software for Windows and Mac is packed with exciting features meant exclusively for action cameras. These features include:
 
 1. [Video stabilization](https://tools.techidaily.com/wondershare/filmora/download/), advanced speed control (slow motion, fast motion, replay, freeze frame and reverse), audio de-noise, along with color correction features (3D, white balance, LUT etc).
 2. The Instant Cutter tool would give the users the option of trimming and merging video files without any loss of quality. It would allow you to cut a 8GB footage within just a minutes time.
 3. It fully supports  encoded MP4 format, MTS and Mov videos shot on any action cams, camcorders and phones.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## GoPro Footage Color Correction in Wondershare Filmora
 
  In order to do the color correction in Filmora you just need to follow the 3 easy steps.
 
 **Step 1:** Import the file. After opening the Filmora app go to the Action Cam Tool right on the interface of the software. Now click on the import button or just drag and drop your clip shot on any action cam into the middle of your timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ![color correction](https://images.wondershare.com/filmora/guide/1-action-cam-tool-fix-entrance.jpg)
 
 **Step 2:** Color Tuning. Now you need to choose the Color Tab on the left of your control panel. Here you will be able to drag the individual slider so as to alter the contrast, brightness, tint, vignette and saturation.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![correct gopro footage color](https://images.wondershare.com/filmora/article-images/color-corretion-in-gopro-studio-3.jpg)
 
  The compare button located on the top right lets you check all the segments before and after the correction simultaneously. While the Reset button ![color-tuning-reset-button](https://images.wondershare.com/filmora/guide/color-tuning-reset-button.png) would allow you to clear all the color corrections anytime.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Save and Share- Once the edit is finished you need to hit the Export button in order to save the edited clip as MOV or MP4 format. You can also alter the video res and the frames per sec. Now just hit the OK button to start the export.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![Export](https://images.wondershare.com/filmora/guide/8-action-cam-tool-export.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -124,4 +125,18 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-crafting-memes-perfecting-social-media-videos-on-fb-and-insta/"><u>[New] Crafting Memes Perfecting Social Media Videos on FB & Insta</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-enhancing-visual-storytelling-on-instagram-with-loops-for-2024/"><u>[New] Enhancing Visual Storytelling on Instagram With Loops for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-unravel-the-power-of-live-streaming-with-obs-on-youtube-and-twitch/"><u>[New] In 2024, Unravel the Power of Live Streaming with OBS on YouTube & Twitch</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-privacy-preserving-recordings-methods-to-shield-sensitive-data/"><u>[New] Privacy-Preserving Recordings Methods to Shield Sensitive Data</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-scripting-summative-stories/"><u>[Updated] 2024 Approved Scripting Summative Stories</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unparalleled-capturing-the-best-camcorders/"><u>[Updated] 2024 Approved Unparalleled Capturing The Best Camcorders</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-harnessing-the-power-of-asynchronous-programming-in-javascript-for-2024/"><u>[Updated] Harnessing the Power of Asynchronous Programming in JavaScript for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-unveiling-9plus-ingenious-methods-for-online-cricket-viewing-for-2024/"><u>[Updated] Unveiling 9+ Ingenious Methods for Online Cricket Viewing for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/getting-started-with-windows-11s-in-built-high-dynamic-range-auto-hdr-for-2024/"><u>Getting Started with Windows 11'S In-Built High Dynamic Range (Auto HDR) for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-how-to-design-a-post-that-sparks-wide-scale-interest-in-fb-giving/"><u>In 2024, How to Design a Post That Sparks Wide-Scale Interest in FB Giving</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-poco-x5-pro-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Poco X5 Pro Phone Now with These Tips</u></a></li>
+</ul></div>
 

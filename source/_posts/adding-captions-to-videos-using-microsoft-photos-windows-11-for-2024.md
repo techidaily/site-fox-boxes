@@ -1,7 +1,7 @@
 ---
 title: "Adding Captions to Videos Using Microsoft Photos (Windows 11) for 2024"
-date: 2024-08-08T14:02:45.852Z
-updated: 2024-08-09T14:02:45.852Z
+date: 2025-01-31T16:41:45.520Z
+updated: 2025-02-01T17:33:42.633Z
 tags: 
   - screen-recording
   - ai video
@@ -31,10 +31,11 @@ Adding the titles/text to video is a great way to explain the people about a cer
 * [**Part1: How to Add Titles/Text to Video on Photos in Windows 10**](#part1)
 * [**Part2: How to Make Text Move in Windows 10 Photos App**](#part2)
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: How to Add Titles/Text to Video on Photos in Windows 10
 
@@ -43,9 +44,6 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * Firstly, divide your videos into sections. Add section titles to the background video or image. Use relevant image for each section and add a section header. If you do not have any relevant image, search from the web by clicking on add Photos/videos.
 * Select licensed images from the preset categories and always use it by adding credits to the image and click Insert to add it to the video project
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
@@ -68,29 +66,39 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
 * To increase or decrease the length of animation time, adjust the slider
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -115,6 +123,22 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-youtube-and-brands-united-strategic-collaborative-titles/"><u>[New] 2024 Approved YouTube & Brands United Strategic Collaborative Titles</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-5-best-toy-drones-for-2024/"><u>[New] 5 Best Toy Drones for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-delving-into-the-strengths-of-yuneecs-typhoon-h-drone/"><u>[New] Delving Into the Strengths of Yuneec's Typhoon H Drone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-top-30-camcorders-front-screen-first-thought/"><u>[New] Top 30 Camcorders - Front Screen First Thought</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-pro-editors-insight-restore-true-colors-to-faded-iphone-hdr-in-adobe-premiere-for-2024/"><u>[Updated] [Pro Editor's Insight] Restore True Colors to Faded iPhone HDR in Adobe Premiere for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-audiovisual-harmony-merging-audio-and-visual-elements-on-youtube/"><u>[Updated] In 2024, Audiovisual Harmony Merging Audio and Visual Elements on YouTube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/harness-the-power-of-combining-zoom-with-facebook-live-features-for-2024/"><u>Harness the Power of Combining Zoom with Facebook Live Features for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-upgrade-iphone-12-mini-without-losing-any-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade iPhone 12 mini without Losing Any Data? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-essential-encoder-hardware-for-digital-media/"><u>In 2024, Essential Encoder Hardware for Digital Media</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-top-9-free-video-channel-logomakers-showcase-reviewed/"><u>In 2024, Top 9 Free Video Channel Logomakers Showcase Reviewed</u></a></li>
+<li><a href="https://network-issues.techidaily.com/making-nvidia-7025-play-nice-with-new-os/"><u>Making Nvidia 7025 Play Nice with New OS</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/reviving-lost-storage-techniques-for-retrieving-files-from-formerly-removed-partitions-advice-from-yl-software-professionals/"><u>Reviving Lost Storage: Techniques for Retrieving Files From Formerly Removed Partitions - Advice From YL Software Professionals</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/spotlight-on-professional-shoots-innovative-lighting-techniques/"><u>Spotlight on Professional Shoots Innovative Lighting Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-tapestry-of-english-threads-from-abroad/"><u>The Tapestry of English: Threads From Abroad</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/ultimate-guide-converting-dvds-to-high-quality-h265-hevc-mp4-files-for-free/"><u>Ultimate Guide: Converting DVDs to High-Quality H.265 HEVC MP4 Files for Free</u></a></li>
+</ul></div>
 

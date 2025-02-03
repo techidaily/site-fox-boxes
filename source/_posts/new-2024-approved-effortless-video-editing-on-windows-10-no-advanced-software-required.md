@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Effortless Video Editing on Windows 10  No Advanced Software Required\""
-date: 2025-01-23T19:57:09.452Z
-updated: 2025-01-24T19:28:55.879Z
+date: 2025-01-28T16:03:29.095Z
+updated: 2025-02-01T20:03:15.584Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,10 @@ The in-built editor in Windows 10 Photos can do that for you. Through this artic
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to trim video in Windows 10 Photos
 
 When you talk about video trimming apps on Windows 10 PC, Photos is the only built-in app capable of doing so. Whether you want to do away with the awkward starting of your video or want to club multiple video clips, get Photos on work for that. Basic level editing is possible with Photos, for additional video editing.
@@ -50,22 +54,14 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/photos-trim.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3**: On the bottom part of the screen, there are three circles. The start and end of the markers clips are represented by two small white circles. For chopping off the unwanted portions you need to drag and adjust the marker circles. The movement of markers shows a text denoting the total selected length of the clip over the marker. The larger marker represents the present spot of your video clip. Make sure to drag around and adjust the video for including all the important parts within the video.
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/start-trim-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to trim video in Windows 10 with VLC
@@ -87,7 +83,7 @@ Here comes the step by step guide to trim video in VLC –
 Note: You won't be trimmed by cutting the video here, rather recording the desired part using the inbuilt VLC decoder. Using the 'Frame by frame' button found under the 'Advanced control' section (the last button from the left) move to the exact frame you wish to begin your recording.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -96,10 +92,14 @@ From the above article, we found that **trimming video in VLC and Windows 10 Pho
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -127,18 +127,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-acoustic-bridge-to-captivating-trailers/"><u>[New] In 2024, The Acoustic Bridge to Captivating Trailers</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-essentials-of-crafting-crystal-clear-vhs-graphics-online/"><u>[New] In 2024, The Essentials of Crafting Crystal-Clear VHS Graphics Online</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-rally-your-crowd-engaging-audiences-on-telegram-for-2024/"><u>[New] Rally Your Crowd Engaging Audiences on Telegram for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-user-friendly-steps-for-storing-google-voice-conversations/"><u>[New] User-Friendly Steps for Storing Google Voice Conversations</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-audiovisual-harmony-incorporating-audio-into-powerpoint-presentations/"><u>[Updated] Audiovisual Harmony Incorporating Audio Into PowerPoint Presentations</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-top-10-timeless-family-adventures-on-screen-this-season-for-2024/"><u>[Updated] Top 10 Timeless Family Adventures on Screen This Season for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-best-zero-cost-chromebook-recorders/"><u>2024 Approved Best Zero Cost Chromebook Recorders</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-cinema-crafting-excellence-top-5-camera-skills-to-hone/"><u>2024 Approved Cinema Crafting Excellence Top 5 Camera Skills to Hone</u></a></li>
-<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-nokia-c210-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Nokia C210 | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-samsung-galaxy-a25-5g-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Samsung Galaxy A25 5G for Free? | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ly-stream-youtube-on-iphone-and-android/"><u>Quietly Stream YouTube on iPhone & Android</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/understanding-the-hacking-capabilities-of-chatgpt/"><u>Understanding the Hacking Capabilities of ChatGPT</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-master-the-art-of-choosing-best-rated-church-streams/"><u>[New] 2024 Approved Master the Art of Choosing Best-Rated Church Streams</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-boost-your-drive-10-top-motivation-films/"><u>[New] In 2024, Boost Your Drive 10 Top Motivation Films</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-maximizing-your-reach-with-snapchat-highlights/"><u>[New] In 2024, Maximizing Your Reach with Snapchat Highlights</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-navigate-through-green-screen-muddle-on-mac-for-smooth-youtubing/"><u>[New] In 2024, Navigate Through Green Screen Muddle on Mac for Smooth YouTubing</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-mastering-srt-file-creation-a-comprehensive-manual/"><u>[New] Mastering SRT File Creation A Comprehensive Manual</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-exploring-top-10-yoga-online-hubs-for-holistic-health/"><u>[Updated] Exploring Top 10 Yoga Online Hubs for Holistic Health</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-futures-best-on-display-premium-video-cameras-in-2-written-by-michael-a-risley/"><u>[Updated] Future's Best on Display Premium Video Cameras in 2 Written by Michael A. Risley</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-navigate-network-needs-skilled-approaches-to-file-movement-on-computer/"><u>[Updated] In 2024, Navigate Network Needs Skilled Approaches to File Movement on Computer</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-wallet-friendly-high-definition-equipment/"><u>[Updated] In 2024, Wallet-Friendly High-Definition Equipment</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-masterful-multiplatform-apps-for-dynamic-media-collage/"><u>[Updated] Masterful Multiplatform Apps for Dynamic Media Collage</u></a></li>
+<li><a href="https://common-error.techidaily.com/cannot-apply-feature-updates-for-windows-10-build-1607-let-us-help-you-resolve-that/"><u>Cannot Apply Feature Updates for Windows 10 Build 1607? Let Us Help You Resolve That</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/conversion-sans-limites-transformez-votre-fichier-avi-en-wav-avec-movviz-integrale-video-web-gratuite/"><u>Conversion Sans Limites : Transformez Votre Fichier AVI en WAV Avec MOVVIZ - Intégrale Vidéo Web Gratuite!</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/disable-screen-lock-on-lava-blaze-2-pro-by-drfone-android-unlock-android-unlock/"><u>Disable screen lock on Lava Blaze 2 Pro</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/improve-your-pc-speed-with-proven-software-solutions-from-yl-computing/"><u>Improve Your PC Speed with Proven Software Solutions From YL Computing</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-cameras-collide-in-motorsport-showdown-gopro-vs-drift-ghost-s/"><u>In 2024, Cameras Collide in Motorsport Showdown! GoPro Vs. Drift Ghost-S</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-leading-the-charge-in-online-healthcare-promotions-and-ads/"><u>In 2024, Leading the Charge in Online Healthcare Promotions & Ads</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-snapshot-success-mastering-the-art-of-xbox-one-captures/"><u>In 2024, Snapshot Success Mastering the Art of Xbox One Captures</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-fixes-for-a-malfunctioning-corsair-audio-headset/"><u>Troubleshooting: Fixes for a Malfunctioning Corsair Audio Headset</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/ultimate-4k-gaming-setup-top-10-laptop-guide-for-2024/"><u>Ultimate 4K Gaming Setup - Top 10 Laptop Guide for 2024</u></a></li>
 </ul></div>
 
