@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Reinforcing Windows Photo Viewer Functionality in Windows 10"
-date: 2025-01-29T00:32:55.164Z
-updated: 2025-02-01T22:41:35.175Z
+date: 2025-01-28T03:41:11.070Z
+updated: 2025-02-03T07:08:47.973Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,10 @@ Stay tuned to learn more!
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Why you prefer Windows Photo Viewer
 
 We would like to explain why most people are still not over Windows Photo Viewer? The good old Photo Viewer has quiet loyal fans out there singing its glory. This portion of the article comprises of the highs about Windows Photo Viewer.
@@ -62,10 +66,6 @@ Here is why they want to restore Windows Photo Viewer –
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Method 1 to restore Windows Photo Viewer
 
 The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
@@ -74,13 +74,13 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -96,16 +96,16 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -117,7 +117,7 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -145,24 +145,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-embrace-freedom-no-cost-movie-player-software/"><u>[New] 2024 Approved Embrace Freedom No-Cost MOVIE PLAYER Software</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-experts-list-prime-business-sky-saver-for-2024/"><u>[New] Expert's List Prime Business Sky Saver for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-hold-your-audiences-gaze-essential-6-video-formats/"><u>[New] Hold Your Audience's Gaze Essential 6 Video Formats</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-navigating-the-acquisition-of-stock-video-backgrounds/"><u>[New] In 2024, Navigating the Acquisition of Stock Video Backgrounds</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-professional-acid-pro-analysis-and-substitutes/"><u>[New] In 2024, Professional ACID Pro Analysis and Substitutes</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-spin-the-wheels-developing-dances-on-your-macos/"><u>[New] In 2024, Spin the Wheels Developing Dances on Your MacOS</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-mastery-over-light-and-shadow-with-hdr-software/"><u>[New] Mastery Over Light and Shadow with HDR Software</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-professional-precision-flip-canon-photos-from-basic-to-advanced-with-luts/"><u>[New] Professional Precision Flip Canon Photos From Basic to Advanced with LUTs</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-pushing-boundaries-spotlight-on-top-6-digital-innovators/"><u>[New] Pushing Boundaries Spotlight on Top 6 Digital Innovators</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-a-year-in-review-how-vivacut-is-shaping-the-future-of-video-editing/"><u>[Updated] In 2024, A Year In Review How VivaCut Is Shaping the Future of Video Editing</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-professional-panoramic-vision-leading-360-cameras-of-2023-for-2024/"><u>[Updated] Professional Panoramic Vision Leading 360° Cameras of 2023 for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-soundscapes-of-apple-in-the-realm-of-vids-for-2024/"><u>[Updated] Soundscapes of Apple in the Realm of Vids for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/ensure-seamless-compatibility-with-the-updated-canon-mx490-drivers-on-pcs/"><u>Ensure Seamless Compatibility with the Updated Canon MX490 Drivers on PCs</u></a></li>
-<li><a href="https://article-posts.techidaily.com/hidden-havens-of-hand-drawn-harmony-techniques-for-2024/"><u>Hidden Havens of Hand-Drawn Harmony Techniques for 2024</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-in-2024-speed-up-or-slow-down-a-comprehensive-camtasia-video-guide/"><u>New In 2024, Speed Up or Slow Down A Comprehensive Camtasia Video Guide</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/reinstating-lost-deletion-capabilities-in-microsoft-os/"><u>Reinstating Lost Deletion Capabilities in Microsoft OS</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solving-the-mystery-a-step-by-step-guide-to-resolve-unknown-usb-device-detected-error-on-windows-11/"><u>Solving the Mystery: A Step-by-Step Guide to Resolve 'Unknown USB Device Detected' Error on Windows 11</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/techniques-to-mitigate-vr-disorientation-for-2024/"><u>Techniques to Mitigate VR Disorientation for 2024</u></a></li>
-<li><a href="https://fox-triigers.techidaily.com/top-techniques-for-finding-and-restoring-unsaved-work-in-microsoft-word/"><u>Top Techniques for Finding and Restoring Unsaved Work in Microsoft Word</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-ultimate-compilation-the-top-5-high-fidelity-cameras/"><u>[New] In 2024, Ultimate Compilation The Top 5 High Fidelity Cameras</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-superior-sound-swap-technology-the-top-free-option-for-valorant-gamers/"><u>[New] Superior Sound Swap Technology The Top Free Option for Valorant Gamers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-seamless-easy-to-use-web-tools-for-gif-to-video-transformation/"><u>[Updated] 2024 Approved Seamless, Easy-to-Use Web Tools for GIF to Video Transformation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-shining-a-light-top-photo-illumination-hacks/"><u>[Updated] 2024 Approved Shining a Light Top Photo Illumination Hacks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-beginners-blueprint-to-blend-brighten-and-balance-for-2024/"><u>[Updated] Beginner's Blueprint to Blend, Brighten & Balance for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-integrating-music-into-unboxing-videos-a-comprehensible-manual-for-2024/"><u>[Updated] Integrating Music Into Unboxing Videos A Comprehensible Manual for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-secrets-to-amassing-affordable-artistic-elements/"><u>2024 Approved Secrets to Amassing Affordable Artistic Elements</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/how-to-master-every-feature-of-periscope/"><u>How to Master Every Feature of Periscope</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-bestowed-guidance-premium-audio-designers-for-iphones/"><u>In 2024, Bestowed Guidance Premium Audio Designers for iPhones</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-elite-callers-on-windows-top-8-sorted/"><u>In 2024, Elite Callers on Windows Top 8 Sorted</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/leveraging-the-strengths-of-ez-grabber-software-for-2024/"><u>Leveraging the Strengths of EZ Grabber Software for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/marlin-equity-partners-secures-new-equity-position-in-leading-ocr-firm-abbyy/"><u>Marlin Equity Partners Secures New Equity Position in Leading OCR Firm, ABBYY</u></a></li>
+<li><a href="https://win11.techidaily.com/1719374180426-navigate-through-faulty-shift-in-windows/"><u>Navigate Through Faulty Shift in Windows.</u></a></li>
+<li><a href="https://windows11.techidaily.com/solo-system-imaging-techniques-for-win-users/"><u>Solo System Imaging Techniques for Win Users</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-best-selling-vr-gaming-experienences-on-oculus-for-2024/"><u>The Best-Selling VR Gaming Experienences on Oculus for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-ultimate-trick-to-free-up-space-by-cleaning-android-cache/"><u>The Ultimate Trick to Free Up Space by Cleaning Android Cache</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/top-9-android-apps-for-seamless-email-switching-and-transfer/"><u>Top 9 Android Apps for Seamless Email Switching and Transfer</u></a></li>
 </ul></div>
 

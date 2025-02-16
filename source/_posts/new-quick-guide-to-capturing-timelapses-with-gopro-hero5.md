@@ -1,7 +1,7 @@
 ---
 title: "[New] Quick Guide to Capturing Timelapses with GoPro Hero5"
-date: 2025-01-27T18:58:00.129Z
-updated: 2025-02-01T19:38:19.004Z
+date: 2025-02-01T08:35:36.742Z
+updated: 2025-02-02T17:13:24.581Z
 tags: 
   - screen-recording
   - ai video
@@ -41,7 +41,7 @@ Are you an amateur travel photographer who has recently bought a GoPro cam and w
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Shooting a time lapse video with GoPro Hero5
@@ -88,7 +88,7 @@ Make use of good tripod, a fast and spacious SD card, a suction mount and always
 [Check at Amazon](https://www.amazon.com/gp/product/B01M14ATO0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M14ATO0&linkId=5ce54ea937ecffa6b1b8056b6922abaa)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Making time lapse videos with Wondershare Filmora
@@ -102,7 +102,7 @@ The Instant cutter tool on the other hand can be used for trimming and merging v
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * First, launch the Filmora app and then choose the ‘action cam tool’
@@ -110,14 +110,14 @@ The Instant cutter tool on the other hand can be used for trimming and merging v
 
 ![1-action-cam-tool-fix-entrance](https://images.wondershare.com/filmora/article-images/filmora-splash-screen-0321.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Now go to the Speed tab and bring the Playhead to the exact position where the speed effect is to be applied.
 * Click the Add Marker button. Click the speed marker and drag it onto either side of your timeline so as to choose a number of clips on your timeline.
 
 ![speed-effect-speed-add-marke](https://images.wondershare.com/filmora/article-images/speed-effect-speed-add-marker.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * The speed settings can be adjusted by clicking on the checkbox marked Speed. The speed slider can be moved forward to make it faster up to 20x for the time lapse effect.
 * Export your time lapse video to Full Features Mode to edit further, such as adding various filters, overlay and effects. Currently, there are more than 300 Effects, and there is an [ACTION CAM WINTER SET](https://www.filmstocks.com/effects-store-upgrade.html)available now. [Check More](https://www.filmstocks.com/effects-store-upgrade.html)
@@ -127,7 +127,7 @@ The Instant cutter tool on the other hand can be used for trimming and merging v
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -155,19 +155,22 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-2023-guide-to-excellent-waterproof-video-gadgets/"><u>[New] 2024 Approved 2023 Guide to Excellent Waterproof Video Gadgets</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-hubsan-x4-quadcopter-examination-an-in-depth-guide/"><u>[New] Hubsan X4 Quadcopter Examination An In-Depth Guide</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-best-80s-movie-magic-for-contemporary-edits/"><u>[New] In 2024, Best 80S Movie Magic for Contemporary Edits</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-pivot-point-review-diversifying-video-tech/"><u>[New] Pivot Point Review Diversifying Video Tech</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-dissecting-the-mastery-of-high-definition-with-benq-sw320-monitor/"><u>[Updated] 2024 Approved Dissecting the Mastery of High Definition with BenQ SW320 Monitor</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-rise-above-the-noise-must-have-video-seo-tools/"><u>[Updated] 2024 Approved Rise Above the Noise – Must-Have Video SEO Tools</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-sound-brilliance-for-podcasters-top-10-microphones/"><u>[Updated] 2024 Approved Sound Brilliance for Podcasters Top 10 Microphones</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-from-sketch-to-scene-mastering-windows-movie-makers-animation/"><u>[Updated] From Sketch to Scene Mastering Windows Movie Maker's Animation</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-prime-microphones-for-high-resolution-4k-video-shooting-for-2024/"><u>[Updated] Prime Microphones for High-Resolution 4K Video Shooting for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unlock-viewers-interest-with-these-10-yt-reaction-strategies/"><u>[Updated] Unlock Viewers' Interest with These 10 YT Reaction Strategies</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-metaverse-odyssey-10-sci-fi-movies-that-redefine-reality/"><u>2024 Approved Metaverse Odyssey 10 Sci-Fi Movies that Redefine Reality</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/efficient-video-sharing-on-twitter-from-smartphones-for-2024/"><u>Efficient Video Sharing on Twitter From Smartphones for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-revolutionize-your-posts-with-automated-story-and-video-captions/"><u>In 2024, Revolutionize Your Posts with Automated Story and Video Captions</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-xtreme-old-phone-photos-the-ultimate-archive/"><u>In 2024, Xtreme Old Phone Photos – The Ultimate Archive</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-seamless-integration-of-movies-and-animations-using-movie-maker-for-2024/"><u>[New] Seamless Integration of Movies and Animations Using Movie Maker for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-vivid-color-equilibrium/"><u>[Updated] 2024 Approved Vivid Color Equilibrium</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-xs-100-is-journey-into-the-world-of-professional-filming/"><u>[Updated] 2024 Approved XS 100 I's Journey Into the World of Professional Filming</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-a-guide-to-crafting-impactful-handp-ads-on-facebook-for-2024/"><u>[Updated] A Guide to Crafting Impactful H&P Ads on Facebook for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-critical-clip-climbers-ranking-video-hours-from-1-to-10-for-2024/"><u>[Updated] Critical Clip Climbers Ranking Video Hours From #1 to #10 for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevate-your-youtube-presentations-with-imovie-editing-skills-for-2024/"><u>[Updated] Elevate Your YouTube Presentations with iMovie Editing Skills for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-step-by-step-audio-fading-in-lumafusion-software-for-2024/"><u>[Updated] Step-by-Step Audio Fading in Lumafusion Software for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-visual-perfection-select-the-best-monitors-for-creative-work/"><u>[Updated] Visual Perfection Select the Best Monitors for Creative Work</u></a></li>
+<li><a href="https://win-news.techidaily.com/1-success-story-recovering-lost-partitions-on-western-digital-my-passport/"><u>1. Success Story: Recovering Lost Partitions on Western Digital My Passport</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-premiere-smart-goggles-craftsmen/"><u>2024 Approved Premiere Smart Goggles Craftsmen</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-ten-best-practices-for-meme-creation/"><u>2024 Approved Ten Best Practices for Meme Creation</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-ultimate-screen-snaps-for-mac-users-max-156-chars/"><u>2024 Approved Ultimate Screen Snaps for Mac Users (Max 156 Chars)</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-15-plus-to-other-iphone-13-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 15 Plus to other iPhone 13 devices? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-honor-play-8tmirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Honor Play 8TMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-vr-unleashed-in-depth-reviews-of-peripherals/"><u>In 2024, VR Unleashed - In-Depth Reviews of Peripherals</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/top-3-strategies-for-enhanced-zoom-video-conversion-techniques/"><u>Top 3 Strategies for Enhanced Zoom Video Conversion Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/what-youre-really-earning-as-a-podcaster/"><u>What You're Really Earning as a Podcaster</u></a></li>
 </ul></div>
 

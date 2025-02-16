@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Chasing Titles  Key Moments From 2022 Olympics Short Tracks\""
-date: 2025-01-27T20:21:27.069Z
-updated: 2025-02-02T02:08:04.735Z
+date: 2025-02-01T08:24:58.337Z
+updated: 2025-02-03T02:51:10.694Z
 tags: 
   - screen-recording
   - ai video
@@ -37,16 +37,12 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Russia’s Semen Elistratov wins the bronze medal.
@@ -57,12 +53,16 @@ Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
 
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
@@ -72,6 +72,10 @@ Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
@@ -90,10 +94,6 @@ To create such a highlight video on any sports event, there are certain videos e
 **Motion Tracking** – Using motion tracking, you can track the movement of a particular object or athlete in a video. This helps to attach certain elements such as clipart, text, icon to that particular athlete throughout the video for easy identification by the viewers.
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -114,7 +114,7 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
@@ -150,22 +150,24 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-expedite-tech-advancement-how-to-embrace-macos-11-big-sur/"><u>[New] 2024 Approved Expedite Tech Advancement How to Embrace macOS 11 Big Sur</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-elevate-your-twitter-presence-essential-unfollowing-apps-guide-for-2024/"><u>[New] Elevate Your Twitter Presence Essential Unfollowing Apps Guide for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-fbx-for-gamers-expert-tips-on-recording-playthroughs-for-2024/"><u>[New] FBX for Gamers Expert Tips on Recording Playthroughs for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-harmonizing-workplay-by-incorporating-podcast-listening/"><u>[New] In 2024, Harmonizing Work/Play by Incorporating Podcast Listening</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-m1-chip-wins-smoothness-in-every-edit-every-time/"><u>[Updated] 2024 Approved M1 Chip Wins Smoothness in Every Edit, Every Time</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-step-into-new-realms-with-vr-technology/"><u>[Updated] 2024 Approved Step Into New Realms with VR Technology</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-improving-visual-storytelling-with-secondary-shoots/"><u>[Updated] In 2024, Improving Visual Storytelling with Secondary Shoots</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-virtual-reality-grips-the-ultimate-selection/"><u>[Updated] In 2024, Virtual Reality Grips The Ultimate Selection</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-the-ultimate-guide-to-improved-zoom-video-quality/"><u>[Updated] The Ultimate Guide to Improved Zoom Video Quality</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-direct-route-uploading-from-youtube-to-dailymotion/"><u>2024 Approved Direct Route Uploading From YouTube to Dailymotion</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-step-into-the-shoes-of-a-pro-screen-capture-techniques-for-mac-enthusiasts/"><u>2024 Approved Step Into the Shoes of a Pro Screen Capture Techniques for Mac Enthusiasts</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/digital-filmmaking-recording-video-across-various-platforms-for-2024/"><u>Digital Filmmaking Recording Video Across Various Platforms for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-do-i-add-my-signature-to-excel-2019-files-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How do i add my signature to Excel 2019 files</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-comprehensive-guide-to-samsung-photography-suite-2023/"><u>In 2024, Comprehensive Guide to Samsung Photography Suite, 2023</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/techniques-to-surpass-instagrams-typical-video-limits/"><u>Techniques to Surpass Instagram's Typical Video Limits</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/the-ultimate-resource-for-microsoft-azure-speech-services-for-2024/"><u>The Ultimate Resource for Microsoft Azure Speech Services for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-the-potential-a-comprehensive-review-of-the-apple-ipad-mini-5/"><u>Unboxing the Potential: A Comprehensive Review of the Apple iPad Mini 5</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-navigate-iphones-dual-task-capabilities-effortlessly/"><u>[New] 2024 Approved Navigate iPhone's Dual-Task Capabilities Effortlessly</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-windowsmac-free-software-for-effortless-dvd-viewing/"><u>[New] 2024 Approved Windows/Mac Free Software for Effortless DVD Viewing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-from-novice-to-expert-navigating-telegram-web/"><u>[New] From Novice to Expert Navigating Telegram Web</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unveiling-the-full-potential-of-powerdirector-24/"><u>[New] Unveiling the Full Potential of PowerDirector '24</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-a-guide-to-pinpointing-a-list-video-creators/"><u>[Updated] 2024 Approved A Guide to Pinpointing A-List Video Creators</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-delving-into-lgs-high-end-gaming-screen-27ud68-review/"><u>[Updated] 2024 Approved Delving Into LG's High-End Gaming Screen 27UD68 Review</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-fixing-disconnected-headphone-unit-for-2024/"><u>[Updated] Fixing Disconnected Headphone Unit for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-top-30-for-timeless-telephone-chimes/"><u>[Updated] The Top 30 for Timeless Telephone Chimes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-11-video-cameras-under-500-a-frugal-filmmakers-list/"><u>[Updated] Top 11 Video Cameras Under $500 A Frugal Filmmaker's List</u></a></li>
+<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-tecno-camon-20-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Tecno Camon 20 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-evaluation-of-the-wallet-friendly-amazon-basics-heavy-duty-crosscut-shredder-6-sheets/"><u>Expert Evaluation of the Wallet-Friendly Amazon Basics Heavy-Duty Crosscut Shredder (6 Sheets)</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-xiaomi-redmi-12-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Xiaomi Redmi 12 FRP Bypass Instantly</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-speech-to-text-solutions-for-engaging-ppts/"><u>In 2024, Speech-to-Text Solutions for Engaging PPTs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/professionals-choice-of-best-windows-edits-tools/"><u>Professionals' Choice of Best Windows Edits Tools</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/radiate-on-reels-instagram-highlight-techniques-simplified-to-three/"><u>Radiate on Reels Instagram Highlight Techniques, Simplified to Three</u></a></li>
+<li><a href="https://review-topics.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your ZTE Blade A73 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/spark-to-the-past-djis-mavic-air-reimagines-gameplay/"><u>Spark to the Past? DJI's Mavic Air Reimagines Gameplay</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-fabric-redefined-why-the-metaverse-raises-concerns/"><u>The Social Fabric Redefined - Why the Metaverse Raises Concerns</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/transform-srt-to-video-top-10-free-subtitle-tools/"><u>Transform SRT to Video - Top 10 FREE Subtitle Tools</u></a></li>
 </ul></div>
 

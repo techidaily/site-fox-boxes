@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Video to Photo  Windows 11 Methodology\""
-date: 2025-01-26T17:35:42.404Z
-updated: 2025-02-01T20:11:28.917Z
+date: 2025-01-26T20:54:21.112Z
+updated: 2025-02-03T02:48:40.996Z
 tags: 
   - screen-recording
   - ai video
@@ -53,7 +53,7 @@ Creating a living image:
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Now, you can see the living picture by tapping ‘Play’ button.
@@ -65,11 +65,11 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
 
-* This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+* This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
 ## Part 2: Why I can’t save photo from video
 
@@ -78,7 +78,7 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 We are explaining the solutions here –
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Check the update
@@ -88,6 +88,10 @@ Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Upd
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
 
@@ -101,10 +105,6 @@ Here comes the guide –
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
@@ -115,7 +115,7 @@ We provided you some knowledge on how to save a photo from video Windows 10 Phot
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,24 +143,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-unveiling-wintv-magic-compre-written-guide-to-capturing-live-on-windows-pc/"><u>[New] 2024 Approved Unveiling WinTV Magic Compre Written Guide to Capturing Live on Windows PC</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-peakquality-resizer-cross-platform-edition/"><u>[New] In 2024, PeakQuality Resizer – Cross-Platform Edition</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-pioneering-image-editing-with-toolwiz-a-compre-written-review/"><u>[New] In 2024, Pioneering Image Editing with Toolwiz – A Compre Written Review</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-pathway-to-visual-storytelling-on-youtube/"><u>[New] The Ultimate Pathway to Visual Storytelling on YouTube</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-navigate-to-full-screen-bliss-on-facebook/"><u>[Updated] 2024 Approved Navigate to Full-Screen Bliss on Facebook</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-teaching-technology-trends-the-top-10-audio-visual-devices-for-classrooms/"><u>[Updated] 2024 Approved Teaching Technology Trends The Top 10 Audio-Visual Devices for Classrooms</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unveiling-studio-magic-comprehensive-xreview/"><u>[Updated] 2024 Approved Unveiling Studio Magic Comprehensive XReview</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-drone-cinematography-guide/"><u>[Updated] Drone Cinematography Guide</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-funimate-playbook-strategies-for-success/"><u>[Updated] Funimate Playbook Strategies for Success</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-unboxing-the-future-benq-sw320-4k-display/"><u>[Updated] Unboxing the Future BenQ SW320 4K Display</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Motorola Moto G34 5G | Dr.fone</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-an-in-depth-look-at-time-lapse-photography-using-ipad/"><u>In 2024, An In-Depth Look at Time-Lapse Photography Using iPad</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-meizu-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Meizu</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/movavi-bietet-kostenlose-konvertierung-von-aiff-dateien-in-flac-format-an-erste-hilfe-fur-audioenthusiasten/"><u>Movavi Bietet Kostenlose Konvertierung Von AIFF Dateien in FLAC Format an - Erste Hilfe Für Audioenthusiasten</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/restoring-default-sound-options-on-windows-a-comprehensive-guide-insights-from-zdnet/"><u>Restoring Default Sound Options on Windows: A Comprehensive Guide - Insights From ZDNet</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/seamless-sound-changes-with-premiere-pro/"><u>Seamless Sound Changes with Premiere Pro</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/streamlining-your-photo-editing-the-crop-essentials-for-2024/"><u>Streamlining Your Photo Editing The Crop Essentials for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/the-essential-guide-to-shopping-for-a-gopro-camera/"><u>The Essential Guide to Shopping for a Gopro Camera</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/through-the-lens-through-editing-pro-secrets-of-stunning-art-for-2024/"><u>Through the Lens, Through Editing Pro Secrets of Stunning Art for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-essential-filter-selection-best-9-streaming-aids-for-2024/"><u>[New] Essential Filter Selection Best 9 Streaming Aids for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-innovative-integration-select-the-top-6-editing-apps-post-snow-leopard/"><u>[New] Innovative Integration Select the Top 6 Editing Apps Post-Snow Leopard</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-acclaimed-selections-discover-the-best-10-vimeo-file-harvesters/"><u>[Updated] 2024 Approved Acclaimed Selections Discover the Best 10 Vimeo File Harvesters</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-efficiently-engaging-with-numerous-youtube-lectures/"><u>[Updated] Efficiently Engaging with Numerous YouTube Lectures</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-ace-the-green-screen-scene-with-these-tips/"><u>[Updated] In 2024, Ace the Green Screen Scene with These Tips</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-from-basic-to-advanced-usage-maximize-your-experience-with-macs-preview/"><u>[Updated] In 2024, From Basic to Advanced Usage Maximize Your Experience with Mac's Preview</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-youtube-playback-tweaks-turn-off-auto-play-videos-for-2024/"><u>[Updated] YouTube Playback Tweaks Turn Off Auto-Play Videos for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-infinix-smart-8-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Infinix Smart 8 | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/decoding-the-mystery-of-roblox-error-262/"><u>Decoding the Mystery of Roblox Error 262</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-stolen-apple-iphone-se-2020-in-different-conditionsin-by-drfone-ios/"><u>In 2024, How To Unlock Stolen Apple iPhone SE (2020) In Different Conditionsin</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-mastering-video-grabber-software-in-windows-11/"><u>In 2024, Mastering Video Grabber Software in Windows 11</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/mastering-crossfades-a-premiere-pro-guide/"><u>Mastering Crossfades A Premiere Pro Guide</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/pot-au-feu/"><u>Pot Au Feu</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/unlocking-clear-conversations-solving-common-issues-with-discords-voice-feature/"><u>Unlocking Clear Conversations: Solving Common Issues with Discord's Voice Feature</u></a></li>
 </ul></div>
 

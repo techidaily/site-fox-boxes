@@ -1,7 +1,7 @@
 ---
 title: "\"Boost Creativity  Learn How to Insert Text Onto Digital Photographs on PC/Mac\""
-date: 2024-08-08T14:05:23.991Z
-updated: 2024-08-09T14:05:23.991Z
+date: 2025-01-26T16:10:34.997Z
+updated: 2025-02-03T08:22:33.974Z
 tags: 
   - screen-recording
   - ai video
@@ -42,6 +42,10 @@ Step4Now click on the text button at the top left corner of the screen to add a 
 
 ![click on the text button](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step5You can drag this text box and place it wherever you want it in your image. Also, to choose the font style, size, and color, you can click on the Text Style icon and save your changes.
 
 ![place text box](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-4.jpg)
@@ -78,6 +82,10 @@ Step8Click any Save or Save as button to save the edited image.
 
 ![click save button](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5 Methods to add text on photos online
 
 ### 1\. Wondershare PixStudio
@@ -88,15 +96,16 @@ Wondershare PixStudio is one of the best websites to edit your photos online for
 
 ![wondershare pixstudio](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-11.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **How to add text on photos with PixStudio?**
 
 Now we will discuss how we can add text to photos using PixStudio. So, you should follow the steps described below:
 
 Step1First, you have to open the image on which you want to add text in Pix Studio by clicking on **Create a new design** (If you have already opened this picture before, you can also select it from **existing designs**).
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![create a new design](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-12.jpg)
 
 Step2Now click on the **Text Button**, which will appear on your sidebar at the left.
@@ -106,6 +115,10 @@ Step2Now click on the **Text Button**, which will appear on your sidebar at the 
 Step3Now you must select your text style by clicking on **heading**, **sub-heading**, and **body text**, depending on which one you want. You can also choose your text style from the designs already available.
 
 ![select text style](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-14.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4To edit your text's color, size, style, alignment, bold or italic effects, etc., click on the **Text Box**.
 
@@ -121,12 +134,13 @@ Step6Also, to change the text size inside the **Text Box**, drag its corners.
 
 Step7Moreover, if you want to change the size of the **Text Box**, drag its borders from both sides.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![change the size of text box](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-18.jpg)
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Important Note:** Remember that what changes you have done using the right sidebar menu will be applied to the whole text inside the selected text box.
 
@@ -142,6 +156,10 @@ Pros
 Cons
 
 * You need to have a premium account to use the more advanced features.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Kapwing
 
@@ -170,10 +188,11 @@ Cons
 
 If you are still looking for other options to add text to your photos online, then Befunky is one of them. It is also an online website that lets you edit your images nicely. You can also add text to your photos using this. There are 25 million users who are using it now.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![befunky](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-20.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Pros
 
@@ -237,6 +256,10 @@ Cons
 Adobe Photoshop, or simply Photoshop, is currently the most popular graphic editing software with millions of users. It has the most advanced and updated features than any other photo editor. You can very easily add text to photos using this software.
 
 ![photoshop](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-23.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Pros
 
@@ -381,9 +404,6 @@ Cons
 
 If you are still looking for other options to add text to your photos online, then Befunky is one of them. It is also an online website that lets you edit your images nicely. You can also add text to your photos using this. There are 25 million users who are using it now.
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![befunky](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-20.jpg)
 
 Pros
@@ -418,6 +438,10 @@ Cons
 * The result of the edited photo is not good enough as in Photoshop and other editors.
 * There are some bugs causing errors.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. Fotor
 
 **Introduction:**
@@ -448,6 +472,10 @@ Cons
 Adobe Photoshop, or simply Photoshop, is currently the most popular graphic editing software with millions of users. It has the most advanced and updated features than any other photo editor. You can very easily add text to photos using this software.
 
 ![photoshop](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-23.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Pros
 
@@ -574,6 +602,23 @@ The last words for today's topic here is that there are numerous solutions avail
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/new-10-key-tips-to-design-podcast-cover-art/"><u>[New] 10 Key Tips to Design Podcast Cover Art</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-cutting-through-hype-8-best-free-srt-tools-exposed/"><u>[New] 2024 Approved Cutting Through Hype 8 Best Free SRT Tools Exposed</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-compiling-the-top-windows-11-video-capture-tools-for-2024/"><u>[New] Compiling the Top Windows 11 Video Capture Tools for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-exploring-advanced-video-features-on-nikon-1j5/"><u>[New] Exploring Advanced Video Features on Nikon 1J5</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-facing-video-display-issues-with-sony-a6400/"><u>[New] Facing Video Display Issues with Sony A6400</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-top-picks-samsungs-virtual-reality-adventures/"><u>[New] Top Picks Samsung's Virtual Reality Adventures</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-iconic-meme-blueprints-of-the-year/"><u>[Updated] 2024 Approved Iconic Meme Blueprints of the Year</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-make-every-listen-count-with-these-15-powerful-activities/"><u>[Updated] In 2024, Make Every Listen Count with These 15 Powerful Activities</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-top-windows-cutting-tools-for-editors-and-vids/"><u>[Updated] In 2024, Top Windows Cutting Tools for Editors & Vids</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/free-frameworks-for-every-movie-epilogue-you-dream-for-2024/"><u>Free Frameworks for Every Movie Epilogue You Dream for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-hero-4-vs-hero-5-performance-face-off/"><u>In 2024, Hero 4 VS Hero 5 Performance Face-Off</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-romer-chargeable-spotlight-examination-long-battery-life-for-nighttime-adventures/"><u>In-Depth Romer Chargeable Spotlight Examination: Long Battery Life for Nighttime Adventures</u></a></li>
+<li><a href="https://driver-install.techidaily.com/simplifying-your-tech-setup-reinstalling-wi-fi-drivers/"><u>Simplifying Your Tech Setup: Reinstalling Wi-Fi Drivers</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-oneplus-11-5g-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 OnePlus 11 5G Android SIM Unlock APK</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/top-picks-for-fb-film-downloads-8-edition-23-for-2024/"><u>Top Picks for FB Film Downloads #8 Edition '23 for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/youtube-video-trapping-best-practices-explored/"><u>YouTube Video Trapping Best Practices Explored</u></a></li>
+</ul></div>
 
