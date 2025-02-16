@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Tints & Tonality  Applying Theoretical Insight\""
-date: 2025-01-30T16:58:02.705Z
-updated: 2025-02-02T23:22:42.476Z
+date: 2025-02-13T06:13:59.041Z
+updated: 2025-02-15T17:21:44.948Z
 tags: 
   - screen-recording
   - ai video
@@ -27,19 +27,11 @@ If you are more selective with your colors in your videos or imagery the viewer 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is Color Theory
 
 Color theory consists of many elements that could fill a library on its own but for this guide we will focus on two key elements. The color wheel and color harmony. By understanding the color wheel and color harmony you can hand pick which colors to add or use in your pieces to create a well-balanced viewing experience which can help in viewer engagement and enjoyment.
 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Color Wheel
 
@@ -47,17 +39,21 @@ Using red, green and blue as primary colors we can mix the colors to one another
 
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Color Harmony
 
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
@@ -68,7 +64,7 @@ The blue lines represent what is known as split contrasting colors and these wil
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## But How Do I Use This
@@ -83,10 +79,14 @@ As you can see from this example the base color for the scene is a dark blue/pur
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -123,16 +123,14 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-efficient-management-and-use-of-b-roll-footage/"><u>[New] 2024 Approved Efficient Management and Use of B-Roll Footage</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/irthful-melodies-best-song-caricatures/"><u>[New] Mirthful Melodies Best Song Caricatures</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nwind-with-laughter-curating-15-hilarious-youtube-masterpieces/"><u>[New] Unwind with Laughter Curating 15 Hilarious YouTube Masterpieces</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-comparing-360-degree-captures-and-full-immersion-media-for-2024/"><u>[Updated] Comparing 360-Degree Captures and Full Immersion Media for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-boosting-participation-tips-for-fb-giveaway-posts/"><u>[Updated] In 2024, Boosting Participation Tips for FB Giveaway Posts</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-initiating-an-entrepreneurial-journey-with-just-a-click-on-mobile-devices/"><u>[Updated] Initiating an Entrepreneurial Journey with Just a Click on Mobile Devices</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-pixelated-persistence-selecting-the-ultimate-cam-for-extended-shots-for-2024/"><u>[Updated] Pixelated Persistence Selecting the Ultimate Cam for Extended Shots for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-understanding-telegram-advertising-for-new-marketing-entrants-for-2024/"><u>[Updated] Understanding Telegram Advertising For New Marketing Entrants for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/2024s-elite-selection-of-macbook-gear-expertly-assessed-and-critiqued-wired/"><u>2024'S Elite Selection of MacBook Gear: Expertly Assessed and Critiqued | Wired</u></a></li>
-<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your Samsung Galaxy XCover 6 Pro Tactical Edition | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-essential-strategies-for-flawless-cricket-livestreams/"><u>In 2024, Essential Strategies for Flawless Cricket Livestreams</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-ink-your-photos-leading-apps-for-captioning-iosandroid/"><u>[New] 2024 Approved Ink Your Photos Leading Apps for Captioning (iOS/Android)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-mastering-media-manipulation-combining-windows-photos-and-story-remix/"><u>[Updated] 2024 Approved Mastering Media Manipulation Combining Windows Photos and Story Remix</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-journey-through-gaming-landscapes-with-kinemaster-and-discover-its-best-competitors-for-2024/"><u>[Updated] Journey Through Gaming Landscapes with KineMaster & Discover Its Best Competitors for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-reveal-the-rare-5-effortless-ways-to-enhance-views-for-2024/"><u>[Updated] Reveal the Rare 5 Effortless Ways to Enhance Views for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-streamline-iphone-videos-size-and-length-optimization-for-2024/"><u>[Updated] Streamline iPhone Videos Size & Length Optimization for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/expert-advice-on-tech-essentials-with-toms-hardware-critiques/"><u>Expert Advice on Tech Essentials with Tom's Hardware Critiques</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unveiling-inexpensive-cloud-storage-services/"><u>In 2024, Unveiling Inexpensive Cloud Storage Services</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/user-guide-and-critique-experiencing-google-maps-for-apple-mobile-platforms/"><u>User Guide & Critique: Experiencing Google Maps for Apple Mobile Platforms</u></a></li>
 </ul></div>
 

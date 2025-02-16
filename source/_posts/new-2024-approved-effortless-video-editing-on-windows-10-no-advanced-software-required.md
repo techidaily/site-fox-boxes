@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Effortless Video Editing on Windows 10  No Advanced Software Required\""
-date: 2025-01-28T16:07:42.498Z
-updated: 2025-02-03T02:33:40.231Z
+date: 2025-02-12T09:04:12.680Z
+updated: 2025-02-15T17:25:47.032Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,10 @@ The in-built editor in Windows 10 Photos can do that for you. Through this artic
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to trim video in Windows 10 Photos
 
 When you talk about video trimming apps on Windows 10 PC, Photos is the only built-in app capable of doing so. Whether you want to do away with the awkward starting of your video or want to club multiple video clips, get Photos on work for that. Basic level editing is possible with Photos, for additional video editing.
@@ -51,18 +55,18 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/photos-trim.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3**: On the bottom part of the screen, there are three circles. The start and end of the markers clips are represented by two small white circles. For chopping off the unwanted portions you need to drag and adjust the marker circles. The movement of markers shows a text denoting the total selected length of the clip over the marker. The larger marker represents the present spot of your video clip. Make sure to drag around and adjust the video for including all the important parts within the video.
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/start-trim-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to trim video in Windows 10 with VLC
 
@@ -77,7 +81,7 @@ Here comes the step by step guide to trim video in VLC –
 ![trim videos in windows 10 using VLC](https://images.wondershare.com/filmora/article-images/vlc-trim-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Upon activation of the 'Advanced controls' option, four additional buttons appear over the VLC media player's play/pause button. Now, you got to add the video by 'Open File'. Well, you can also do that by dragging and dropping the video as well.
@@ -87,7 +91,7 @@ Here comes the step by step guide to trim video in VLC –
 Note: You won't be trimmed by cutting the video here, rather recording the desired part using the inbuilt VLC decoder. Using the 'Frame by frame' button found under the 'Advanced control' section (the last button from the left) move to the exact frame you wish to begin your recording.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -97,10 +101,6 @@ From the above article, we found that **trimming video in VLC and Windows 10 Pho
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -127,18 +127,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-the-ultimate-list-of-superior-live-streaming-services-for-2024/"><u>[New] The Ultimate List of Superior Live Streaming Services for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-witticisms-and-whimsy-the-vhs-perspective-on-goofy/"><u>[Updated] 'Witticisms and Whimsy' - The VHS Perspective on Goofy</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-analyzing-androids-best-editor-is-pickup-at-the-peak-of-performance/"><u>[Updated] 2024 Approved Analyzing Android's Best Editor Is PickUp at the Peak of Performance?</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-enhancing-detail-in-minecraft-worlds/"><u>[Updated] In 2024, Enhancing Detail in Minecraft Worlds</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-tiktok-versus-youtube-shorts-assessing-personal-usage-value/"><u>[Updated] In 2024, TikTok versus YouTube Shorts Assessing Personal Usage Value</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-ultimate-guide-to-documenting-your-vr-experiences/"><u>[Updated] In 2024, Ultimate Guide to Documenting Your VR Experiences</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-financial-flip-understanding-1-million-views-payoff-for-2024/"><u>[Updated] The Financial Flip Understanding 1 Million Views Payoff for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/inversion-workshop/"><u>Inversion Workshop</u></a></li>
-<li><a href="https://driver-error.techidaily.com/smooth-windows-11-and-10-overcoming-disk-issues/"><u>Smooth Windows 11 & 10: Overcoming Disk Issues</u></a></li>
-<li><a href="https://win-web.techidaily.com/solution-guide-for-no-internet-connection-issues-according-to-yl-software-experts/"><u>Solution Guide for No Internet Connection Issues, According to YL Software Experts</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-call-logs-from-motorola-moto-g-5g-2023-by-fonelab-android-recover-call-logs/"><u>Undelete lost call logs from Motorola Moto G 5G (2023)</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/utilizing-multiframe-view-an-in-depth-look-at-edges-pip-for-2024/"><u>Utilizing Multiframe View An In-Depth Look at Edge’s PIP for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/videographys-bright-side-5-must-have-apps/"><u>Videography's Bright Side 5 Must-Have Apps</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-easy-and-free-ways-to-transfer-photos-and-videos-from-an-iphone-to-a-pc/"><u>[New] 2024 Approved Easy and Free Ways to Transfer Photos and Videos From an iPhone to a PC</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-essential-10-family-friendly-movies-for-summertime-bliss/"><u>[New] 2024 Approved Essential 10 Family-Friendly Movies for Summertime Bliss</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-unveiling-t-series-profit-generation-methods-on-youtube/"><u>[New] 2024 Approved Unveiling T-Series' Profit Generation Methods on YouTube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-analyzing-the-precision-of-yis-4k-actioncam/"><u>[New] Analyzing the Precision of Yi's 4K ActionCam</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-cutting-the-excess-a-guide-to-shortening-youtube-videos/"><u>[New] In 2024, Cutting the Excess A Guide to Shortening YouTube Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-learn-the-basics-of-digital-distortion/"><u>[New] Learn the Basics of Digital Distortion</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-through-the-lens-through-editing-pro-secrets-of-stunning-art-for-2024/"><u>[New] Through the Lens, Through Editing Pro Secrets of Stunning Art for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-direct-mac-pics-to-a-new-saving-area/"><u>[Updated] 2024 Approved Direct Mac Pics to a New Saving Area</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-cutting-edge-tools-to-transform-your-youtube-titling-skills-for-2024/"><u>[Updated] Cutting-Edge Tools to Transform Your YouTube Titling Skills for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-fb-vids-effortless-mp4-extraction-at-your-fingertips/"><u>[Updated] FB Vids Effortless MP4 Extraction at Your Fingertips</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-best-in-class-evaluating-the-top-8-sub-to-srt-convertors/"><u>[Updated] In 2024, The Best in Class Evaluating the Top 8 Sub to SRT Convertors</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-understanding-snapchats-high-value-content/"><u>[Updated] Understanding Snapchat's High-Value Content</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-viral-visuals-photos-and-their-lives-for-2024/"><u>[Updated] Viral Visuals Photos and Their Lives for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/bastena-fordjupade-tecknen-att-skapa-iphone-ringsignal-fra-mp3-aktiveringar/"><u>Bästena Fördjupade Tecknen Att Skapa iPhone-Ringsignal Frå MP3-Aktiveringar</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/iphone-camera-savvy-image-optimization-secrets-for-2024/"><u>IPhone Camera Savvy Image Optimization Secrets for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-5-top-realistic-text-to-speech-ai-voice-generators-you-may-like/"><u>New 2024 Approved 5 Top Realistic Text to Speech AI Voice Generators You May Like</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/restore-missing-app-icon-on-itel-a70-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Itel A70 Step-by-Step Solutions | Dr.fone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-what-is-the-best-mp4-cutters-for-youtubers-on-mac-in-2024/"><u>Updated What Is the Best MP4 Cutters for YouTubers on Mac, In 2024</u></a></li>
 </ul></div>
 

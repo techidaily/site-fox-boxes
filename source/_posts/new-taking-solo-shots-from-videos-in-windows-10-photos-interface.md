@@ -1,7 +1,7 @@
 ---
 title: "[New] Taking Solo Shots From Videos in Windows 10 Photos Interface"
-date: 2025-02-02T09:43:04.341Z
-updated: 2025-02-03T06:20:23.074Z
+date: 2025-02-09T20:42:07.865Z
+updated: 2025-02-16T08:06:30.191Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,10 @@ In this article, you will learn how to save photo from Windows 10 Photos app and
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to save photo from Windows 10 Photos app
 
 In this part of the article, we are going to discuss, how you would save photo from video with Windows 10 Photos app. The Photos app has numerous features for you, and the editing tools would simply amaze you. You can use the Windows Ink to write on the images or capture stills from a video for that matter. Let’s see, how to save photo from video using Windows 10 Photos app –
@@ -52,10 +56,6 @@ Creating a living image:
 
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Now, you can see the living picture by tapping ‘Play’ button.
 
 These photos are stored in the ‘Pictures’ folder of your computer having ‘LI’ appended file names. Now, it’s time to save the living image as photo on your computer using Photos app.
@@ -65,10 +65,14 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Why I can’t save photo from video
@@ -77,13 +81,13 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 
 We are explaining the solutions here –
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Sign in a different account in Microsoft Store
 
@@ -102,15 +106,11 @@ Here comes the guide –
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -143,19 +143,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-enthralling-readers-with-these-stellar-5-book-promo-videos/"><u>[New] 2024 Approved Enthralling Readers with These Stellar 5 Book Promo Videos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-unveiling-windows-11-a-compreayer-to-master-video-editing-techniques/"><u>[New] 2024 Approved Unveiling Windows 11 A Compreayer to Master Video Editing Techniques</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-igniting-laughter-a-path-to-meme-fame/"><u>[New] In 2024, Igniting Laughter A Path to Meme Fame</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-image-mastery-through-top-rated-grid-makers/"><u>[Updated] Image Mastery Through Top-Rated Grid Makers</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-empower-yourself-top-10-inspirational-movie-selections/"><u>[Updated] In 2024, Empower Yourself Top 10 Inspirational Movie Selections</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-optimal-orientation-top-tripods-for-iphones-and-androids/"><u>[Updated] Optimal Orientation Top Tripods for iPhones & Androids</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-spark-ar-visual-upgrades-the-role-of-downloadable-luts-in-development-for-2024/"><u>[Updated] Spark AR Visual Upgrades The Role of Downloadable LUTs in Development for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-when-youre-not-who-you-think-during-a-facebook-call-for-2024/"><u>[Updated] When You're Not Who You Think During a Facebook Call for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-samsung-galaxy-m14-5g-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Samsung Galaxy M14 5G</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-breaking-boundaries-custom-font-use-in-after-effects/"><u>In 2024, Breaking Boundaries Custom Font Use in After Effects</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-samsung-galaxy-s23-ultra-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Samsung Galaxy S23 Ultra Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Infinix Smart 7 HD | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-unveiling-the-veil-insta-story-exploration-without-trace/"><u>In 2024, Unveiling the Veil Insta Story Exploration without Trace</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/snapshot-into-the-heart-of-video-edits-filmoras-top-10/"><u>Snapshot Into the Heart of Video Edits - Filmora’s Top 10</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-advanced-mac-skills-perfecting-srt-file-management/"><u>[New] 2024 Approved Advanced Mac Skills Perfecting SRT File Management</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-crafting-captivating-stories-on-fb-a-comprehensive-guide-to-bio-crafting/"><u>[New] 2024 Approved Crafting Captivating Stories on FB A Comprehensive Guide to Bio Crafting</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-zooming-in-clearer-faces-better-discussions/"><u>[New] 2024 Approved Zooming In Clearer Faces, Better Discussions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-streamlining-business-with-azure-speech-services/"><u>[New] In 2024, Streamlining Business with Azure Speech Services</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-truthful-insights-into-recordcast-functionality/"><u>[New] In 2024, Truthful Insights Into RecordCast Functionality</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-windowcut-film-maker-for-2024/"><u>[New] WindowCut Film Maker for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-unlock-google-meets-potential-on-youtube-with-this-guide/"><u>[Updated] 2024 Approved Unlock Google Meet's Potential on YouTube with This Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-complete-drone-accessory-setlist-for-expert-pilots/"><u>[Updated] Complete Drone Accessory Setlist for Expert Pilots</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-ensure-your-podcasts-success-on-googles-uploading-service-for-2024/"><u>[Updated] Ensure Your Podcast’s Success on Google's Uploading Service for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-flight-friendly-robot-categories/"><u>[Updated] In 2024, Flight-Friendly Robot Categories</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-eye-opening-journey-with-q500-for-2024/"><u>[Updated] The Eye-Opening Journey with Q500 for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-easy-to-follow-guide-leveraging-mobizen-screensaver/"><u>2024 Approved Easy-to-Follow Guide Leveraging Mobizen Screensaver</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/enhance-experience-using-your-logitech-webcam-properly/"><u>Enhance Experience Using Your Logitech Webcam Properly</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-xiaomi-redmi-note-12t-pro-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Xiaomi Redmi Note 12T Pro Phones? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-a-filmmakers-must-visit-list-free-visual-effect-and-editing-websites-reviewed/"><u>In 2024, A Filmmaker's Must-Visit List Free Visual Effect & Editing Websites Reviewed</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-audiovisual-appeal-essential-tips-for-podcast-logos/"><u>In 2024, Audiovisual Appeal Essential Tips for Podcast Logos</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-vivo-y78t-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Vivo Y78t</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/leveraging-picture-in-progressive-mode-on-chrome-across-platforms-for-2024/"><u>Leveraging Picture in Progressive Mode on Chrome Across Platforms for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/rise-above-the-crowd-how-to-amass-over-a-million-video-views/"><u>Rise Above the Crowd How to Amass Over a Million Video Views</u></a></li>
 </ul></div>
 

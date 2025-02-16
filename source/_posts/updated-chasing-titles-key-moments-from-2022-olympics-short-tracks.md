@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Chasing Titles  Key Moments From 2022 Olympics Short Tracks\""
-date: 2025-02-01T08:24:58.337Z
-updated: 2025-02-03T02:51:10.694Z
+date: 2025-02-12T18:02:56.141Z
+updated: 2025-02-16T05:06:36.593Z
 tags: 
   - screen-recording
   - ai video
@@ -29,6 +29,10 @@ Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with contr
 
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. Introduce some highlights in short track speed skating with images
 
 Here are the main highlights of 1500 meter short track speed skating held at the Capital Indoor Stadium in Beijing on Wednesday.
@@ -42,7 +46,7 @@ Canada’s Steven Dubois wins the silver medal.
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Russia’s Semen Elistratov wins the bronze medal.
@@ -53,17 +57,9 @@ Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
 
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
 
@@ -74,12 +70,16 @@ The last leg of competition among skaters before reaching the finishing line at 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -94,6 +94,10 @@ To create such a highlight video on any sports event, there are certain videos e
 **Motion Tracking** – Using motion tracking, you can track the movement of a particular object or athlete in a video. This helps to attach certain elements such as clipart, text, icon to that particular athlete throughout the video for easy identification by the viewers.
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -112,10 +116,6 @@ For macOS 10.12 or later
 Step 1: Download and install Filmora on your computer. Launch the application and click on New Project.
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
 
@@ -150,24 +150,19 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-navigate-iphones-dual-task-capabilities-effortlessly/"><u>[New] 2024 Approved Navigate iPhone's Dual-Task Capabilities Effortlessly</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-windowsmac-free-software-for-effortless-dvd-viewing/"><u>[New] 2024 Approved Windows/Mac Free Software for Effortless DVD Viewing</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-from-novice-to-expert-navigating-telegram-web/"><u>[New] From Novice to Expert Navigating Telegram Web</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-unveiling-the-full-potential-of-powerdirector-24/"><u>[New] Unveiling the Full Potential of PowerDirector '24</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-a-guide-to-pinpointing-a-list-video-creators/"><u>[Updated] 2024 Approved A Guide to Pinpointing A-List Video Creators</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-delving-into-lgs-high-end-gaming-screen-27ud68-review/"><u>[Updated] 2024 Approved Delving Into LG's High-End Gaming Screen 27UD68 Review</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-fixing-disconnected-headphone-unit-for-2024/"><u>[Updated] Fixing Disconnected Headphone Unit for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-the-top-30-for-timeless-telephone-chimes/"><u>[Updated] The Top 30 for Timeless Telephone Chimes</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-top-11-video-cameras-under-500-a-frugal-filmmakers-list/"><u>[Updated] Top 11 Video Cameras Under $500 A Frugal Filmmaker's List</u></a></li>
-<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-tecno-camon-20-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Tecno Camon 20 | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-evaluation-of-the-wallet-friendly-amazon-basics-heavy-duty-crosscut-shredder-6-sheets/"><u>Expert Evaluation of the Wallet-Friendly Amazon Basics Heavy-Duty Crosscut Shredder (6 Sheets)</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-xiaomi-redmi-12-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Xiaomi Redmi 12 FRP Bypass Instantly</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-speech-to-text-solutions-for-engaging-ppts/"><u>In 2024, Speech-to-Text Solutions for Engaging PPTs</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/professionals-choice-of-best-windows-edits-tools/"><u>Professionals' Choice of Best Windows Edits Tools</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/radiate-on-reels-instagram-highlight-techniques-simplified-to-three/"><u>Radiate on Reels Instagram Highlight Techniques, Simplified to Three</u></a></li>
-<li><a href="https://review-topics.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your ZTE Blade A73 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/spark-to-the-past-djis-mavic-air-reimagines-gameplay/"><u>Spark to the Past? DJI's Mavic Air Reimagines Gameplay</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-social-fabric-redefined-why-the-metaverse-raises-concerns/"><u>The Social Fabric Redefined - Why the Metaverse Raises Concerns</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/transform-srt-to-video-top-10-free-subtitle-tools/"><u>Transform SRT to Video - Top 10 FREE Subtitle Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-how-to-combine-videos-on-iphone-for-2024/"><u>[New] How to Combine Videos on iPhone for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-palette-perfection-the-colorists-manual/"><u>[New] In 2024, Palette Perfection The Colorist's Manual</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-premier-plans-exclusive-free-premiere-pro-samples-2023/"><u>[New] In 2024, Premier Plans - Exclusive Free Premiere Pro Samples 2023</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-playlist-15-ways-to-revamp-a-live-stream/"><u>[New] The Ultimate Playlist 15 Ways to Revamp a Live Stream</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-best-image-safekeepers-online-for-2024/"><u>[Updated] Best Image Safekeepers Online for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-direct-video-tweet-release-avoid-the-rt/"><u>[Updated] Direct Video Tweet Release Avoid the 'RT'</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-drone-category-definitions/"><u>[Updated] In 2024, Drone Category Definitions</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-iterative-feedback/"><u>2024 Approved Iterative Feedback</u></a></li>
+<li><a href="https://win-able.techidaily.com/comprehensive-guide-overcoming-directx-compatibility-problems-in-battlefield-2042/"><u>Comprehensive Guide: Overcoming DirectX Compatibility Problems in Battlefield 2042</u></a></li>
+<li><a href="https://driver-error.techidaily.com/expert-advice-resolving-non-responsive-hp-keyboard-problems-with-ease/"><u>Expert Advice: Resolving Non-Responsive HP Keyboard Problems with Ease</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-itel-p55-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Itel P55? | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/leading-setups-in-professional-broadcast-equipment/"><u>Leading Setups in Professional Broadcast Equipment</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unraveling-twitch-mysteries-essential-tips-for-beginner-streamers/"><u>Unraveling Twitch Mysteries: Essential Tips for Beginner Streamers</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-the-limits-of-text-input-in-chatgpt-tips-for-going-beyond/"><u>Unveiling the Limits of Text Input in ChatGPT – Tips for Going Beyond</u></a></li>
 </ul></div>
 

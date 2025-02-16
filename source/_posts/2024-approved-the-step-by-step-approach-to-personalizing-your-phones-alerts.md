@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Step-By-Step Approach to Personalizing Your Phone's Alerts\""
-date: 2024-08-16T04:44:54.771Z
-updated: 2024-08-17T04:44:54.771Z
+date: 2025-02-13T17:11:28.909Z
+updated: 2025-02-16T05:36:34.925Z
 tags: 
   - screen-recording
   - ai video
@@ -36,13 +36,25 @@ Step2 Scroll below and tap the **"Sounds & Haptics"** option.
 
 ![tap sounds and haptics option](https://images.wondershare.com/filmora/article-images/2023/03/tap-sounds-and-haptics-option.PNG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Tap **"Ringtone."**
 
 ![tap ringtone option](https://images.wondershare.com/filmora/article-images/2023/03/tap-ringtone-option.PNG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 Select any ringtone from the list**,** and you are done.
 
 ![select ringtone](https://images.wondershare.com/filmora/article-images/2023/03/select-ringtone.PNG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Add a Customized Sound and Set it as your iPhone's Ringtone?
 
@@ -52,6 +64,10 @@ Step1 Open **"Settings."**
 
 ![open settings iphone](https://images.wondershare.com/filmora/article-images/2023/03/open-settings-iphone.PNG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Scroll below and tap the **"iTunes and App Store"** option.
 
 ![tap itunes and app store](https://images.wondershare.com/filmora/article-images/2023/03/tap-itunes-and-app-store.PNG)
@@ -60,6 +76,10 @@ Step3 Tap the **"More"** option at the bottom-right corner.
 
 ![more option iphone](https://images.wondershare.com/filmora/article-images/2023/03/tap-more-option.PNG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 Tap the **"Tones"** option. Browse the library of ringtones and sounds and make your selection. When selected, tap the **"Price"** option.
 
 ![browse library price itunes](https://images.wondershare.com/filmora/article-images/2023/03/tap-tones-browse-library-tap-price.PNG)
@@ -67,6 +87,10 @@ Step4 Tap the **"Tones"** option. Browse the library of ringtones and sounds and
 Step5 The download will start immediately if a payment method is linked with your Apple ID.
 
 ![payment method download start](https://images.wondershare.com/filmora/article-images/2023/03/payment-method-download-start.PNG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step6 After downloading, you will see four options; **"Set as Default Ringtone,"** **"Set as Default Text Tone,"** **"Assign to a Contact,"** and **"Done."**
 
@@ -114,10 +138,11 @@ Step2 Add the video file to the **Timeline.**
 
 Step3 Right-click on the video file and select **"Detach Audio."**
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![detach audio filmora](https://images.wondershare.com/filmora/article-images/2023/03/detach-audio-filmora.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4 The detached audio clip will automatically be on the audio track.
 
@@ -125,10 +150,11 @@ Step4 The detached audio clip will automatically be on the audio track.
 
 Step5 Delete the video clip by right-clicking. Now click on the **"Export"** option to save the audio clip on your PC.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![export save filmora](https://images.wondershare.com/filmora/article-images/2023/03/export-save-filmora.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step6 Repeat the steps mentioned earlier to reduce the length and for the conversion process. Transfer the MP3 file to your iPhone using a USB cable.
 
@@ -144,9 +170,6 @@ Hopefully, you will find our article thoughtful, and now you can **customize rin
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Features
 
 Here is why **Wondershare Filmora** is a full-fledged option for **making ringtones from video files using an iPhone**:
@@ -175,9 +198,6 @@ Step1 **Download** Wondershare Filmora and launch the software on your PC. Click
 
 Step2 Add the video file to the **Timeline.**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![adding video timeline panel filmora](https://images.wondershare.com/filmora/article-images/2023/03/adding-video-timeline-panel-filmora.png)
 
 Step3 Right-click on the video file and select **"Detach Audio."**
@@ -191,6 +211,10 @@ Step4 The detached audio clip will automatically be on the audio track.
 Step5 Delete the video clip by right-clicking. Now click on the **"Export"** option to save the audio clip on your PC.
 
 ![export save filmora](https://images.wondershare.com/filmora/article-images/2023/03/export-save-filmora.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step6 Repeat the steps mentioned earlier to reduce the length and for the conversion process. Transfer the MP3 file to your iPhone using a USB cable.
 
@@ -226,8 +250,24 @@ Hopefully, you will find our article thoughtful, and now you can **customize rin
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-full-access-your-in-depth-look-at-fcp-for-2024/"><u>[New] Full Access Your In-Depth Look at FCP for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-dusk-to-dawn-expert-iphone-low-light-techniques/"><u>[New] In 2024, Dusk to Dawn Expert iPhone Low Light Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-mastering-kinemaster-written-in-5-steps-plus-best-digital-editors-online-for-2024/"><u>[New] Mastering KineMaster' Written in 5 Steps + Best Digital Editors Online for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unveiling-the-secrets-of-kinemaster-usage-and-ranking-alternatives-1-10/"><u>[New] Unveiling the Secrets of KineMaster Usage & Ranking Alternatives 1-10</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-ai-driven-high-quality-editing-platform/"><u>[Updated] 2024 Approved AI-Driven High-Quality Editing Platform</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-cinematic-wisdom-bank/"><u>[Updated] 2024 Approved Cinematic Wisdom Bank</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-design-thinking-for-content-creators-crafting-impactful-facebook-reels/"><u>[Updated] 2024 Approved Design Thinking for Content Creators Crafting Impactful Facebook Reels</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-elevated-sound-navigation-system-android-edition/"><u>[Updated] 2024 Approved Elevated Sound Navigation System, Android Edition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-masterclass-in-capturing-conversations-for-later-review/"><u>[Updated] 2024 Approved Masterclass in Capturing Conversations for Later Review</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-tailoring-web-clarity-with-advanced-zoom-tools/"><u>[Updated] In 2024, Tailoring Web Clarity with Advanced Zoom Tools</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-ultimate-hd-capture-software-for-windows-and-macos/"><u>[Updated] Ultimate HD Capture Software for Windows & macOS</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-essential-strategies-for-webp-to-jpeg-conversion/"><u>2024 Approved Essential Strategies for WebP to JPEG Conversion</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-exploring-the-power-of-luts-color-grading-made-easy-in-pro/"><u>2024 Approved Exploring the Power of LUTs Color Grading Made Easy in Pro</u></a></li>
+<li><a href="https://fox-links.techidaily.com/dive-into-tiktok-edits-a-comprehensible-guide-for-all-for-2024/"><u>Dive Into TikTok Edits A Comprehensible Guide for All for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-boost-engagement-changing-numbers-effectively-on-tiktok/"><u>In 2024, Boost Engagement Changing Numbers Effectively on TikTok</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/revive-your-laptops-sound-troubleshooting-steps-to-fix-audio-problems/"><u>Revive Your Laptop's Sound - Troubleshooting Steps to Fix Audio Problems</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/still-using-pattern-locks-with-honor-90-gt-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Honor 90 GT? Tips, Tricks and Helpful Advice</u></a></li>
+</ul></div>
 

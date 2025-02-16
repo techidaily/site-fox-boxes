@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  One Frame at a Time  How To Extract Images From Windows 10 Movie Files\""
-date: 2024-08-16T04:42:24.098Z
-updated: 2024-08-17T04:42:24.098Z
+date: 2025-02-15T04:13:23.263Z
+updated: 2025-02-16T07:12:42.101Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/f7921a39c56c18854a738fb18f72fdf7d073d9479
 
 # How to Save Photo from Video in Windows 10 Photos App
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -36,6 +33,10 @@ In this article, you will learn how to save photo from Windows 10 Photos app and
 * [**Part1: How to save photo from Windows 10 Photos app**](#part1)
 * [**Part2: Why I can’t save photo from video**](#part2)
 * [**Part3: Alternative way to save photo from video**](#part3)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: How to save photo from Windows 10 Photos app
 
@@ -59,6 +60,10 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
 ## Part 2: Why I can’t save photo from video
@@ -67,16 +72,21 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 
 We are explaining the solutions here –
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
 
@@ -93,17 +103,15 @@ Here comes the guide –
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -128,8 +136,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-miniscreen-tape-snapshot-assessment-and-substitutes/"><u>[New] In 2024, MiniScreen Tape Snapshot Assessment & Substitutes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-ultimate-checklist-for-video-praise-mastery/"><u>[New] In 2024, The Ultimate Checklist for Video Praise Mastery</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-navigating-the-world-of-discord-roles/"><u>[New] Navigating the World of Discord Roles</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-3-steps-to-create-professional-gopro-vlogs-ultimate-tutorial/"><u>[Updated] 2024 Approved 3 Steps to Create Professional Gopro Vlogs Ultimate Tutorial</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-discover-the-premier-screen-recording-tools-for-mac/"><u>[Updated] 2024 Approved Discover the Premier Screen Recording Tools for Mac</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-leverage-smart-organization-in-mematic/"><u>[Updated] 2024 Approved Leverage Smart Organization in Mematic</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-amazing-way-to-unlock-your-mac-with-apple-watch/"><u>[Updated] Amazing Way to Unlock Your Mac with Apple Watch</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-exploring-periscopes-world-free-access-and-user-registration/"><u>[Updated] Exploring Periscope's World Free Access & User Registration</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-enhance-skills-and-strategy-opt-for-free-voice-modification-in-valorant/"><u>[Updated] In 2024, Enhance Skills & Strategy Opt for Free Voice Modification in Valorant</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-joyous-film-loader-assessment/"><u>[Updated] In 2024, Joyous Film Loader Assessment</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/apple-embraces-ai-with-siri-taking-over-from-bing-in-the-spotlight-will-change-spark-innovation/"><u>Apple Embraces AI with Siri Taking Over From Bing in the Spotlight – Will Change Spark Innovation?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-audio-callback-sensor-for-iphone-x2-24/"><u>In 2024, Audio Callback Sensor for iPhone X2 '24</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-fusing-frequencies-smoothly-with-logic-pro-x-methods/"><u>In 2024, Fusing Frequencies Smoothly with Logic Pro X Methods</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-secrets-of-skillful-navigation-around-edgenuity-videos/"><u>In 2024, Secrets of Skillful Navigation Around Edgenuity Videos</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/introducing-abbyys-comprehensive-finereader-engine-n-the-ultimate-ocr-solution-for-simulated-and-cloud-settings/"><u>Introducing ABBYY's Comprehensive FineReader Engine N - The Ultimate OCR Solution for Simulated and Cloud Settings</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/top-cameras-for-puppetry-cinematography/"><u>Top Cameras for Puppetry Cinematography</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unlock-your-social-media-superpowers-top-9-instagram-techniques-to-skyrocket-popularity/"><u>Unlock Your Social Media Superpowers Top 9 Instagram Techniques to Skyrocket Popularity</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unlocking-your-creative-potential-style-and-niche/"><u>Unlocking Your Creative Potential Style & Niche</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-keyframes-interval-everything-you-need-to-know-filmora/"><u>Updated In 2024, Keyframes Interval Everything You Need To Know | Filmora</u></a></li>
+</ul></div>
 
