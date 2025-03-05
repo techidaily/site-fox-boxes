@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Playing SRT Files in Windows/MAC\""
-date: 2024-08-16T04:45:51.432Z
-updated: 2024-08-17T04:45:51.432Z
+date: 2025-03-01T02:42:09.073Z
+updated: 2025-03-05T10:27:58.933Z
 tags: 
   - screen-recording
   - ai video
@@ -24,14 +24,8 @@ Standing for SubRip Subtitle, an SRT file is a plain text file that contains all
 
 So, if you too have videos and movies with SRT and looks for ways on **how to open SRT file**, this article will be a good read. The content below will help you learn about the platforms that support the SRT files, and several tools and programs that help to open the SRT files on Windows and Mac systems.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![open srt file](https://images.wondershare.com/filmora/article-images/2022/09/srt-file-how-to-open-srt-file-01.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: Which Platforms support SRT files?
 
 An array of subtitle formats are available with support to different platforms, tools and devices. Some of the commonly used types include SRT., WebVTT, SSA, TTML, TXT, VTT, and more.
@@ -121,9 +115,6 @@ Step3 Now, the software can be used for performing an array of SRT editing funct
 
 Step4 Once the subtitle file is edited, right-click and then choose the Export Subtitle File option.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![open srt using wondershare filmora 3](https://images.wondershare.com/filmora/article-images/2022/09/srt-file-how-to-open-srt-file-09.jpg)
 
 ## Final Words
@@ -160,9 +151,6 @@ We recently covered some concrete methods in detail of **how to open SRT file on
 
 ![text edit for mac](https://images.wondershare.com/filmora/article-images/2022/09/srt-file-how-to-open-srt-file-05.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4: Open the File with Online SRT Viewers \[Mac & Windows\]
 
 In addition to the desktop programs, there are several online tools available as well that allow opening the SRT subtitle files on your Windows and Mac systems. These online programs are simple tools that need no software download or installation and work straight from the browser. Though these online tools are simple to use, they are internet dependent and the features supported are also limited.
@@ -235,8 +223,21 @@ The above listed are several ways by which an SRT subtitle file can be opened on
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-adventure-showdown-analyzing-gopros-hero5b-and-session/"><u>[New] Adventure Showdown Analyzing GoPro's Hero5B & Session</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-boost-your-tiktok-game-best-free-edits-for-mac-users-top-10-for-2024/"><u>[New] Boost Your TikTok Game - Best Free Edits for Mac Users (Top 10) for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-how-to-capture-your-skype-sessions-on-mac-and-windows-for-2024/"><u>[New] How to Capture Your Skype Sessions on Mac and Windows for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-step-by-step-guide-to-immerse-users-in-soundfilters-of-windows-10-photos-for-2024/"><u>[New] Step-by-Step Guide to Immerse Users in Sound/Filters of Windows 10 Photos for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-crafting-and-channelizing-imovie-productions-on-youtube/"><u>[Updated] 2024 Approved Crafting and Channelizing iMovie Productions on YouTube</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-camera-and-accessories-guide-for-travel-vids/"><u>[Updated] Camera & Accessories Guide for Travel Vids</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-expert-picks-for-drone-pilots-vr-eyewear/"><u>[Updated] In 2024, Expert Picks for Drone Pilots’ VR Eyewear</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-innovative-ways-to-remove-ssgnature-backdrops-fast/"><u>[Updated] Innovative Ways to Remove Ssgnature Backdrops Fast</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/10-must-hear-tunes-as-your-phones-greeting-melody/"><u>10 Must-Hear Tunes as Your Phones Greeting Melody</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-lights-spectrum-in-focus-pro-hdr-creation-tips-for-ps/"><u>2024 Approved Light's Spectrum in Focus Pro HDR Creation Tips for PS</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/comparative-study-on-vlc-video-capture-for-2024/"><u>Comparative Study on VLC Video Capture for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/from-compressed-to-captioned-zip-to-srt-effortlessly-for-2024/"><u>From Compressed To Captioned Zip to .Srt Effortlessly for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-call-logs-from-your-phantom-v-fold-by-fonelab-android-recover-call-logs/"><u>How to recover old call logs from your Phantom V Fold?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/maximizing-impact-with-strategic-fb-giveaway-announcements/"><u>Maximizing Impact with Strategic FB Giveaway Announcements</u></a></li>
+</ul></div>
 

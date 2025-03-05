@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Tints & Tonality  Applying Theoretical Insight\""
-date: 2025-02-13T06:13:59.041Z
-updated: 2025-02-15T17:21:44.948Z
+date: 2025-03-03T03:04:17.145Z
+updated: 2025-03-04T17:37:37.886Z
 tags: 
   - screen-recording
   - ai video
@@ -41,19 +41,11 @@ Using red, green and blue as primary colors we can mix the colors to one another
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Color Harmony
 
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
@@ -62,10 +54,6 @@ These colors always work as they create contrast and stability.
 The blue lines represent what is known as split contrasting colors and these will create balance with each other.
 
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## But How Do I Use This
 
@@ -79,15 +67,7 @@ As you can see from this example the base color for the scene is a dark blue/pur
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -123,14 +103,19 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-ink-your-photos-leading-apps-for-captioning-iosandroid/"><u>[New] 2024 Approved Ink Your Photos Leading Apps for Captioning (iOS/Android)</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-mastering-media-manipulation-combining-windows-photos-and-story-remix/"><u>[Updated] 2024 Approved Mastering Media Manipulation Combining Windows Photos and Story Remix</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-journey-through-gaming-landscapes-with-kinemaster-and-discover-its-best-competitors-for-2024/"><u>[Updated] Journey Through Gaming Landscapes with KineMaster & Discover Its Best Competitors for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-reveal-the-rare-5-effortless-ways-to-enhance-views-for-2024/"><u>[Updated] Reveal the Rare 5 Effortless Ways to Enhance Views for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-streamline-iphone-videos-size-and-length-optimization-for-2024/"><u>[Updated] Streamline iPhone Videos Size & Length Optimization for 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Honor Play 40C | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/expert-advice-on-tech-essentials-with-toms-hardware-critiques/"><u>Expert Advice on Tech Essentials with Tom's Hardware Critiques</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-unveiling-inexpensive-cloud-storage-services/"><u>In 2024, Unveiling Inexpensive Cloud Storage Services</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/user-guide-and-critique-experiencing-google-maps-for-apple-mobile-platforms/"><u>User Guide & Critique: Experiencing Google Maps for Apple Mobile Platforms</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-earning-potential-steps-to-join-the-youtube-premium-club/"><u>[New] 2024 Approved Earning Potential Steps to Join the YouTube Premium Club</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-grappling-glory-selecting-the-ultimate-fight-simulator/"><u>[New] 2024 Approved Grappling Glory Selecting the Ultimate Fight Simulator</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-critique-on-luminances-approach-to-hdr-creation/"><u>[New] In 2024, Critique on Luminance’s Approach to HDR Creation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-full-body-kinetics-report-2023/"><u>[New] In 2024, Full Body Kinetics Report 2023</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-calculated-viewing-time-for-a-standard-20mb-film/"><u>[Updated] 2024 Approved Calculated Viewing Time for a Standard 20Mb Film</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-get-the-best-of-both-worlds-with-top-asymmetric-microphones/"><u>[Updated] 2024 Approved Get the Best of Both Worlds with Top Asymmetric Microphones</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-audio-visual-converters-forum/"><u>[Updated] In 2024, Audio Visual Converters Forum</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-exclusive-drone-visuals-free-luts-for-dji-drones/"><u>[Updated] In 2024, Exclusive Drone Visuals Free LUTS for DJI Drones</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-masterclass-review-of-androids-adobe-lightroom/"><u>[Updated] Masterclass Review of Android's Adobe Lightroom</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-savvy-obs-arrangement-for-economical-pcs/"><u>[Updated] Savvy OBS Arrangement for Economical PCs</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-exploring-live-sessions-guesting-basics-of-tiktok/"><u>2024 Approved Exploring Live Sessions Guesting Basics of TikTok</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On OnePlus Ace 3 | Dr.fone</u></a></li>
+<li><a href="https://os-tips.techidaily.com/enhanced-contact-editing-discover-the-latest-upgrade-for-microsoft-outlook-on-mobile-devices/"><u>Enhanced Contact Editing: Discover the Latest Upgrade for Microsoft Outlook on Mobile Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-fluency-discover-the-best-3-multilingual-resources/"><u>Unlock Fluency: Discover the Best 3 Multilingual Resources</u></a></li>
 </ul></div>
 

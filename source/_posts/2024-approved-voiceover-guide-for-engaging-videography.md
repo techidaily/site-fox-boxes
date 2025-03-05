@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Voiceover Guide for Engaging Videography\""
-date: 2024-08-23T07:54:15.635Z
-updated: 2024-08-24T07:54:15.635Z
+date: 2025-02-25T19:44:23.480Z
+updated: 2025-03-05T07:12:16.080Z
 tags: 
   - screen-recording
   - ai video
@@ -42,18 +42,12 @@ For the purpose of this article, I will be using the term “voiceover and “na
 
 But here's the good news: the way you add either option is the same in Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![add either option](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
 ## How to add narration
 
 So the easiest way to add narration is directly to a project. The benefit of this is that you can record your narration inside Filmora while you watch the preview of your edited video.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![add narration to project](https://images.wondershare.com/filmora/guide/stt-tts-srt-09.png)
 
 A good example of this would be narrating a story on top of some still images and video clips from a recent vacation. (In most cases you would want to turn off the sound of the video clip, or at least use ducking to help the viewer focus on the narration.)
@@ -78,9 +72,6 @@ You can edit pauses or weak parts out of the voiceover to trim it up. But if it 
 
 Fortunately, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) comes equipped with video b-roll which is another great option. When using b-roll, it's better to use multiple shorter clips than one longer clip in most cases. But adding the same b-roll clip near the beginning and another section of the same b-roll clip, later on, should help you match the length of your narration to the video timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Narration is a great storytelling device
 
 Narration is a fantastic tool to have in your arsenal as a young filmmaker. It allows you to quickly communicate feelings, backstory, and context quickly and effectively.
@@ -93,9 +84,6 @@ It can also help make a connection with your audience because you can be relatin
 
 When adding voiceover or narration to your project, be sure to use a good USB microphone. A good quality sound will elevate your entire project and just requires a little planning.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![use good microphone](https://images.wondershare.com/filmora/article-images/2022/11/use-good-microphone.jpg)
 
 Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
@@ -136,8 +124,19 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-building-a-professional-online-network-hub/"><u>[New] 2024 Approved Building a Professional Online Network Hub</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-creative-auditory-shifts-with-premiere-pro/"><u>[New] 2024 Approved Creative Auditory Shifts with Premiere Pro</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-free-custom-minecraft-gif-templates/"><u>[New] Free Custom Minecraft GIF Templates</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-unlock-your-potential-designing-captivating-discord-photos/"><u>[New] In 2024, Unlock Your Potential Designing Captivating Discord Photos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-quick-tips-for-editing-igtv-content-to-stand-out/"><u>[New] Quick Tips for Editing IGTV Content to Stand Out</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-creating-time-lapse-from-single-photographs/"><u>[Updated] Creating Time-Lapse From Single Photographs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-sparkling-access-methods-for-new-users/"><u>2024 Approved Sparkling Access Methods for New Users</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/expert-advice-for-fixing-the-notorious-ntdlldll-malfunction-on-different-windows-os/"><u>Expert Advice for Fixing the Notorious ntdll.dll Malfunction on Different Windows OS</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-aesthetic-innovations-showcase/"><u>In 2024, Aesthetic Innovations Showcase</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-oppo-a78-5g-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Oppo A78 5G for Free? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-guide-to-efficiently-using-look-up-tables-luts/"><u>In 2024, The Ultimate Guide to Efficiently Using Look-Up Tables (LUTs)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-ultimate-guide-to-deciding-between-hero-and-cube-videos/"><u>The Ultimate Guide to Deciding Between Hero and Cube Videos</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Reinforcing Windows Photo Viewer Functionality in Windows 10"
-date: 2025-02-14T09:16:22.939Z
-updated: 2025-02-16T01:59:02.102Z
+date: 2025-03-02T07:25:05.473Z
+updated: 2025-03-05T09:30:51.923Z
 tags: 
   - screen-recording
   - ai video
@@ -60,10 +60,6 @@ Here is why they want to restore Windows Photo Viewer –
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
 ## Method 1 to restore Windows Photo Viewer
@@ -77,10 +73,6 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -100,25 +92,13 @@ Here is the detailed guide –
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Conclusion
 
 From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -145,20 +125,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-enriching-listening-activities-for-the-modern-ear-podder/"><u>[New] 2024 Approved Enriching Listening Activities for the Modern Ear-Podder</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-pixelperfect-tools-overview-series/"><u>[New] 2024 Approved PixelPerfect Tools Overview Series</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-educators-manual-for-integrating-video-in-classroom-instruction/"><u>[New] In 2024, Educator's Manual for Integrating Video in Classroom Instruction</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-navigating-oceans-choosing-your-best-action-camera/"><u>[New] Navigating Oceans Choosing Your Best Action Camera</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-fitness-frontiers-unveiling-premier-virtual-reality-walkers/"><u>[Updated] In 2024, Fitness Frontiers Unveiling Premier Virtual Reality Walkers</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-leading-the-vr-charge-top-10-pc-headsets/"><u>[Updated] In 2024, Leading The VR Charge Top 10 PC Headsets</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-isolating-still-images-from-motion-in-windows-11-photos-for-2024/"><u>[Updated] Isolating Still Images From Motion in Windows 11 Photos for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-top-10-tiktok-secrets-to-social-success/"><u>[Updated] Top 10 TikTok Secrets to Social Success</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-zte-nubia-z60-ultra-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/dive-into-windows-11-a-guide-to-taskbar-search-functionality/"><u>Dive Into Windows 11: A Guide to Taskbar Search Functionality</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-show-wi-fi-password-on-lava-yuva-3-pro-by-drfone-android/"><u>How to Show Wi-Fi Password on Lava Yuva 3 Pro</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/introducing-the-newly-revamped-xps-series-by-dell-enhanced-with-cutting-edge-artificer-features-and-continues-to-impress-aesthetically-insights-by-zdnet/"><u>Introducing the Newly Revamped XPS Series by Dell: Enhanced with Cutting-Edge Artificer Features & Continues to Impress Aesthetically - Insights by ZDNET</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/pureimages-backdrop-refinement-feature/"><u>PureImage's Backdrop Refinement Feature</u></a></li>
-<li><a href="https://win-blog.techidaily.com/resolved-fixing-the-issue-with-minecrafts-default-game-client-updates/"><u>Resolved: Fixing the Issue with Minecraft's Default Game Client Updates</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/should-you-switch-phones-annually-understanding-phone-upgrade-intervals/"><u>Should You Switch Phones Annually? Understanding Phone Upgrade Intervals</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-focusflexzoom-7-detailed-resizing-at-a-glance/"><u>[New] FocusFlexZoom 7 Detailed Resizing at a Glance</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-navigating-the-metaverse-with-a-quick-avatar-design-for-2024/"><u>[New] Navigating the Metaverse with a Quick Avatar Design for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-the-art-of-adding-podcasts-in-instagram-stories/"><u>[Updated] 2024 Approved The Art of Adding Podcasts in Instagram Stories</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-bring-pics-into-action-blur-technique-for-2024/"><u>[Updated] Bring Pics Into Action Blur Technique for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-navigate-the-digital-landscape-discover-these-10-sites-of-3d-graffiti-brilliance-for-2024/"><u>[Updated] Navigate the Digital Landscape Discover These 10 Sites of 3D Graffiti Brilliance for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-soundtracks-for-snickers-ringtones-best-online-sources-for-2024/"><u>[Updated] Soundtracks for Snickers Ringtones' Best Online Sources for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-step-by-step-methodology-for-erasing-canvas-backdrops-for-2024/"><u>[Updated] Step-by-Step Methodology for Erasing Canvas Backdrops for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-ultimate-360-view-camera-analysis-for-2024/"><u>[Updated] Ultimate 360-View Camera Analysis for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/customer-triumph-stories-effective-ai-adaptation-and-management-techniques/"><u>Customer Triumph Stories: Effective AI Adaptation and Management Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-pro-level-strategies-for-photo-color-enhancement/"><u>In 2024, Pro-Level Strategies for Photo Color Enhancement</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-tecno-spark-20-pro-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Tecno Spark 20 Pro</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/1723199735565-regular-documentation-of-calibration-checks-is-essential-for-audits-and-maintaining-traceability/"><u>Regular Documentation of Calibration Checks Is Essential for Audits and Maintaining Traceability.</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolved-troubleshooting-mic-issues-on-skype-with-windows-10/"><u>Resolved: Troubleshooting Mic Issues on Skype with Windows 10</u></a></li>
+<li><a href="https://discover-data.techidaily.com/steps-to-remove-redundant-control-panel-widgets-on-your-computer-a-guide-by-yl-computing/"><u>Steps to Remove Redundant Control Panel Widgets on Your Computer - A Guide by YL Computing</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/digiarty-dvdvcd-mp4-avi/"><u>선구하세요! Digiarty – 신규 DVD/VCD 및 MP4, AVI 등 비디오 코어를 원자재로 전환할 수 있는 경쟁기 소프트웨어</u></a></li>
 </ul></div>
 

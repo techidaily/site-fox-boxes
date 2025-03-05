@@ -1,7 +1,7 @@
 ---
 title: "\"Yi Drone in 4K  A Filmmaker’s Dream\""
-date: 2025-02-12T03:29:00.065Z
-updated: 2025-02-15T19:48:36.459Z
+date: 2025-03-04T04:42:13.746Z
+updated: 2025-03-05T05:19:17.218Z
 tags: 
   - screen-recording
   - ai video
@@ -30,10 +30,6 @@ thumbnail: https://thmb.techidaily.com/06b7f9bb308a2f230442ff554dbb6dddbc8b32cf4
 
 **You may also like:** [Top 15 Best Action Cameras >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Complete Review for Yi 4k Action Camera
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01FU9ZIMU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01FU9ZIMU&linkId=8ffea9b2da130000b205cf9367ce3ccf
@@ -44,10 +40,6 @@ thumbnail: https://thmb.techidaily.com/06b7f9bb308a2f230442ff554dbb6dddbc8b32cf4
  Let us start with the hardware part. Yi 4k looks almost same as that of GoPro device, even the waterproof case appears somewhat like GoPro product. Some resemblance is found in mobile applications as well as in mounting systems. The front side of Yi 4k is equipped with a lens and LED that provides current camera status indication. The 2.2 inch wide LCD screen is protected with Gorilla Glass whereas on top portion you will find holes for speaker and dual microphone. On the right side, a small flap is covering MicroUSB charging port and the left side is left bare.
 
 ![yi-4k-product](https://images.wondershare.com/filmora/article-images/yi-4k-product.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Specifications
 
@@ -82,10 +74,6 @@ thumbnail: https://thmb.techidaily.com/06b7f9bb308a2f230442ff554dbb6dddbc8b32cf4
  Want to know more about the best accessories for Xiaomi Yi 4K action camera? Check [Best Accessories for YI 4K Action Camera in 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![yi-4k-unboxing-](https://images.wondershare.com/filmora/article-images/yi-4k-unboxing-.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Features
 
@@ -143,10 +131,6 @@ thumbnail: https://thmb.techidaily.com/06b7f9bb308a2f230442ff554dbb6dddbc8b32cf4
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -172,22 +156,24 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-top-home-filmmaking-tricks-the-quick-and-easy-guide/"><u>[New] 2024 Approved Top Home Filmmaking Tricks The Quick and Easy Guide</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-video-game-potch-player-insights/"><u>[New] In 2024, VIDEO GAME POTCH Player Insights</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-adjustment-tips-for-subtle-audio-reduction-in-logic-pro/"><u>[Updated] 2024 Approved Adjustment Tips for Subtle Audio Reduction in Logic Pro</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-creating-masterpiece-canon-chrono-films-for-2024/"><u>[Updated] Creating Masterpiece Canon Chrono Films for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-horizonhawk-reality-check/"><u>[Updated] HorizonHawk Reality Check</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-google-podcast-mastery-from-creation-to-publication/"><u>[Updated] In 2024, Google Podcast Mastery From Creation to Publication</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-mastering-marker-techniques-for-efficient-video-cutting/"><u>[Updated] Mastering Marker Techniques for Efficient Video Cutting</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-no-8-advanced-online-photographic-merge-suite/"><u>[Updated] No. 8 Advanced Online Photographic Merge Suite</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-streamline-your-online-learning-downloading-youtube-srt-subtitles-using-3-simple-methods-for-2024/"><u>[Updated] Streamline Your Online Learning Downloading YouTube SRT Subtitles Using 3 Simple Methods for 2024</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/3-smart-and-simple-ways-to-change-home-address-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>3 Smart and Simple Ways to Change Home Address on Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://win-wonderful.techidaily.com/expert-picks-the-most-effective-pc-maintenance-solutions-featured-on-yl-computing/"><u>Expert Picks: The Most Effective PC Maintenance Solutions Featured on YL Computing</u></a></li>
-<li><a href="https://games-able.techidaily.com/guide-to-swift-ssd-upgrades-on-your-steam-device/"><u>Guide to Swift SSD Upgrades on Your Steam Device</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/hid-compliant-mouse-software-improvements-latest-driver-release-guide/"><u>HID-Compliant Mouse Software Improvements - Latest Driver Release Guide</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-lock-on-iphone-6s-by-drfone-ios/"><u>In 2024, How to Bypass iCloud Lock on iPhone 6s</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96371129-9781864760323-journey-through-many-lifetimes/"><u>Journey Through Many Lifetimes | Free Book</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/the-ultimate-playbook-for-procuring-partners-on-youtube-for-2024/"><u>The Ultimate Playbook for Procuring Partners on YouTube for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/windows-11s-new-feature-built-in-driver-support-for-scanners-and-printers/"><u>Windows 11'S New Feature: Built-In Driver Support for Scanners and Printers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-ace-10-drones-for-photography-and-cinematic-prowess/"><u>[New] 2024 Approved Ace 10 Drones for Photography & Cinematic Prowess</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-dimension-dilemma-solved-why-does-imovie-crop-in-2024/"><u>[New] Dimension Dilemma Solved Why Does iMovie Crop, In 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-from-simple-designs-to-compelling-animated-graphics/"><u>[New] From Simple Designs to Compelling Animated Graphics</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-how-to-expand-your-youtube-video-footprint/"><u>[Updated] 2024 Approved How to Expand Your YouTube Video Footprint</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-top-8-premium-and-gratis-mobile-video-mosaic-tools-for-android/"><u>[Updated] 2024 Approved Top 8 Premium & Gratis Mobile Video Mosaic Tools for Android</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-unlocking-quantum-hdr-your-comprehensive-guide/"><u>[Updated] In 2024, Unlocking Quantum HDR Your Comprehensive Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-pro-graphic-rigs-mastering-4k-titles-for-2024/"><u>[Updated] Pro Graphic Rigs Mastering 4K Titles for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-insiders-look-at-configuring-a-powerful-zoom-room/"><u>[Updated] The Insider's Look at Configuring a Powerful Zoom Room</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-2022-olympic-sprint-ice-key-moments-and-winners/"><u>2024 Approved 2022 Olympic Sprint Ice Key Moments and Winners</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-navigating-through-video-editing-delight-filmoras-core-traits/"><u>2024 Approved Navigating Through Video Editing Delight Filmora's Core Traits</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-fitbit-charge-6-wearable-tracker/"><u>Comprehensive Analysis: Fitbit Charge 6 Wearable Tracker</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/cookiebot-enabled-sites-enhanced-user-experience-and-data-management/"><u>Cookiebot-Enabled Sites: Enhanced User Experience & Data Management</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/harnessing-luts-for-enhanced-visual-effects-in-ar-experiences/"><u>Harnessing LUTs for Enhanced Visual Effects in AR Experiences</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-network-locked-vivo-v29e-phone-by-drfone-android/"><u>How to Unlock a Network Locked Vivo V29e Phone?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/micro-snippet-analysis-at-a-glance/"><u>Micro Snippet Analysis at a Glance</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/phone-lifespan-secrets-determining-ideal-upgrading-intervals/"><u>Phone Lifespan Secrets: Determining Ideal Upgrading Intervals</u></a></li>
+<li><a href="https://win-blog.techidaily.com/resolved-eliminating-persistent-noxplayer-pc-shutdowns-and-glitches/"><u>Resolved: Eliminating Persistent NoxPlayer PC Shutdowns and Glitches</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/swiftly-settling-down-after-installer-failure/"><u>Swiftly Settling Down After Installer Failure</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209868072-9780957619524-the-human-energy-system/"><u>The Human Energy System | Free Book</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Video to Photo  Windows 11 Methodology\""
-date: 2025-02-14T01:57:55.575Z
-updated: 2025-02-16T06:14:54.110Z
+date: 2025-03-02T00:17:18.990Z
+updated: 2025-03-05T10:39:26.691Z
 tags: 
   - screen-recording
   - ai video
@@ -52,10 +52,6 @@ Creating a living image:
 
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Now, you can see the living picture by tapping ‘Play’ button.
 
 These photos are stored in the ‘Pictures’ folder of your computer having ‘LI’ appended file names. Now, it’s time to save the living image as photo on your computer using Photos app.
@@ -67,10 +63,6 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Why I can’t save photo from video
 
 In case, you are not able to save photos from video on Windows 10 Photos App. There might be issues with an outdated [Microsoft OS patch update](https://support.microsoft.com/en-us/help/311047/how-to-keep-your-windows-computer-up-to-date) or the Microsoft account is having any problem. But, you don’t have to worry about the same.
@@ -81,17 +73,9 @@ We are explaining the solutions here –
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
 
@@ -107,10 +91,6 @@ Here comes the guide –
 
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -143,18 +123,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-dynamic-storytelling-in-advertising-the-snapchat-way/"><u>[New] 2024 Approved Dynamic Storytelling in Advertising The Snapchat Way</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-easy-reduction-of-footage-for-instagram-on-a-mac/"><u>[New] In 2024, Easy Reduction of Footage for Instagram on a Mac</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-unveiling-time-lapse-techniques-for-samsung-enthusiasts-for-2024/"><u>[New] Unveiling Time Lapse Techniques for Samsung Enthusiasts for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-detailed-exploration-lightroom-app-on-the-android-platform/"><u>[Updated] 2024 Approved Detailed Exploration Lightroom App on the Android Platform</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-revel-in-richness-your-pcs-pathway-to-exceptional-video-quality/"><u>[Updated] In 2024, Revel in Richness Your PC's Pathway to Exceptional Video Quality</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-top-20-trending-memes-reddit-vs-twitter-for-2024/"><u>[Updated] Top 20 Trending Memes Reddit Vs. Twitter for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-premium-android-experience-with-3d-videos/"><u>2024 Approved Premium Android Experience with 3D Videos</u></a></li>
-<li><a href="https://some-tips.techidaily.com/download-vmwares-fusion-and-workstation-pro-at-no-cost-tips-for-home-use-insights-from-zdnet/"><u>Download VMware's Fusion & Workstation Pro at No Cost: Tips for Home Use - Insights From ZDNet</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Realme GT 3 | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/innovative-approach-to-hdr-portraiture-excellence-for-2024/"><u>Innovative Approach to HDR Portraiture Excellence for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/sheryls-journey-leadership-at-facebook/"><u>Sheryl's Journey: Leadership at Facebook</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/step-by-step-pathway-to-mastering-srt-files/"><u>Step-by-Step Pathway to Mastering SRT Files</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unveiling-phony-chatgpt-sites-tips-for-spotting-and-responding-safely/"><u>Unveiling Phony ChatGPT Sites – Tips for Spotting & Responding Safely</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-scrutinizing-the-performance-of-dji-solo-vision-goggles/"><u>[New] In 2024, Scrutinizing the Performance of DJi Solo Vision Goggles</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-must-have-top-skins-themes-and-backgrounds-for-laptops/"><u>[Updated] 2024 Approved Must-Have Top Skins, Themes & Backgrounds for Laptops</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-building-a-billion-view-empire-your-step-by-step-youtube-strategy/"><u>[Updated] In 2024, Building a Billion-View Empire Your Step-by-Step Youtube Strategy</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-top-pick-drones-compatible-with-gopro-cameras/"><u>[Updated] In 2024, Top Pick Drones Compatible with GoPro Cameras</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/creative-commons-peace-sounds-for-2024/"><u>Creative Commons Peace Sounds for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/experience-ultimate-entertainment-on-the-go-with-the-iconic-nokia-x7-phone/"><u>Experience Ultimate Entertainment on the Go with the Iconic Nokia X7 Phone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-full-guide-to-bypass-lava-yuva-3-pro-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Lava Yuva 3 Pro FRP</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-infinix-hot-30ifrp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Infinix Hot 30iFRP Lock</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/navigating-the-world-of-videomosaic-androids-8-freepaid-selection-for-2024/"><u>Navigating the World of Videomosaic Android's #8-Free/Paid Selection for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/standout-moments-of-snowspeedcross-22-for-2024/"><u>Standout Moments of Snowspeedcross '22 for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-10-image-editors-and-annotation-tools/"><u>Top 10 Image Editors & Annotation Tools</u></a></li>
 </ul></div>
 

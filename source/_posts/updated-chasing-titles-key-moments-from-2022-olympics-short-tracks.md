@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Chasing Titles  Key Moments From 2022 Olympics Short Tracks\""
-date: 2025-02-12T18:02:56.141Z
-updated: 2025-02-16T05:06:36.593Z
+date: 2025-02-28T22:33:16.217Z
+updated: 2025-03-05T05:06:59.714Z
 tags: 
   - screen-recording
   - ai video
@@ -29,10 +29,6 @@ Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with contr
 
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. Introduce some highlights in short track speed skating with images
 
 Here are the main highlights of 1500 meter short track speed skating held at the Capital Indoor Stadium in Beijing on Wednesday.
@@ -44,10 +40,6 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Russia’s Semen Elistratov wins the bronze medal.
 
@@ -69,17 +61,9 @@ The last leg of competition among skaters before reaching the finishing line at 
 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -94,10 +78,6 @@ To create such a highlight video on any sports event, there are certain videos e
 **Motion Tracking** – Using motion tracking, you can track the movement of a particular object or athlete in a video. This helps to attach certain elements such as clipart, text, icon to that particular athlete throughout the video for easy identification by the viewers.
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -150,19 +130,19 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-how-to-combine-videos-on-iphone-for-2024/"><u>[New] How to Combine Videos on iPhone for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-palette-perfection-the-colorists-manual/"><u>[New] In 2024, Palette Perfection The Colorist's Manual</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-premier-plans-exclusive-free-premiere-pro-samples-2023/"><u>[New] In 2024, Premier Plans - Exclusive Free Premiere Pro Samples 2023</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-playlist-15-ways-to-revamp-a-live-stream/"><u>[New] The Ultimate Playlist 15 Ways to Revamp a Live Stream</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-best-image-safekeepers-online-for-2024/"><u>[Updated] Best Image Safekeepers Online for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-direct-video-tweet-release-avoid-the-rt/"><u>[Updated] Direct Video Tweet Release Avoid the 'RT'</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-drone-category-definitions/"><u>[Updated] In 2024, Drone Category Definitions</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-iterative-feedback/"><u>2024 Approved Iterative Feedback</u></a></li>
-<li><a href="https://win-able.techidaily.com/comprehensive-guide-overcoming-directx-compatibility-problems-in-battlefield-2042/"><u>Comprehensive Guide: Overcoming DirectX Compatibility Problems in Battlefield 2042</u></a></li>
-<li><a href="https://driver-error.techidaily.com/expert-advice-resolving-non-responsive-hp-keyboard-problems-with-ease/"><u>Expert Advice: Resolving Non-Responsive HP Keyboard Problems with Ease</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-itel-p55-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Itel P55? | Dr.fone</u></a></li>
-<li><a href="https://fox-access.techidaily.com/leading-setups-in-professional-broadcast-equipment/"><u>Leading Setups in Professional Broadcast Equipment</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unraveling-twitch-mysteries-essential-tips-for-beginner-streamers/"><u>Unraveling Twitch Mysteries: Essential Tips for Beginner Streamers</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unveiling-the-limits-of-text-input-in-chatgpt-tips-for-going-beyond/"><u>Unveiling the Limits of Text Input in ChatGPT – Tips for Going Beyond</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-boost-interaction-on-your-tiktok-with-these-5-innovative-caption-methods-for-2024/"><u>[New] Boost Interaction on Your TikTok with These 5 Innovative Caption Methods for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/rafting-standout-youtube-thumbnails-with-ease-for-2024/"><u>[New] Crafting Standout YouTube Thumbnails with Ease for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-expected-daily-video-consumption-gb-calculation/"><u>[New] In 2024, Expected Daily Video Consumption GB Calculation</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-join-the-meme-revolution-expert-tips-for-the-metaverse-for-2024/"><u>[New] Join the Meme Revolution Expert Tips for the Metaverse for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-the-all-encompassing-examination-of-theta-s-camera/"><u>[Updated] 2024 Approved The All-Encompassing Examination of Theta S Camera</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-distinguished-directory-top-ranked-websites-for-snatching-snapalert-melodies-for-2024/"><u>[Updated] Distinguished Directory Top-Ranked Websites for Snatching SnapAlert Melodies for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-essential-8-in-virtual-reality-gaming/"><u>[Updated] In 2024, The Essential 8 in Virtual Reality Gaming</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-top-30-tones-where-to-find-classical-callouts/"><u>[Updated] In 2024, Top 30 Tones Where to Find Classical Callouts</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-top-5-recorder-picks-to-freeze-your-web-wanderings-in-time/"><u>[Updated] Top 5 Recorder Picks to Freeze Your Web Wanderings in Time</u></a></li>
+<li><a href="https://media-tips.techidaily.com/alternative-solutions-for-transforming-media-files-without-using-freemake/"><u>Alternative Solutions for Transforming Media Files Without Using Freemake</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/dvdwinx-dvd-copy-prodvdiso/"><u>DVDコピー技術：WinX DVD Copy Proを使って、DVDやISOファイルへの素早い変換方法</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-multimedia-mastery-pc-mac-and-mobile-movie-screening/"><u>In 2024, Multimedia Mastery PC, Mac & Mobile Movie Screening</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-photo-framing-made-easy-leading-apps-and-sites-reviewed/"><u>In 2024, Photo Framing Made Easy Leading Apps and Sites Reviewed</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/the-weave-of-wisdom-mastering-looms-tech/"><u>The Weave of Wisdom Mastering Loom's Tech</u></a></li>
 </ul></div>
 

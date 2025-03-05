@@ -1,7 +1,7 @@
 ---
 title: "The Connoisseur's Guide to WhatsApp Mastery for 2024"
-date: 2025-02-14T20:01:36.912Z
-updated: 2025-02-16T04:42:12.076Z
+date: 2025-03-04T04:02:18.394Z
+updated: 2025-03-05T05:20:20.612Z
 tags: 
   - screen-recording
   - ai video
@@ -47,10 +47,6 @@ Yes, you can bold your text. Just add a star (\*) symbol before and after your t
 
 ![Whatsapp Text Tricks Bold](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-bold.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 2.Italic
 
 Just like the bold, you can also italicize your fonts by simply inserting Underscore Symbol ( \_text\_ ) at the starting and end of your sentence.
@@ -69,10 +65,6 @@ The monospace is a font stylization now available in WhatsApp that allows you to
 
 ![Whatsapp Text Tricks Monospace](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-monospace.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 5.Disable Read Recipients
 
 WhatsApp introduced the Blue Tick feature to notify users when their messages are not only delivered but are seen by the recipients. But it has also been the cause of fallouts between loved ones and even trouble at work for failing to respond despite a Blue Tick. Now you can control the fury with WhatsApp Text Tricks of disabling the Read Recipient feature. Go Settings >> Account >> Privacy >> Read Recipients. By doing this, you won’t be able to see your contact’s blue ticks as no one will be able to see yours. Unlike custom notifications, the Read Recipient feature applies to your entire contact list and cannot be used for one specific contact. The sender would see black double ticks even if you read the message.
@@ -84,10 +76,6 @@ WhatsApp introduced the Blue Tick feature to notify users when their messages ar
 Many times, we have just one or a few people whose texts matter the most. So, avoid letting those important message threads from getting pushed down below by message floods. You can pin priority contacts by opening WhatsApp, then tapping and holding the chat thread of the contact without opening it. This will show a new toolbar on the green border at the top of the window. Use the first icon of a pin to freeze the chat thread in the top position.
 
 ![Whatsapp Pin Prioritized Contacts](https://images.wondershare.com/filmora/article-images/whatsapp-pin-prioritized-contacts.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Source: techmesto.com
 
@@ -102,10 +90,6 @@ If you wish to save the chats that you exchanged with someone special, you can e
 Though we have already mentioned the shortcuts for bold, italics, and other text formatting features, there is another way to format your texts if you forget the shortcuts - go for the Native Settings Strip. Once you are done typing, then tap and hold the text sections you want to format, this will open all the options in a list. You can scroll it to select your formatting command.
 
 ![Whatsapp Font Tricks Formatting](https://images.wondershare.com/filmora/article-images/whatsapp-font-tricks-formatting.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 9.You Can Apply All WhatsApp Font Tricks on One Word or Sentence
 
@@ -145,10 +129,6 @@ As long as you have the chat history intact you can search specific words to tra
 
 ![Whatsapp Search Old Chat](https://images.wondershare.com/filmora/article-images/whatsapp-search-old-chat.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 5.Restore Your Chat History, and Deleted Chats
 
 Sometimes you can restore deleted chat history if you have switched sims or mistakenly deleted a special conversation thread. Doesn’t take too much, just uninstall and reinstall your app. On opening it, you will get the prompt to restore your chats and media. The restoration process takes about a minute depending on internet speed. Then tap NEXT when the prompt appears. Remember this trick only works on messages that are run under backup when you are using a new phone. WhatsApp runs a backup every day at 2 am.
@@ -158,10 +138,6 @@ Sometimes you can restore deleted chat history if you have switched sims or mist
 Sometimes you just need to hush your WhatsApp for just a while. Perhaps you have to lend your phone to someone but don’t want them bumping into any of your private incoming messages. While other social media allow “logging off”, WhatsApp is always there in your face! Though high-fidelity phones allow fingerprint and face locking, not everyone owns a compatible device right now. Yet you don’t have to delete the app or go Aeroplane Mode, just force stop it. Though it is not an inbuilt WhatsApp feature, you can control the gamut by going to Settings>> Apps and Notifications >> WhatsApp >> Disable. Then in the same section go to Data Settings and disable Background Data. If you do this, your messages will come but you won’t’ get them until you open the app, meanwhile, keep receiving calls and all use your phone full-fledged.
 
 ![Whatsapp Hidden Feature Snooze Whatsapp](https://images.wondershare.com/filmora/article-images/whatsapp-hidden-feature-snooze-whatsapp.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 7.Automatically Delete Messages After 7 Days
 
@@ -175,10 +151,6 @@ If it is annoying to open a loved one’s story and then automatically sliding i
 
 ![Mute Whatsapp Stories](https://images.wondershare.com/filmora/article-images/mute-whatsapp-stories.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 9.Reply Privately to Recipients in a WhatsApp Group
 
 This is as simple as it sounds. Tap and hold to select a message in a group and then open the 3-dot button at the top right to access the feature.
@@ -188,10 +160,6 @@ This is as simple as it sounds. Tap and hold to select a message in a group and 
 Manage how you are notified of messages from specific contacts and groups. Go to the main page of the contact or group you wish to customize, and there you will find Custom Notifications. Activate the mode to open a wide range of options - notification tones, pop up, preview, etc.
 
 ![Whatsapp Hidden Feature Custom Notification](https://images.wondershare.com/filmora/article-images/whatsapp-hidden-feature-custom-notification.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Source: beebom.com
 
@@ -246,20 +214,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-burst-life-into-slow-motion-with-top-android-apps-for-2024/"><u>[New] Burst Life Into Slow Motion with Top Android Apps for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-ideal-internet-locations-for-shining-3d-text-art-for-2024/"><u>[New] Ideal Internet Locations for Shining 3D Text Art for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-capturing-sound-on-mac-an-audacity-tutorial/"><u>[New] In 2024, Capturing Sound on Mac An Audacity Tutorial</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-podcast-logo-basics-key-principles-for-striking-art/"><u>[New] In 2024, Podcast Logo Basics Key Principles for Striking Art</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-navigating-the-process-of-enlisting-videos-on-youtube-shelves-for-2024/"><u>[New] Navigating the Process of Enlisting Videos on YouTube Shelves for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-the-art-of-shots-discover-the-best-camera-angles-for-iphones-for-2024/"><u>[New] The Art of Shots Discover the Best Camera Angles for iPhones for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-top-8-iphone-selfie-stick-choices-revealed/"><u>[New] Top 8 iPhone Selfie Stick Choices Revealed</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-transforming-srt-files-into-text-a-speedy-expertise-guide/"><u>[New] Transforming SRT Files Into Text A Speedy Expertise Guide</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-apple-vs-android-the-face-id-and-galaxy-recognition-race/"><u>[Updated] 2024 Approved Apple Vs. Android The Face ID and Galaxy Recognition Race</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-immersive-worlds-unveiled-delving-into-mr-ar-and-vrs-distinctions/"><u>[Updated] 2024 Approved Immersive Worlds Unveiled Delving Into MR, AR, and VR's Distinctions</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-from-plate-to-screen-perfecting-the-art-of-food-cinema-for-2024/"><u>[Updated] From Plate to Screen Perfecting the Art of Food Cinema for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-harness-10-tools-for-free-thumbnail-acquisition/"><u>[Updated] In 2024, Harness 10 Tools for FREE Thumbnail Acquisition</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-the-art-of-video-storytelling-integrating-audio-narration/"><u>In 2024, The Art of Video Storytelling Integrating Audio Narration</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/svenska-grev-valkommen-till-sverige/"><u>Svenska Grev: Välkommen Till Sverige</u></a></li>
-<li><a href="https://blog-min.techidaily.com/the-secrets-behind-4k-video-resizing-for-better-clarity-on-older-footage/"><u>The Secrets Behind 4K Video Resizing for Better Clarity on Older Footage</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-exploring-hps-vivid-spectrum-with-the-z32x-4k-monitor/"><u>[New] In 2024, Exploring HP's Vivid Spectrum with the Z32X 4K Monitor</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-step-by-step-strategies-to-thrive-on-reddit/"><u>[New] In 2024, Step-by-Step Strategies to Thrive on Reddit</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-new-bird-bebops-parrot-as-a-flight-marvel-review/"><u>[New] In 2024, The New Bird Bebop’s Parrot as a Flight Marvel Review</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-benq-bl2711u-a-journey-through-professional-4k-display-tech/"><u>[Updated] BenQ BL2711U - A Journey Through Professional 4K Display Tech</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-most-admired-iphone-based-podcast-platforms/"><u>[Updated] In 2024, Most Admired iPhone-Based Podcast Platforms</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-timeless-treasures-the-premier-compiler-and-preserver-for-tweeter-visuals/"><u>[Updated] In 2024, Timeless Treasures The Premier Compiler & Preserver for Tweeter Visuals</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-sync-shutter-speed-blur-artistry-in-photoshop/"><u>[Updated] Sync Shutter Speed Blur Artistry in Photoshop</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-this-years-breakthrough-in-vr-gaming-technology/"><u>[Updated] This Year's Breakthrough in VR Gaming Technology</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/0x00000019-bad-pool-header-in-windows-1087-solved/"><u>0X00000019 Bad Pool Header in Windows 10/8/7 [SOLVED]</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-fresh-start-strategy-budget-channels-to-purchase/"><u>2024 Approved Fresh Start Strategy Budget Channels to Purchase</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-slick-shots-from-yesteryear-mastering-vhs-hacks-in-modern-edits/"><u>2024 Approved Slick Shots From Yesteryear Mastering VHS Hacks in Modern Edits</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>Best 10 Mock Location Apps Worth Trying On Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/drone-guide-for-the-thrifty-consumer-cost-effective-choices/"><u>Drone Guide for the Thrifty Consumer Cost-Effective Choices</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-vivo-y27s-by-drfone-android/"><u>How to Bypass FRP on Vivo Y27s?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-vivo-y28-5g-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Vivo Y28 5G?</u></a></li>
+<li><a href="https://media-tips.techidaily.com/paramountplus-announces-regular-price-increases-what-subscribers-need-to-know/"><u>Paramount+ Announces Regular Price Increases: What Subscribers Need to Know</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/smartphone-security-systems-apples-x-vs-samsungs-facial-tech-for-2024/"><u>Smartphone Security Systems Apple’s X Vs. Samsung's Facial Tech for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-best-5-book-video-promotions-ever-made-for-2024/"><u>The Best 5 Book Video Promotions Ever Made for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unlocking-potential-with-efficient-audio-submission/"><u>Unlocking Potential with Efficient Audio Submission</u></a></li>
 </ul></div>
 

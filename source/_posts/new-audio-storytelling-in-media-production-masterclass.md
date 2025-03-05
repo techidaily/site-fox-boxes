@@ -1,7 +1,7 @@
 ---
 title: "[New] Audio Storytelling in Media Production Masterclass"
-date: 2025-02-11T04:03:28.180Z
-updated: 2025-02-16T04:48:46.945Z
+date: 2025-02-28T18:16:31.841Z
+updated: 2025-03-05T09:09:19.120Z
 tags: 
   - screen-recording
   - ai video
@@ -55,29 +55,17 @@ So the easiest way to add narration is directly to a project. The benefit of thi
 
 ![add narration to project](https://images.wondershare.com/filmora/guide/stt-tts-srt-09.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 A good example of this would be narrating a story on top of some still images and video clips from a recent vacation. (In most cases you would want to turn off the sound of the video clip, or at least use ducking to help the viewer focus on the narration.)
 
 You put the playhead where you want to start recording and hit the microphone icon under the preview window.
 
 ![hit microphone icon](https://images.wondershare.com/filmora/guide/stt-tts-srt-08.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 A 3-second countdown will pop up and start recording immediately after this countdown.
 
 You can record your narration and click stop.
 
 After recording, you can trim and edit your narration, you can delete it and record it again, and can move it and edit it like any other feature.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Some Tips for Recording Narration
 
@@ -103,15 +91,7 @@ When adding voiceover or narration to your project, be sure to use a good USB mi
 
 ![use good microphone](https://images.wondershare.com/filmora/article-images/2022/11/use-good-microphone.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Should you use narration in your next project?
 
@@ -151,22 +131,24 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-digital-cache-unlicensed-licensed-game-tunes/"><u>[New] 2024 Approved Digital Cache Unlicensed, Licensed Game Tunes</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-exploring-picsarts-latest-features-a-complete-guide-and-review-of-its-revamp/"><u>[New] Exploring PicsArt's Latest Features – A Complete Guide & Review of Its Revamp</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-navigating-the-transition-from-tiktok-to-twitter-sharing/"><u>[New] Navigating the Transition From TikTok to Twitter Sharing</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-tailor-made-twitter-video-coverage-for-2024/"><u>[New] Tailor-Made Twitter Video Coverage for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-crafting-sweeping-sonic-narratives-with-expert-crossfade-techniques-audacity/"><u>[Updated] 2024 Approved Crafting Sweeping Sonic Narratives with Expert Crossfade Techniques (Audacity)</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-in-depth-tips-for-srt-file-production-mastery/"><u>[Updated] 2024 Approved In-Depth Tips for SRT File Production Mastery</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-breaking-the-boundaries-vr-film-production-essentials-top-9/"><u>[Updated] In 2024, Breaking the Boundaries VR Film Production Essentials (Top 9)</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-reasons-behind-missing-video-on-sony-a6400-for-2024/"><u>[Updated] Reasons Behind Missing Video on Sony A6400 for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/boosting-your-competitive-edge-with-custom-vocalization-techniques-in-free-fire-gaming-free-solution-included/"><u>Boosting Your Competitive Edge with Custom Vocalization Techniques in Free Fire Gaming (Free Solution Included)</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/dvd-duplication-process-for-windows-users-translating-dvds-to-new-discs-on-win11win10win8win7/"><u>DVD Duplication Process for Windows Users: Translating DVDs to New Discs on Win11/Win10/Win8/Win7</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-elite-list-best-online-streaming-options-today/"><u>In 2024, Elite List Best Online Streaming Options Today</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-xiaomi-civi-3-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Xiaomi Civi 3 to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-perfect-your-presentations-leading-free-mac-screen-capture-tools/"><u>In 2024, Perfect Your Presentations Leading Free Mac Screen Capture Tools</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138568004-9781475919561-paper-gauze-ballerina/"><u>Paper Gauze Ballerina | Free Book</u></a></li>
-<li><a href="https://windows11.techidaily.com/setting-new-preferred-pdf-reader-in-windows/"><u>Setting New Preferred PDF Reader in Windows</u></a></li>
-<li><a href="https://facebook.techidaily.com/tactics-for-boosting-fb-reach/"><u>Tactics for Boosting Fb Reach</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/the-science-of-attractiveness-building-engaging-audio-introductions/"><u>The Science of Attractiveness Building Engaging Audio Introductions</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-quick-tips-sending-tweets-content-via-whatsapp-app/"><u>[New] 2024 Approved Quick Tips Sending Tweets' Content via WhatsApp App</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-innovations-in-mobile-photography-a-look-at-iphone-x/"><u>[New] Innovations in Mobile Photography A Look at iPhone X</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-instagram-to-tik-tok-integration-strategy-for-2024/"><u>[New] Instagram to Tik Tok Integration Strategy for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-which-cameras-rule-the-field-gopro-hero-vs-sony-x1000v-clashes/"><u>[New] Which Cameras Rule the Field? GoPro Hero Vs. Sony X1000V Clashes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-2022s-speed-demon-olympic-crossers-greatest-hits/"><u>[Updated] 2024 Approved 2022'S Speed Demon Olympic Crossers' Greatest Hits</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-exclusive-secrets-for-windows-11-mastery/"><u>[Updated] Exclusive Secrets for Windows 11 Mastery</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-immediate-access-to-your-videos-thumbnails-online/"><u>[Updated] In 2024, Immediate Access to Your Videos' Thumbnails Online</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-photoshop-shake-reduction-is-it-really-useful/"><u>[Updated] In 2024, Photoshop Shake Reduction - Is It Really Useful?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-youtube-video-edits-with-finalcut-pro/"><u>[Updated] Mastering YouTube Video Edits with FinalCut Pro</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-financials-of-boosting-your-youtube-videos/"><u>[Updated] The Financials of Boosting Your YouTube Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-ultimate-audio-experience-budget-friendly-asmr-mics-reviewed-for-2024/"><u>[Updated] Ultimate Audio Experience Budget-Friendly ASMR Mics Reviewed for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-your-free-tool-to-record-androids-precision/"><u>[Updated] Your Free Tool to Record Android's Precision</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-8-best-film-cameras-for-beginners-from-35mm-to-point-and-shoot/"><u>2024 Approved 8 Best Film Cameras for Beginners (From 35Mm to Point-and-Shoot)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/5-best-slow-motion-cameras-for-2024/"><u>5 Best Slow Motion Cameras for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-groundhopping-goals-watch-record-and-cut-games-without-spending/"><u>In 2024, Groundhopping Goals Watch, Record & Cut Games Without Spending</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Samsung Galaxy A24 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-of-ankers-super-bright-tactical-lamp-the-go-to-gear-for-rugged-expeditions/"><u>In-Depth Review of Anker's Super Bright Tactical Lamp - The Go-To Gear for Rugged Expeditions</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/innovative-techniques-for-capturing-every-play-of-your-ps3-games-for-2024/"><u>Innovative Techniques for Capturing Every Play of Your PS3 Games for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/mastering-iphoneipad-premium-podcast-recording-tips-for-2024/"><u>Mastering iPhone/iPad Premium Podcast Recording Tips for 2024</u></a></li>
 </ul></div>
 

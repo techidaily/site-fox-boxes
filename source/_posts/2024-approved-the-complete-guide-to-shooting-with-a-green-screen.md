@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Complete Guide to Shooting with a Green Screen\""
-date: 2024-08-23T07:55:08.322Z
-updated: 2024-08-24T07:55:08.322Z
+date: 2025-03-03T22:48:03.502Z
+updated: 2025-03-05T08:48:15.582Z
 tags: 
   - screen-recording
   - ai video
@@ -38,9 +38,6 @@ If you are wondering how to compositing the shot green screen video with your ma
 
 **Related:**[Resources for green screen effects](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5 Tips for shooting better green screen video
 
 We’ve figured out some useful green screen tricks, have fun and hope you’ll be more creative with the help of Filmora green screen video compositing software.
@@ -55,18 +52,12 @@ To shoot a nice green screen video, it's better to be able to light the backgrou
 
 Don’t throw too much light onto the green background. That will create hotspots and “green spill” on the subject and make the key less effective. The key to lighting a green screen is consistency – create a single, consistent shade of color across the entire screen.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Lighting tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-lighting-tips.png)
 
 Check out our picks of [the best lighting equipment for shooting videos](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 2Camera tips in shooting a Green Screen Video
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Camera tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-6.png)
 
 When lighting your key surface, make sure the bounce light is not directed at the camera (as shown in the image above). For example, if your camera faces the key surface directly, set your lights at 45 degree angles to the key surface. This will ensure that the bounce light bounces toward the other light and not at the camera.
@@ -103,18 +94,6 @@ Besides compositing chroma keying videos in Filmora, you can also [stabilize you
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -140,8 +119,24 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-elite-psd-bevel-and-emboss-styles/"><u>[New] 2024 Approved Elite PSD Bevel & Emboss Styles</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-unlock-hidden-potential-boost-productivity-essential-activities-during-podcast-sessions/"><u>[New] 2024 Approved Unlock Hidden Potential, Boost Productivity Essential Activities During Podcast Sessions</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-update-twitter-video-box-picture/"><u>[New] 2024 Approved Update Twitter Video Box Picture</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rucial-info-every-asmr-viewer-should-absorb/"><u>[New] Crucial Info Every ASMR Viewer Should Absorb</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-methods-to-access-previous-facebook-journeys-mobiledesktop/"><u>[New] Methods to Access Previous Facebook Journeys (Mobile/Desktop)</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-vlc-media-player-review-and-alternatives/"><u>[Updated] 2024 Approved VLC Media Player Review and Alternatives</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-flawless-endgame-in-vr-worlds-for-2024/"><u>[Updated] Flawless Endgame in VR Worlds for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-luminous-android-video-editing-hacks/"><u>[Updated] In 2024, Luminous Android Video Editing Hacks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-ultimate-videographers-companion-the-ion-air-pro-3-deep-dive/"><u>[Updated] In 2024, The Ultimate Videographer's Companion The ION Air Pro 3 Deep Dive</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-leading-music-service-streaming-channels/"><u>2024 Approved Leading Music Service Streaming Channels</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-youtube-shorts-earnings-guide-must-knows-and-future-potential/"><u>2024 Approved Youtube Shorts Earnings Guide Must-Knows & Future Potential</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-vivo-s18-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Vivo S18 | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-gopros-versatility-up-against-nikons-km-170/"><u>In 2024, GoPro's Versatility Up Against Nikon's KM-170</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-open-your-apple-iphone-14-pro-without-a-home-button-by-drfone-ios/"><u>In 2024, How To Open Your Apple iPhone 14 Pro Without a Home Button</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-metaverse-inspiration-enhanced-by-ar-and-vr/"><u>In 2024, Metaverse Inspiration Enhanced by AR & VR</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-subtle-start-sequence/"><u>In 2024, Subtle Start Sequence</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-iphone-7-and-android-phones-by-drfone-ios/"><u>In 2024, Top IMEI Unlokers for iPhone 7 and Android Phones</u></a></li>
+</ul></div>
 

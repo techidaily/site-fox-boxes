@@ -1,7 +1,7 @@
 ---
 title: "A Comprehensive Guide to Softening Images with iPhone Software"
-date: 2024-08-16T04:46:02.038Z
-updated: 2024-08-17T04:46:02.038Z
+date: 2025-03-02T03:35:19.046Z
+updated: 2025-03-05T07:38:24.564Z
 tags: 
   - screen-recording
   - ai video
@@ -148,9 +148,6 @@ Grab your iPhone (iPhone 13 Pro Max is used here for illustration), and tab the 
 
 Swipe-drag the modes present above the **Shutter** button to switch to the **PORTRAIT** option, and tap the main subject on the screen that you want to capture the image of. Next, tap the **f** (**Depth**) icon from the top-right corner, and drag the **Depth** slider to the left to increase the intensity of the blur effect of the background.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![iphone portrait mode blur background](https://images.wondershare.com/filmora/article-images/iphone-portrait-mode-blur-background.jpg)
 
 **Step 3: Capture and Access the Photo**
@@ -325,9 +322,6 @@ From the top, ensure that the **Blur Strength** option is selected, tap anywhere
 
 Then, as earlier, drag your finger to the right or left anywhere on the screen to increase or decrease the intensity of the effect respectively. Once done, tap the **OK** button (with the tick mark) from the bottom-right corner. Back on the main screen, tap **EXPORT** from the bottom-right, you tap your preferred option for exporting.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![save blurred photo snapseed](https://images.wondershare.com/filmora/article-images/save-blurred-photo-snapseed.jpg)
 
 **Conclusion**
@@ -392,9 +386,6 @@ Launch the **Photos** app on your iPhone, go to the album with the target photo,
 
 Tap the Effects icon from the bottom, swipe left to horizontally scroll through the available effects to get to **VIGNETTE**, and use the slider under it to manage the intensity to **blur picture iPhone** has.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![blur picture on iphone with vignette effect](https://images.wondershare.com/filmora/article-images/blur-picture-on-iphone-with-vignette-effect.jpg)
 
 **Step 3: Save and Access the Photo**
@@ -431,9 +422,6 @@ From the top, ensure that the **Blur Strength** option is selected, tap anywhere
 
 Then, as earlier, drag your finger to the right or left anywhere on the screen to increase or decrease the intensity of the effect respectively. Once done, tap the **OK** button (with the tick mark) from the bottom-right corner. Back on the main screen, tap **EXPORT** from the bottom-right, you tap your preferred option for exporting.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![save blurred photo snapseed](https://images.wondershare.com/filmora/article-images/save-blurred-photo-snapseed.jpg)
 
 **Conclusion**
@@ -462,8 +450,20 @@ Blurring the background in a photo ensures that the main subject remains in the 
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-from-clueless-to-confident-configuring-zoom-made-simple/"><u>[New] 2024 Approved From Clueless to Confident Configuring Zoom Made Simple</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-one-step-guide-to-simultaneous-cam-plus-screen-recording/"><u>[New] 2024 Approved One Step Guide to Simultaneous Cam + Screen Recording</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-unplugged-enjoyment-best-indoor-gaming-apps-on-mobile-devices/"><u>[New] 2024 Approved Unplugged Enjoyment Best Indoor Gaming Apps on Mobile Devices</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-androids-premier-3d-visualization-app-for-2024/"><u>[New] Android's Premier 3D Visualization App for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-outlining-expenses-creating-a-music-video-for-2024/"><u>[New] Outlining Expenses Creating a Music Video for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-precision-meets-creativity-top-accessories-for-yi-4k/"><u>[New] Precision Meets Creativity Top Accessories for YI 4K</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-customer-commendations-boosting-brands/"><u>[Updated] 2024 Approved Customer Commendations Boosting Brands</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-meme-masterpieces-iphones-here/"><u>[Updated] 2024 Approved Meme Masterpieces, iPhones Here</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-a-step-by-step-guide-to-leveraging-the-whiteboard-feature-in-remote-tech-sessions-for-2024/"><u>[Updated] A Step-by-Step Guide to Leveraging the Whiteboard Feature in Remote Tech Sessions for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-frame-your-shot-ultimate-software-guide-image-editors/"><u>[Updated] In 2024, Frame Your Shot Ultimate Software Guide Image Editors</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-complete-guide-to-assembling-youtube-music-collections-onlineapp-wise/"><u>2024 Approved The Complete Guide to Assembling YouTube Music Collections Online/App-Wise</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-sony-xperia-1-v-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Sony Xperia 1 V Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/maximize-mobile-viewing-sharper-chromebook-and-phone-videos/"><u>Maximize Mobile Viewing Sharper Chromebook and Phone Videos</u></a></li>
+</ul></div>
 
